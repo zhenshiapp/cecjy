@@ -4,6 +4,10 @@
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
+[人生真谛](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/) |
+[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
+[百步亭社区 样本活动 样本遭遇](https://github.com/Hongyu91/cecjy/issues/15#issue-575188950)
+
 [瘟疫当前，世人求指点迷津](https://github.com/Hongyu91/cecjy/issues/13#issue-575176580) |
 [如何才能走出“武汉肺炎”大难？](https://github.com/Hongyu91/cecjy/issues/14#issue-575181554) |
 [武汉感染者：感谢法轮功送的自救秘诀](https://github.com/Hongyu91/cecjy/issues/12#issue-575174726)
