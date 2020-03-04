@@ -2,7 +2,7 @@
 
 ![stypa12](https://user-images.githubusercontent.com/61768866/75859922-e666dd00-5e35-11ea-8956-f1129716675d.png)
 
-![zxtp9](https://user-images.githubusercontent.com/61768866/75864523-1e255300-5e3d-11ea-8498-21f04496ef1d.jpg)
+![zxtp91](https://user-images.githubusercontent.com/61768866/75864893-a9064d80-5e3d-11ea-93a7-4ed1d21424cc.jpg)
 
 ### 热点动态文章
 
