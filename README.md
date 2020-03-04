@@ -1,3 +1,4 @@
+### 收藏本页固定短网址：https://git.io/JvaVR
 ### 明慧周报：大陆版（第七八六期）
 ![image](https://user-images.githubusercontent.com/61768866/75846261-be1bb600-5e16-11ea-90e5-4501166d068f.png)
 ![image](https://user-images.githubusercontent.com/61768866/75846286-d095ef80-5e16-11ea-9ec7-0e4b980b0049.png)
