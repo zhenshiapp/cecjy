@@ -1,5 +1,8 @@
 ### 选文推荐
 
+[返回主页](https://github.com/Hongyu91/cecjy) |
+[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
+[返回主页](https://github.com/Hongyu91/cecjy)
 
 [不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722) |
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
