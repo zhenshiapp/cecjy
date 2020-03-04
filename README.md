@@ -1,18 +1,18 @@
 ### 热点动态文章
 
-[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
+[敬念“法轮大法好”出现的奇迹](https://github.com/Hongyu91/cecjy/issues/18#issue-575203951)
 
-[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
+[邻居大娘念“法轮大法好”起死回生 ](https://github.com/Hongyu91/cecjy/issues/19#issue-575205030)
+
+[北京市昌平区警察骚扰张桂英](https://github.com/Hongyu91/cecjy/issues/20#issue-575205936)
+
+[遭冤狱十四年　哈尔滨市木兰县商贵民被迫害离世](https://github.com/Hongyu91/cecjy/issues/21#issue-575207365)
+
+[迫害法轮功　湖北应城国保大队中队长何建设被举报](https://github.com/Hongyu91/cecjy/issues/22#issue-575208536)
 
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
-[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)
-
-[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
-
-[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
-
-[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)
+[周口市四十五岁副市长刘建武履职两天遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/23#issue-575209687)
 
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
 
