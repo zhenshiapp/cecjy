@@ -1,6 +1,5 @@
-# 开卷有益
-![2014-8-19-guangchuanzhenxiang-3](https://user-images.githubusercontent.com/61768866/75859012-39d82b80-5e34-11ea-839f-793b5a2985da.jpg)
-
+# 黄金屋
+![2019-9-11-greeting-newpractitioner-f](https://user-images.githubusercontent.com/61768866/75859556-342f1580-5e35-11ea-8eb6-33dd64c98b37.jpg)
 ### 收藏本页固定短网址：https://git.io/JvaVR
 
 ### 热点动态文章
