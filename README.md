@@ -5,12 +5,12 @@
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294)
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
-[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
-[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
+[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)
+[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
-[不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722) |
-[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
+[不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722)
+[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086)
 
 ### 收藏本页固定短网址：https://git.io/JvaVR
