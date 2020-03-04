@@ -48,9 +48,12 @@
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086)
 
+![image](https://user-images.githubusercontent.com/61768866/75865830-1797db00-5e3f-11ea-859c-d7ff6f2e947d.png)
+
 # 休闲时光
 
 ![!pn!HT!KZ!pz!H9!Hk!pn!Ki!Hn!pz!66!HH 6](https://user-images.githubusercontent.com/61768866/75873436-d9081d80-5e4a-11ea-9929-4d62d875e2ed.jpg)
+
 这里给大家提供一个自带翻墙功能的希望之声手机App, 适用于所有安卓系统的手机（所有的国产手机品牌，一集三星，LG等非iPhone手机）。该希望之声手机App由江峰提供！可以收听收看他上传的所有音频视频节目，丰富你的休闲时光，开拓你的视野和见闻。希望之声手机App下载成功后解压到系统文件夹中，再把解压后的手机文件oHopea.apk上传到你的手机文件夹里，打开安装后就可使用了，手机用户打开本站网页后也可直接下载安装，节目很丰富哦，全是免费的广播和视频，还有文章等，希望大家喜欢。
 ### 点击下载[希望之声手机App](https://github.com/Hongyu91/cecjy/files/4286901/oHopea.zip)
 
