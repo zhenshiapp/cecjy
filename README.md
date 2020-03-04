@@ -1,6 +1,6 @@
 # 归途驿站
+
 ![stypa12](https://user-images.githubusercontent.com/61768866/75859922-e666dd00-5e35-11ea-8956-f1129716675d.png)
-### 收藏本页固定短网址：https://git.io/JvaVR
 
 ### 热点动态文章
 
