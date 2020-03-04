@@ -1,3 +1,8 @@
+### 明慧周报：大陆版（第七八六期）
+![image](https://user-images.githubusercontent.com/61768866/75846261-be1bb600-5e16-11ea-90e5-4501166d068f.png)
+![image](https://user-images.githubusercontent.com/61768866/75846286-d095ef80-5e16-11ea-9ec7-0e4b980b0049.png)
+![image](https://user-images.githubusercontent.com/61768866/75846322-eb686400-5e16-11ea-93a6-a3ce0757e030.png)
+![image](https://user-images.githubusercontent.com/61768866/75846340-f6bb8f80-5e16-11ea-807e-cc0cb7f2c0ab.png)
 ### 真相传单：美国政府决定制裁中国迫害法轮功者
 ![image](https://user-images.githubusercontent.com/61768866/75843272-bb689300-5e0d-11ea-8fda-4cc931c74942.png)
 ### 法轮功基本真相贴图
