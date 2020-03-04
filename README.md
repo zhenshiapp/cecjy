@@ -1,3 +1,5 @@
+# 宇闻分享
+![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/75858517-5b84e300-5e33-11ea-99dc-7e15150a8924.jpg)
 ### 热点动态文章
 
 [敬念“法轮大法好”出现的奇迹](https://github.com/Hongyu91/cecjy/issues/18#issue-575203951)
