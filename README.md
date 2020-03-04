@@ -1,3 +1,15 @@
+### 热点动态文章
+
+[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
+[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
+[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
+[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)
+[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898)
+[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
+[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)
+[贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
+[五家中共官媒被列为外国使团 孔子学院接连关闭](https://github.com/Hongyu91/cecjy/issues/17#issue-575198891)
+
 ### 精选文章
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
