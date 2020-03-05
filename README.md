@@ -6,6 +6,8 @@
 
 # 热点动态文章
 
+[活着的她被书记下令送殡仪馆　湖北女教师含冤离世](https://github.com/Hongyu91/cecjy/issues/28#issue-576078823)
+
 [火星男孩再次来地球 核武级灾难果然来临 ](https://github.com/Hongyu91/cecjy/issues/25#issue-576070364)
 
 [从历代皇帝的“罪己诏” 看共产恶党的邪恶](https://github.com/Hongyu91/cecjy/issues/26#issue-576073577)
@@ -17,8 +19,6 @@
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
 
 [邻居大娘念“法轮大法好”起死回生 ](https://github.com/Hongyu91/cecjy/issues/19#issue-575205030)
-
-[北京市昌平区警察骚扰张桂英](https://github.com/Hongyu91/cecjy/issues/20#issue-575205936)
 
 [遭冤狱十四年　哈尔滨市木兰县商贵民被迫害离世](https://github.com/Hongyu91/cecjy/issues/21#issue-575207365)
 
