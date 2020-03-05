@@ -8,13 +8,13 @@
 
 [火星男孩再次来地球 核武级灾难果然来临 ](https://github.com/Hongyu91/cecjy/issues/25#issue-576070364)
 
+[从历代皇帝的“罪己诏” 看共产恶党的邪恶](https://github.com/Hongyu91/cecjy/issues/26#issue-576073577)
+
 [天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
 
+[非典与藏字石](https://github.com/Hongyu91/cecjy/issues/27#issue-576075877)
+
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
-
-[五家中共官媒被列为外国使团 孔子学院接连关闭](https://github.com/Hongyu91/cecjy/issues/17#issue-575198891)
-
-[敬念“法轮大法好”出现的奇迹](https://github.com/Hongyu91/cecjy/issues/18#issue-575203951)
 
 [邻居大娘念“法轮大法好”起死回生 ](https://github.com/Hongyu91/cecjy/issues/19#issue-575205030)
 
