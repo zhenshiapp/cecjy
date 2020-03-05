@@ -6,6 +6,14 @@
 
 # 热点动态文章
 
+[火星男孩再次来地球 核武级灾难果然来临 ](https://github.com/Hongyu91/cecjy/issues/25#issue-576070364)
+
+[天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
+
+[贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
+
+[五家中共官媒被列为外国使团 孔子学院接连关闭](https://github.com/Hongyu91/cecjy/issues/17#issue-575198891)
+
 [敬念“法轮大法好”出现的奇迹](https://github.com/Hongyu91/cecjy/issues/18#issue-575203951)
 
 [邻居大娘念“法轮大法好”起死回生 ](https://github.com/Hongyu91/cecjy/issues/19#issue-575205030)
@@ -15,14 +23,6 @@
 [遭冤狱十四年　哈尔滨市木兰县商贵民被迫害离世](https://github.com/Hongyu91/cecjy/issues/21#issue-575207365)
 
 [迫害法轮功　湖北应城国保大队中队长何建设被举报](https://github.com/Hongyu91/cecjy/issues/22#issue-575208536)
-
-[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
-
-[周口市四十五岁副市长刘建武履职两天遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/23#issue-575209687)
-
-[贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
-
-[五家中共官媒被列为外国使团 孔子学院接连关闭](https://github.com/Hongyu91/cecjy/issues/17#issue-575198891)
 
 ![image](https://user-images.githubusercontent.com/61768866/75865830-1797db00-5e3f-11ea-859c-d7ff6f2e947d.png)
 
