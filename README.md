@@ -6,6 +6,9 @@
 
 # 热点动态文章
 
+
+[不为外界所动 ](https://github.com/Hongyu91/cecjy/issues/29#issue-576082014)
+
 [活着的她被书记下令送殡仪馆　湖北女教师含冤离世](https://github.com/Hongyu91/cecjy/issues/28#issue-576078823)
 
 [火星男孩再次来地球 核武级灾难果然来临 ](https://github.com/Hongyu91/cecjy/issues/25#issue-576070364)
@@ -19,8 +22,6 @@
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
 
 [邻居大娘念“法轮大法好”起死回生 ](https://github.com/Hongyu91/cecjy/issues/19#issue-575205030)
-
-[遭冤狱十四年　哈尔滨市木兰县商贵民被迫害离世](https://github.com/Hongyu91/cecjy/issues/21#issue-575207365)
 
 [迫害法轮功　湖北应城国保大队中队长何建设被举报](https://github.com/Hongyu91/cecjy/issues/22#issue-575208536)
 
