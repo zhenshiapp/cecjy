@@ -1,4 +1,4 @@
-# 归途驿站
+# 晓莲小站
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
@@ -24,8 +24,6 @@
 
 [天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
 
-![image](https://user-images.githubusercontent.com/61768866/76094198-2af0a500-5ffd-11ea-96fe-0ba2d9a5158c.png)
-
 #### 精选文章
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
@@ -48,8 +46,6 @@
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086)
 
-![image](https://user-images.githubusercontent.com/61768866/76094198-2af0a500-5ffd-11ea-96fe-0ba2d9a5158c.png)
-
 #### 收藏本页固定短网址：https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八七期）
@@ -71,7 +67,6 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843455-2a45ec00-5e0e-11ea-9776-bc56579dba9a.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
-![image](https://user-images.githubusercontent.com/61768866/75866660-537f7000-5e40-11ea-80d5-6075b9a9f40e.png)
 
 #### 收藏本页固定短网址：https://git.io/JvaVR
  
