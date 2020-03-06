@@ -6,6 +6,13 @@
 
 # 热点动态文章
 
+[谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
+
+[柏林墙倒塌之前　没人相信它会倒塌](https://github.com/Hongyu91/cecjy/issues/34#issue-576767984)
+
+[大陆法轮功学员用真相贴传播避疫良方](https://github.com/Hongyu91/cecjy/issues/35#issue-576771471)
+
+[甘肃省兰州市第一看守所四队队长刘润庆遭恶报猝死](https://github.com/Hongyu91/cecjy/issues/36#issue-576772718)
 
 [不为外界所动 ](https://github.com/Hongyu91/cecjy/issues/29#issue-576082014)
 
@@ -16,14 +23,6 @@
 [从历代皇帝的“罪己诏” 看共产恶党的邪恶](https://github.com/Hongyu91/cecjy/issues/26#issue-576073577)
 
 [天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
-
-[非典与藏字石](https://github.com/Hongyu91/cecjy/issues/27#issue-576075877)
-
-[贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004)
-
-[邻居大娘念“法轮大法好”起死回生 ](https://github.com/Hongyu91/cecjy/issues/19#issue-575205030)
-
-[迫害法轮功　湖北应城国保大队中队长何建设被举报](https://github.com/Hongyu91/cecjy/issues/22#issue-575208536)
 
 ![image](https://user-images.githubusercontent.com/61768866/75865830-1797db00-5e3f-11ea-859c-d7ff6f2e947d.png)
 
