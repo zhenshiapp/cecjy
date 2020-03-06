@@ -48,9 +48,7 @@
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086)
 
-![image](https://user-images.githubusercontent.com/61768866/75865830-1797db00-5e3f-11ea-859c-d7ff6f2e947d.png)
-
-![image](https://user-images.githubusercontent.com/61768866/75865830-1797db00-5e3f-11ea-859c-d7ff6f2e947d.png)
+![image](https://user-images.githubusercontent.com/61768866/76090618-d813ef00-5ff6-11ea-834a-118a5bd66837.png)
 
 # 收藏本页固定短网址：https://git.io/JvaVR
 
