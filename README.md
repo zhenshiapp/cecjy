@@ -1,7 +1,11 @@
 # 晓莲小站
+
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png
+
 #### 收藏本页固定短网址：https://git.io/JvaVR
+
 #### 热点动态文章
+
 [谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
 
 [柏林墙倒塌之前　没人相信它会倒塌](https://github.com/Hongyu91/cecjy/issues/34#issue-576767984)
@@ -19,7 +23,9 @@
 [从历代皇帝的“罪己诏” 看共产恶党的邪恶](https://github.com/Hongyu91/cecjy/issues/26#issue-576073577)
 
 [天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
+
 #### 主页选文
+
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
@@ -63,5 +69,4 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
 #### 收藏本页固定短网址：https://git.io/JvaVR
- 
 #### [返回主页](https://github.com/Hongyu91/cecjy)
