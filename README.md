@@ -22,7 +22,7 @@
 
 [天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
 
-![image](https://user-images.githubusercontent.com/61768866/75865830-1797db00-5e3f-11ea-859c-d7ff6f2e947d.png)
+![image](https://user-images.githubusercontent.com/61768866/76094198-2af0a500-5ffd-11ea-96fe-0ba2d9a5158c.png)
 
 # 精选文章
 
@@ -46,7 +46,7 @@
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086)
 
-![image](https://user-images.githubusercontent.com/61768866/76090618-d813ef00-5ff6-11ea-834a-118a5bd66837.png)
+![image](https://user-images.githubusercontent.com/61768866/76094198-2af0a500-5ffd-11ea-96fe-0ba2d9a5158c.png)
 
 # 收藏本页固定短网址：https://git.io/JvaVR
 
