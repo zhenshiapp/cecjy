@@ -1,6 +1,6 @@
 # 归途驿站
 
-![tlby1](https://user-images.githubusercontent.com/61768866/76094371-7e62f300-5ffd-11ea-9013-6a237649545a.jpg)
+![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
 # 热点动态文章
 
