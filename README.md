@@ -61,12 +61,12 @@
 
 # 收藏本页固定短网址：https://git.io/JvaVR
 
-# 明慧周报：大陆版（第七八六期）
- 
-![image](https://user-images.githubusercontent.com/61768866/75846261-be1bb600-5e16-11ea-90e5-4501166d068f.png)
-![image](https://user-images.githubusercontent.com/61768866/75846286-d095ef80-5e16-11ea-9ec7-0e4b980b0049.png)
-![image](https://user-images.githubusercontent.com/61768866/75846322-eb686400-5e16-11ea-93a6-a3ce0757e030.png)
-![image](https://user-images.githubusercontent.com/61768866/75846340-f6bb8f80-5e16-11ea-807e-cc0cb7f2c0ab.png)
+# 明慧周报：大陆版（第七八七期）
+
+![image](https://user-images.githubusercontent.com/61768866/76065949-9586ee00-5fc7-11ea-9960-2c6f14938027.png)
+![image](https://user-images.githubusercontent.com/61768866/76066019-af283580-5fc7-11ea-986f-7e3d3300b2e5.png)
+![image](https://user-images.githubusercontent.com/61768866/76066055-c36c3280-5fc7-11ea-9263-8c3cfbf2504f.png)
+![image](https://user-images.githubusercontent.com/61768866/76066096-daab2000-5fc7-11ea-95ed-8ddd564f5764.png)
 
 # 真相传单：美国政府决定制裁中国迫害法轮功者
 
