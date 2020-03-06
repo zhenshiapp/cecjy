@@ -2,7 +2,9 @@
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
-# 热点动态文章
+#### 收藏本页固定短网址：https://git.io/JvaVR
+
+#### 热点动态文章
 
 [谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
 
@@ -24,7 +26,7 @@
 
 ![image](https://user-images.githubusercontent.com/61768866/76094198-2af0a500-5ffd-11ea-96fe-0ba2d9a5158c.png)
 
-# 精选文章
+#### 精选文章
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
@@ -48,7 +50,7 @@
 
 ![image](https://user-images.githubusercontent.com/61768866/76094198-2af0a500-5ffd-11ea-96fe-0ba2d9a5158c.png)
 
-# 收藏本页固定短网址：https://git.io/JvaVR
+#### 收藏本页固定短网址：https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八七期）
 
@@ -57,11 +59,11 @@
 ![image](https://user-images.githubusercontent.com/61768866/76066055-c36c3280-5fc7-11ea-9263-8c3cfbf2504f.png)
 ![image](https://user-images.githubusercontent.com/61768866/76066096-daab2000-5fc7-11ea-95ed-8ddd564f5764.png)
 
-# 真相传单：美国政府决定制裁中国迫害法轮功者
+#### 真相传单：美国政府决定制裁中国迫害法轮功者
 
 ![image](https://user-images.githubusercontent.com/61768866/75843272-bb689300-5e0d-11ea-8fda-4cc931c74942.png)
 
-# 法轮功基本真相贴图
+#### 法轮功基本真相贴图
  
 ![image](https://user-images.githubusercontent.com/61768866/75843311-d6d39e00-5e0d-11ea-97ce-91d578dc452d.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843362-ef43b880-5e0d-11ea-8783-74f0aed401da.png)
@@ -71,6 +73,6 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 ![image](https://user-images.githubusercontent.com/61768866/75866660-537f7000-5e40-11ea-80d5-6075b9a9f40e.png)
 
-# 收藏本页固定短网址：https://git.io/JvaVR
+#### 收藏本页固定短网址：https://git.io/JvaVR
  
-# [返回主页](https://github.com/Hongyu91/cecjy)
+#### [返回主页](https://github.com/Hongyu91/cecjy)
