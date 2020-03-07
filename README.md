@@ -6,6 +6,12 @@
 
 #### 热点动态文章
 
+[中国再被列为“不自由”国家](https://github.com/Hongyu91/cecjy/issues/42#issue-577300034)
+
+[被封武汉的孩子诚念“法轮大法好”受益](https://github.com/Hongyu91/cecjy/issues/44#issue-577300472)
+
+[大疫中觉醒　三退保平安](https://github.com/Hongyu91/cecjy/issues/43#issue-577300293)
+
 [谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
 
 [柏林墙倒塌之前　没人相信它会倒塌](https://github.com/Hongyu91/cecjy/issues/34#issue-576767984)
@@ -17,12 +23,6 @@
 [不为外界所动 ](https://github.com/Hongyu91/cecjy/issues/29#issue-576082014)
 
 [活着的她被书记下令送殡仪馆　湖北女教师含冤离世](https://github.com/Hongyu91/cecjy/issues/28#issue-576078823)
-
-[火星男孩再次来地球 核武级灾难果然来临 ](https://github.com/Hongyu91/cecjy/issues/25#issue-576070364)
-
-[从历代皇帝的“罪己诏” 看共产恶党的邪恶](https://github.com/Hongyu91/cecjy/issues/26#issue-576073577)
-
-[天灭中共之神的慈悲与威严](https://github.com/Hongyu91/cecjy/issues/24#issue-576068700)
 
 #### 主页选文
 
