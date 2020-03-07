@@ -6,6 +6,8 @@
 
 #### 热点动态文章
 
+[从《SARS——远远不仅是病毒》说起](https://github.com/Hongyu91/cecjy/issues/46#issue-577302940)
+
 [中国再被列为“不自由”国家](https://github.com/Hongyu91/cecjy/issues/42#issue-577300034)
 
 [被封武汉的孩子诚念“法轮大法好”受益](https://github.com/Hongyu91/cecjy/issues/44#issue-577300472)
@@ -15,8 +17,6 @@
 [谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
 
 [柏林墙倒塌之前　没人相信它会倒塌](https://github.com/Hongyu91/cecjy/issues/34#issue-576767984)
-
-[大陆法轮功学员用真相贴传播避疫良方](https://github.com/Hongyu91/cecjy/issues/35#issue-576771471)
 
 [甘肃省兰州市第一看守所四队队长刘润庆遭恶报猝死](https://github.com/Hongyu91/cecjy/issues/36#issue-576772718)
 
