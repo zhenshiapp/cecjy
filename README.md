@@ -6,6 +6,14 @@
 
 #### 热点动态文章
 
+[发表郑重声明后　抑郁症消失了](https://github.com/Hongyu91/cecjy/issues/47#issue-577458068)
+
+[从一无所有到百万富翁](https://github.com/Hongyu91/cecjy/issues/48#issue-577458384)
+
+[台湾中大教授：《转法轮》启发研究思路](https://github.com/Hongyu91/cecjy/issues/49#issue-577458729)
+
+[内蒙古多伦县国保队长张宏斌对法轮功学员的迫害 ](https://github.com/Hongyu91/cecjy/issues/50#issue-577458919)
+
 [从《SARS——远远不仅是病毒》说起](https://github.com/Hongyu91/cecjy/issues/46#issue-577302940)
 
 [中国再被列为“不自由”国家](https://github.com/Hongyu91/cecjy/issues/42#issue-577300034)
@@ -15,14 +23,6 @@
 [大疫中觉醒　三退保平安](https://github.com/Hongyu91/cecjy/issues/43#issue-577300293)
 
 [谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
-
-[柏林墙倒塌之前　没人相信它会倒塌](https://github.com/Hongyu91/cecjy/issues/34#issue-576767984)
-
-[甘肃省兰州市第一看守所四队队长刘润庆遭恶报猝死](https://github.com/Hongyu91/cecjy/issues/36#issue-576772718)
-
-[不为外界所动 ](https://github.com/Hongyu91/cecjy/issues/29#issue-576082014)
-
-[活着的她被书记下令送殡仪馆　湖北女教师含冤离世](https://github.com/Hongyu91/cecjy/issues/28#issue-576078823)
 
 #### 主页选文
 
