@@ -6,6 +6,16 @@
 
 #### 热点动态文章
 
+[为了一次地震 冥界准备了五十年](https://github.com/Hongyu91/cecjy/issues/55#issue-577709468)
+
+[分享《太白山刘伯温碑记》的更多内涵](https://github.com/Hongyu91/cecjy/issues/53#issue-577706635)
+
+[诚念“法轮大法好”得福报故事三则](https://github.com/Hongyu91/cecjy/issues/54#issue-577707766)
+
+[吉林和龙市冯梅遭受的惨无人道迫害](https://github.com/Hongyu91/cecjy/issues/56#issue-577710544)
+
+[原哈尔滨市副市长贾剑涛被判刑10年](https://github.com/Hongyu91/cecjy/issues/57#issue-577711414)
+
 [发表郑重声明后　抑郁症消失了](https://github.com/Hongyu91/cecjy/issues/47#issue-577458068)
 
 [从一无所有到百万富翁](https://github.com/Hongyu91/cecjy/issues/48#issue-577458384)
@@ -13,16 +23,6 @@
 [台湾中大教授：《转法轮》启发研究思路](https://github.com/Hongyu91/cecjy/issues/49#issue-577458729)
 
 [内蒙古多伦县国保队长张宏斌对法轮功学员的迫害 ](https://github.com/Hongyu91/cecjy/issues/50#issue-577458919)
-
-[从《SARS——远远不仅是病毒》说起](https://github.com/Hongyu91/cecjy/issues/46#issue-577302940)
-
-[中国再被列为“不自由”国家](https://github.com/Hongyu91/cecjy/issues/42#issue-577300034)
-
-[被封武汉的孩子诚念“法轮大法好”受益](https://github.com/Hongyu91/cecjy/issues/44#issue-577300472)
-
-[大疫中觉醒　三退保平安](https://github.com/Hongyu91/cecjy/issues/43#issue-577300293)
-
-[谁在拿百姓的性命做赌注](https://github.com/Hongyu91/cecjy/issues/33#issue-576765922)
 
 #### 主页选文
 
