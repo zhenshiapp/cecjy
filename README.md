@@ -6,6 +6,14 @@
 
 #### 热点动态文章
 
+[喊“法轮大法好”，业力水泡着的人活了](https://github.com/Hongyu91/cecjy/issues/59#issue-578381067)
+
+[大疫当前当局进一步加强对民众的管控](https://github.com/Hongyu91/cecjy/issues/60#issue-578382803)
+
+[七年冤狱生命垂危　朝阳市林桂芝被迫害离世](https://github.com/Hongyu91/cecjy/issues/61#issue-578383627)
+
+[现世现报案例三则](https://github.com/Hongyu91/cecjy/issues/62#issue-578384478)
+
 [为了一次地震 冥界准备了五十年](https://github.com/Hongyu91/cecjy/issues/55#issue-577709468)
 
 [分享《太白山刘伯温碑记》的更多内涵](https://github.com/Hongyu91/cecjy/issues/53#issue-577706635)
@@ -15,14 +23,6 @@
 [吉林和龙市冯梅遭受的惨无人道迫害](https://github.com/Hongyu91/cecjy/issues/56#issue-577710544)
 
 [原哈尔滨市副市长贾剑涛被判刑10年](https://github.com/Hongyu91/cecjy/issues/57#issue-577711414)
-
-[发表郑重声明后　抑郁症消失了](https://github.com/Hongyu91/cecjy/issues/47#issue-577458068)
-
-[从一无所有到百万富翁](https://github.com/Hongyu91/cecjy/issues/48#issue-577458384)
-
-[台湾中大教授：《转法轮》启发研究思路](https://github.com/Hongyu91/cecjy/issues/49#issue-577458729)
-
-[内蒙古多伦县国保队长张宏斌对法轮功学员的迫害 ](https://github.com/Hongyu91/cecjy/issues/50#issue-577458919)
 
 #### 主页选文
 
