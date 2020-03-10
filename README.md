@@ -50,6 +50,7 @@
 
 #### 推荐下载最新翻墙软件
 
+[自 由 门7.76版 电脑版](https://github.com/Hongyu91/cecjy/files/4312356/fg776p.zip) |
 [无界 浏览 电脑板](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
 [爱博电视 电脑板](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [无界一点通安卓版](https://github.com/Hongyu91/cecjy/files/4312288/um.zip) |
