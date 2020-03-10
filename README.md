@@ -45,13 +45,16 @@
 [不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722) |
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086) |
+[翻墙部落](https://git.io/urfos) |
 [网门](https://github.com/odoor2/oo/blob/master/README.md)
 
-#### 自由天空
+#### 推荐下载最新版
 
-兼听则明，偏信则暗！下载翻墙软件可以让你了解国内外的真实讯息。
-
-
+[无界 浏览电脑板](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) |
+[爱博电视电脑板](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
+[无界一点通安卓版](https://github.com/Hongyu91/cecjy/files/4312288/um.zip) |
+[希望之声安卓版](https://github.com/Hongyu91/cecjy/files/4312282/oHopea.zip) |
+[网门安卓版](https://github.com/Hongyu91/cecjy/files/4312289/oGate.zip)
 
 #### 请收藏本站到您的浏览器：https://git.io/JvaVR
 
