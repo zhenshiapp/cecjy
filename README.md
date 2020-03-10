@@ -50,8 +50,8 @@
 
 #### 推荐下载最新版
 
-[无界 浏览电脑板](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) |
-[爱博电视电脑板](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
+[无界 浏览 电脑板](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
+[爱博电视 电脑板](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [无界一点通安卓版](https://github.com/Hongyu91/cecjy/files/4312288/um.zip) |
 [希望之声安卓版](https://github.com/Hongyu91/cecjy/files/4312282/oHopea.zip) |
 [网门安卓版](https://github.com/Hongyu91/cecjy/files/4312289/oGate.zip)
