@@ -6,6 +6,8 @@
 
 #### 热点动态文章
 
+[佛州人权理事会主席谴责中共活摘器官 ](https://github.com/Hongyu91/cecjy/issues/65#issue-578396672)
+
 [喊“法轮大法好”，业力水泡着的人活了](https://github.com/Hongyu91/cecjy/issues/59#issue-578381067)
 
 [大疫当前当局进一步加强对民众的管控](https://github.com/Hongyu91/cecjy/issues/60#issue-578382803)
@@ -17,8 +19,6 @@
 [为了一次地震 冥界准备了五十年](https://github.com/Hongyu91/cecjy/issues/55#issue-577709468)
 
 [分享《太白山刘伯温碑记》的更多内涵](https://github.com/Hongyu91/cecjy/issues/53#issue-577706635)
-
-[诚念“法轮大法好”得福报故事三则](https://github.com/Hongyu91/cecjy/issues/54#issue-577707766)
 
 [吉林和龙市冯梅遭受的惨无人道迫害](https://github.com/Hongyu91/cecjy/issues/56#issue-577710544)
 
