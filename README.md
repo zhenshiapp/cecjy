@@ -47,6 +47,12 @@
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086) |
 [网门](https://github.com/odoor2/oo/blob/master/README.md)
 
+#### 自由天空
+
+兼听则明，偏信则暗！翻墙软件可以让你了解国内外的真实讯息。
+
+
+
 #### 请收藏本站到您的浏览器：https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八七期）
