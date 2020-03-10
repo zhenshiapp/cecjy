@@ -48,7 +48,7 @@
 [翻墙部落](https://git.io/urfos) |
 [网门](https://github.com/odoor2/oo/blob/master/README.md)
 
-#### 推荐下载最新版
+#### 推荐下载最新翻墙软件
 
 [无界 浏览 电脑板](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
 [爱博电视 电脑板](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
