@@ -69,6 +69,7 @@
 [![tbj2](https://user-images.githubusercontent.com/61768866/76384391-a9509c80-6399-11ea-96d4-188ebc58a8df.png)](https://github.com/Hongyu91/cecjy/files/4316120/default.zip)
 [![tjb3](https://user-images.githubusercontent.com/61768866/76384662-85da2180-639a-11ea-9399-38ecc02667c3.png)](https://github.com/Hongyu91/cecjy/files/4316148/default.zip)
 [![tjb4](https://user-images.githubusercontent.com/61768866/76384988-76a7a380-639b-11ea-877c-5972040fa56f.png)](https://github.com/Hongyu91/cecjy/files/4316165/default.zip)
+[![tjp5](https://user-images.githubusercontent.com/61768866/76385451-a3a88600-639c-11ea-9226-034e2d235c6f.png)](https://github.com/Hongyu91/cecjy/files/4316204/default.zip)
 
 #### 请收藏本站到您的浏览器：https://git.io/JvaVR
 
