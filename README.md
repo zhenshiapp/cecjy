@@ -63,11 +63,9 @@
 ![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
 ![fqcy12](https://user-images.githubusercontent.com/61768866/76378266-fb88c200-6387-11ea-908a-6a87a1f7d387.png)
 
-#### 推荐优质电子书下载（点击文字和图片下载）
+#### 推荐优质电子书下载
 
-##### 提示：电脑用户下载解压后直接能阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
-
-##### 点击下载：[Chm Reader X_阅读器](https://github.com/Hongyu91/cecjy/files/4318231/Chm.Reader.X_.com.zip)
+##### 点文字下载
 
 [法輪大法真相](https://github.com/Hongyu91/cecjy/files/4318121/default.zip) |
 [憶師恩](https://github.com/Hongyu91/cecjy/files/4318160/default.zip) |
@@ -76,6 +74,12 @@
 [驚天黑幕](https://github.com/Hongyu91/cecjy/files/4318143/default.zip) |
 [江泽民其人](https://github.com/Hongyu91/cecjy/files/4318148/default.zip) |
 [全球公審江澤民](https://github.com/Hongyu91/cecjy/files/4318152/default.zip)
+
+##### 提示：电脑用户下载解压后直接能阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
+
+##### 点击下载手机阅读器：[Chm Reader X_阅读器](https://github.com/Hongyu91/cecjy/files/4318231/Chm.Reader.X_.com.zip)
+
+##### 点图片下载
 
 [![tbj1](https://user-images.githubusercontent.com/61768866/76383943-722dbb80-6398-11ea-8a40-50443e8441ae.png)](https://github.com/Hongyu91/cecjy/files/4316018/default.zip)
 [![tbj2](https://user-images.githubusercontent.com/61768866/76384391-a9509c80-6399-11ea-96d4-188ebc58a8df.png)](https://github.com/Hongyu91/cecjy/files/4316120/default.zip)
