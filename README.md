@@ -83,6 +83,7 @@
 [![tjp16](https://user-images.githubusercontent.com/61768866/76389935-6a294800-63a7-11ea-8034-1ca7979ff528.png)](https://github.com/Hongyu91/cecjy/files/4316455/default.zip)
 [![tjp17](https://user-images.githubusercontent.com/61768866/76390380-44507300-63a8-11ea-97c6-c55a5f09185a.png)](https://github.com/Hongyu91/cecjy/files/4316483/default.zip)
 [![tjp18](https://user-images.githubusercontent.com/61768866/76390774-f5570d80-63a8-11ea-8e01-fb77a91ffdfd.png)](https://github.com/Hongyu91/cecjy/files/4316498/default.zip)
+[![tjp19](https://user-images.githubusercontent.com/61768866/76391059-90e87e00-63a9-11ea-9cb8-f46029a54747.png)](https://github.com/Hongyu91/cecjy/files/4316510/default.zip)
 #### 请收藏本站到您的浏览器：https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八七期）
