@@ -77,7 +77,8 @@
 
 ##### 提示：电脑用户下载解压后直接能阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
 
-##### 点击下载手机阅读器：[Chm Reader X_阅读器](https://github.com/Hongyu91/cecjy/files/4318231/Chm.Reader.X_.com.zip)手机阅读器要找到下载文件的位置后才能打开它。
+##### 点击下载手机阅读器：[Chm Reader X_阅读器](https://github.com/Hongyu91/cecjy/files/4318231/Chm.Reader.X_.com.zip)
+##### 手机阅读器要找到下载文件的位置后才能打开它，就是从阅读器那而操作去打开解压后的电子书文件。
 
 ##### 点图片下载
 
