@@ -6,6 +6,14 @@
 
 #### 热点动态文章
 
+[瘟疫可怕 谎言揭开 生命有救](https://github.com/Hongyu91/cecjy/issues/67#issue-579096638)
+
+[婚姻与恩义](https://github.com/Hongyu91/cecjy/issues/68#issue-579098394)
+
+[武汉疫情:中共特别“透明” 谁能核实?](https://github.com/Hongyu91/cecjy/issues/69#issue-579099630)
+
+[诚念“九字真言”　高龄母亲两次化解危难](https://github.com/Hongyu91/cecjy/issues/70#issue-579100550)
+
 [佛州人权理事会主席谴责中共活摘器官 ](https://github.com/Hongyu91/cecjy/issues/65#issue-578396672)
 
 [喊“法轮大法好”，业力水泡着的人活了](https://github.com/Hongyu91/cecjy/issues/59#issue-578381067)
@@ -15,14 +23,6 @@
 [七年冤狱生命垂危　朝阳市林桂芝被迫害离世](https://github.com/Hongyu91/cecjy/issues/61#issue-578383627)
 
 [现世现报案例三则](https://github.com/Hongyu91/cecjy/issues/62#issue-578384478)
-
-[为了一次地震 冥界准备了五十年](https://github.com/Hongyu91/cecjy/issues/55#issue-577709468)
-
-[分享《太白山刘伯温碑记》的更多内涵](https://github.com/Hongyu91/cecjy/issues/53#issue-577706635)
-
-[吉林和龙市冯梅遭受的惨无人道迫害](https://github.com/Hongyu91/cecjy/issues/56#issue-577710544)
-
-[原哈尔滨市副市长贾剑涛被判刑10年](https://github.com/Hongyu91/cecjy/issues/57#issue-577711414)
 
 #### 主页选文
 
