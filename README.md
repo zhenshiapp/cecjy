@@ -79,6 +79,7 @@
 ![image](https://user-images.githubusercontent.com/61768866/76066055-c36c3280-5fc7-11ea-9263-8c3cfbf2504f.png)
 ![image](https://user-images.githubusercontent.com/61768866/76066096-daab2000-5fc7-11ea-95ed-8ddd564f5764.png)
 [![tjb4](https://user-images.githubusercontent.com/61768866/76384988-76a7a380-639b-11ea-877c-5972040fa56f.png)](https://github.com/Hongyu91/cecjy/files/4316165/default.zip)
+[![tjp5](https://user-images.githubusercontent.com/61768866/76385451-a3a88600-639c-11ea-9226-034e2d235c6f.png)](https://github.com/Hongyu91/cecjy/files/4316204/default.zip)
 
 #### 真相传单：美国政府决定制裁中国迫害法轮功者
 
