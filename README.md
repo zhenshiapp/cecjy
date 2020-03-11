@@ -58,6 +58,13 @@
 [希望之声安卓版](https://github.com/Hongyu91/cecjy/files/4312282/oHopea.zip) |
 [网门安卓版](https://github.com/Hongyu91/cecjy/files/4312289/oGate.zip)
 
+#### 二维条码下载翻墙软件
+
+![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
+![fqcy12](https://user-images.githubusercontent.com/61768866/76378266-fb88c200-6387-11ea-908a-6a87a1f7d387.png)
+
+
+
 #### 请收藏本站到您的浏览器：https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八七期）
