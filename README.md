@@ -6,6 +6,8 @@
 
 #### 热点动态文章
 
+[上海市善良市民田辉被非法批捕](https://github.com/Hongyu91/cecjy/issues/72#issue-579113022)
+
 [瘟疫可怕 谎言揭开 生命有救](https://github.com/Hongyu91/cecjy/issues/67#issue-579096638)
 
 [婚姻与恩义](https://github.com/Hongyu91/cecjy/issues/68#issue-579098394)
@@ -17,8 +19,6 @@
 [佛州人权理事会主席谴责中共活摘器官 ](https://github.com/Hongyu91/cecjy/issues/65#issue-578396672)
 
 [喊“法轮大法好”，业力水泡着的人活了](https://github.com/Hongyu91/cecjy/issues/59#issue-578381067)
-
-[大疫当前当局进一步加强对民众的管控](https://github.com/Hongyu91/cecjy/issues/60#issue-578382803)
 
 [七年冤狱生命垂危　朝阳市林桂芝被迫害离世](https://github.com/Hongyu91/cecjy/issues/61#issue-578383627)
 
