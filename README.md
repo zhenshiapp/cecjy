@@ -63,9 +63,9 @@
 ![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
 ![fqcy12](https://user-images.githubusercontent.com/61768866/76378266-fb88c200-6387-11ea-908a-6a87a1f7d387.png)
 
-#### 推荐优质电子书下载（电脑版）
+#### 推荐优质电子书下载（电脑版点击图片下载）
 
-[法轮大法是真正的科学](https://github.com/Hongyu91/cecjy/files/4316018/default.zip)
+[![tbj1](https://user-images.githubusercontent.com/61768866/76383943-722dbb80-6398-11ea-8a40-50443e8441ae.png)](https://github.com/Hongyu91/cecjy/files/4316018/default.zip)
 
 
 
