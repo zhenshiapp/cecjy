@@ -51,8 +51,8 @@
 #### 推荐下载最新翻墙软件
 
 [自 由 门7.76版 电脑版](https://github.com/Hongyu91/cecjy/files/4312356/fg776p.zip) |
-[无界 浏览 电脑板](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
-[爱博电视 电脑板](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
+[无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
+[爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [自由门安卓版](https://github.com/Hongyu91/cecjy/files/4315538/fgma.zip) |
 [无界一点通安卓版](https://github.com/Hongyu91/cecjy/files/4312288/um.zip) |
 [希望之声安卓版](https://github.com/Hongyu91/cecjy/files/4312282/oHopea.zip) |
@@ -62,6 +62,10 @@
 
 ![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
 ![fqcy12](https://user-images.githubusercontent.com/61768866/76378266-fb88c200-6387-11ea-908a-6a87a1f7d387.png)
+
+#### 推荐优质电子书下载
+1.电脑版下载
+[法轮大法是真正的科学.zip](https://github.com/Hongyu91/cecjy/files/4316018/default.zip)
 
 
 
