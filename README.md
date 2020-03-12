@@ -6,6 +6,8 @@
 
 #### 热点动态文章
 
+[美国人权报告　多次提中共迫害法轮功 ](https://github.com/Hongyu91/cecjy/issues/82#issue-579771829)
+
 [武汉市第一看守所仍在酷刑迫害法轮功学员](https://github.com/Hongyu91/cecjy/issues/81#issue-579765632)
 
 [世人啊，千万不要错过得救的机缘！](https://github.com/Hongyu91/cecjy/issues/75#issue-579740449)
@@ -15,8 +17,6 @@
 [诗歌：为何依然相信](https://github.com/Hongyu91/cecjy/issues/77#issue-579745851)
 
 [四川古蔺县社保局对法轮功学员胡彪的经济迫害](https://github.com/Hongyu91/cecjy/issues/78#issue-579747592)
-
-[上海市善良市民田辉被非法批捕](https://github.com/Hongyu91/cecjy/issues/72#issue-579113022)
 
 [瘟疫可怕 谎言揭开 生命有救](https://github.com/Hongyu91/cecjy/issues/67#issue-579096638)
 
