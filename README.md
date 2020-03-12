@@ -6,6 +6,14 @@
 
 #### 热点动态文章
 
+[世人啊，千万不要错过得救的机缘！](https://github.com/Hongyu91/cecjy/issues/75#issue-579740449)
+
+[中国新冠疫情是怎么“消失”的？](https://github.com/Hongyu91/cecjy/issues/76#issue-579742134)
+
+[诗歌：为何依然相信](https://github.com/Hongyu91/cecjy/issues/77#issue-579745851)
+
+[四川古蔺县社保局对法轮功学员胡彪的经济迫害](https://github.com/Hongyu91/cecjy/issues/78#issue-579747592)
+
 [上海市善良市民田辉被非法批捕](https://github.com/Hongyu91/cecjy/issues/72#issue-579113022)
 
 [瘟疫可怕 谎言揭开 生命有救](https://github.com/Hongyu91/cecjy/issues/67#issue-579096638)
@@ -15,14 +23,6 @@
 [武汉疫情:中共特别“透明” 谁能核实?](https://github.com/Hongyu91/cecjy/issues/69#issue-579099630)
 
 [诚念“九字真言”　高龄母亲两次化解危难](https://github.com/Hongyu91/cecjy/issues/70#issue-579100550)
-
-[佛州人权理事会主席谴责中共活摘器官 ](https://github.com/Hongyu91/cecjy/issues/65#issue-578396672)
-
-[喊“法轮大法好”，业力水泡着的人活了](https://github.com/Hongyu91/cecjy/issues/59#issue-578381067)
-
-[七年冤狱生命垂危　朝阳市林桂芝被迫害离世](https://github.com/Hongyu91/cecjy/issues/61#issue-578383627)
-
-[现世现报案例三则](https://github.com/Hongyu91/cecjy/issues/62#issue-578384478)
 
 #### 主页选文
 
