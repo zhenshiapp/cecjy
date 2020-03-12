@@ -6,6 +6,8 @@
 
 #### 热点动态文章
 
+[武汉市第一看守所仍在酷刑迫害法轮功学员](https://github.com/Hongyu91/cecjy/issues/81#issue-579765632)
+
 [世人啊，千万不要错过得救的机缘！](https://github.com/Hongyu91/cecjy/issues/75#issue-579740449)
 
 [中国新冠疫情是怎么“消失”的？](https://github.com/Hongyu91/cecjy/issues/76#issue-579742134)
@@ -17,8 +19,6 @@
 [上海市善良市民田辉被非法批捕](https://github.com/Hongyu91/cecjy/issues/72#issue-579113022)
 
 [瘟疫可怕 谎言揭开 生命有救](https://github.com/Hongyu91/cecjy/issues/67#issue-579096638)
-
-[婚姻与恩义](https://github.com/Hongyu91/cecjy/issues/68#issue-579098394)
 
 [武汉疫情:中共特别“透明” 谁能核实?](https://github.com/Hongyu91/cecjy/issues/69#issue-579099630)
 
