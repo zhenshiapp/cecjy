@@ -6,6 +6,14 @@
 
 #### 热点动态文章
 
+[明白真相，拒绝中共才是当今人类的真正出路](https://github.com/Hongyu91/cecjy/issues/84#issue-580417689)
+
+[武汉病毒针对共产党而来](https://github.com/Hongyu91/cecjy/issues/85#issue-580419373)
+
+[操控疫情数据　中共预报未来几天都是零病例](https://github.com/Hongyu91/cecjy/issues/86#issue-580422916)
+
+[人的命运如何　只看对大法的态度](https://github.com/Hongyu91/cecjy/issues/87#issue-580423871)
+
 [美国人权报告　多次提中共迫害法轮功 ](https://github.com/Hongyu91/cecjy/issues/82#issue-579771829)
 
 [武汉市第一看守所仍在酷刑迫害法轮功学员](https://github.com/Hongyu91/cecjy/issues/81#issue-579765632)
@@ -15,14 +23,6 @@
 [中国新冠疫情是怎么“消失”的？](https://github.com/Hongyu91/cecjy/issues/76#issue-579742134)
 
 [诗歌：为何依然相信](https://github.com/Hongyu91/cecjy/issues/77#issue-579745851)
-
-[四川古蔺县社保局对法轮功学员胡彪的经济迫害](https://github.com/Hongyu91/cecjy/issues/78#issue-579747592)
-
-[瘟疫可怕 谎言揭开 生命有救](https://github.com/Hongyu91/cecjy/issues/67#issue-579096638)
-
-[武汉疫情:中共特别“透明” 谁能核实?](https://github.com/Hongyu91/cecjy/issues/69#issue-579099630)
-
-[诚念“九字真言”　高龄母亲两次化解危难](https://github.com/Hongyu91/cecjy/issues/70#issue-579100550)
 
 #### 主页选文
 
