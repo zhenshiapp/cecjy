@@ -103,12 +103,12 @@
 [![tjp20](https://user-images.githubusercontent.com/61768866/76391338-474c6300-63aa-11ea-8340-aea4818ed27d.png)](https://github.com/Hongyu91/cecjy/files/4316526/default.zip)
 #### 请收藏本站到您的浏览器：https://git.io/JvaVR
 
-# 明慧周报：大陆版（第七八七期）
+# 明慧周报：大陆版（第七八八期）
 
-![image](https://user-images.githubusercontent.com/61768866/76065949-9586ee00-5fc7-11ea-9960-2c6f14938027.png)
-![image](https://user-images.githubusercontent.com/61768866/76066019-af283580-5fc7-11ea-986f-7e3d3300b2e5.png)
-![image](https://user-images.githubusercontent.com/61768866/76066055-c36c3280-5fc7-11ea-9263-8c3cfbf2504f.png)
-![image](https://user-images.githubusercontent.com/61768866/76066096-daab2000-5fc7-11ea-95ed-8ddd564f5764.png)
+![image](https://user-images.githubusercontent.com/61768866/76600186-5e718900-6541-11ea-9bba-5bd34d7f46ec.png)
+![image](https://user-images.githubusercontent.com/61768866/76600237-78ab6700-6541-11ea-95e5-69193f44e7ff.png)
+![image](https://user-images.githubusercontent.com/61768866/76600285-8fea5480-6541-11ea-9179-915a64d1c721.png)
+![image](https://user-images.githubusercontent.com/61768866/76600311-a2648e00-6541-11ea-84d8-f17296bda219.png)
 
 #### 真相传单：美国政府决定制裁中国迫害法轮功者
 
