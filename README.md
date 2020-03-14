@@ -6,6 +6,12 @@
 
 #### 热点动态文章
 
+[中共将暴力执行到家　将谎言进行到底](https://github.com/Hongyu91/cecjy/issues/90#issue-581078534)
+
+[武汉疫情“即将胜利”的背后](https://github.com/Hongyu91/cecjy/issues/91#issue-581079622)
+
+[武汉肺炎：武汉整村隔离的处理](https://github.com/Hongyu91/cecjy/issues/92#issue-581080386)
+
 [明白真相，拒绝中共才是当今人类的真正出路](https://github.com/Hongyu91/cecjy/issues/84#issue-580417689)
 
 [武汉病毒针对共产党而来](https://github.com/Hongyu91/cecjy/issues/85#issue-580419373)
@@ -17,12 +23,6 @@
 [美国人权报告　多次提中共迫害法轮功 ](https://github.com/Hongyu91/cecjy/issues/82#issue-579771829)
 
 [武汉市第一看守所仍在酷刑迫害法轮功学员](https://github.com/Hongyu91/cecjy/issues/81#issue-579765632)
-
-[世人啊，千万不要错过得救的机缘！](https://github.com/Hongyu91/cecjy/issues/75#issue-579740449)
-
-[中国新冠疫情是怎么“消失”的？](https://github.com/Hongyu91/cecjy/issues/76#issue-579742134)
-
-[诗歌：为何依然相信](https://github.com/Hongyu91/cecjy/issues/77#issue-579745851)
 
 #### 主页选文
 
