@@ -6,7 +6,7 @@
 
 #### 热点动态文章
 
-[中共将暴力执行到家　将谎言进行到底](https://github.com/Hongyu91/cecjy/issues/90#issue-581078534)
+[武汉新确诊患者被自行隔离 保持零病例](https://github.com/Hongyu91/cecjy/issues/90#issue-581078534)
 
 [武汉疫情“即将胜利”的背后](https://github.com/Hongyu91/cecjy/issues/91#issue-581079622)
 
