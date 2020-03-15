@@ -6,6 +6,16 @@
 
 #### 热点动态文章
 
+[洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478)
+
+[如果美国爆发大规模疫情”](https://github.com/Hongyu91/cecjy/issues/95#issue-581566762)
+
+[病毒像镜子 照出中共原型](https://github.com/Hongyu91/cecjy/issues/96#issue-581567599)
+
+[北京王晶晶遭绑架　警察：“法轮功啊，不收”](https://github.com/Hongyu91/cecjy/issues/97#issue-581568530)
+
+[被迫害致残　湖南衡阳市肖美君含冤离世](https://github.com/Hongyu91/cecjy/issues/98#issue-581569178)
+
 [武汉新确诊患者被自行隔离 保持零病例](https://github.com/Hongyu91/cecjy/issues/90#issue-581078534)
 
 [武汉疫情“即将胜利”的背后](https://github.com/Hongyu91/cecjy/issues/91#issue-581079622)
@@ -14,18 +24,9 @@
 
 [明白真相，拒绝中共才是当今人类的真正出路](https://github.com/Hongyu91/cecjy/issues/84#issue-580417689)
 
-[武汉病毒针对共产党而来](https://github.com/Hongyu91/cecjy/issues/85#issue-580419373)
-
-[操控疫情数据　中共预报未来几天都是零病例](https://github.com/Hongyu91/cecjy/issues/86#issue-580422916)
-
-[人的命运如何　只看对大法的态度](https://github.com/Hongyu91/cecjy/issues/87#issue-580423871)
-
-[美国人权报告　多次提中共迫害法轮功 ](https://github.com/Hongyu91/cecjy/issues/82#issue-579771829)
-
-[武汉市第一看守所仍在酷刑迫害法轮功学员](https://github.com/Hongyu91/cecjy/issues/81#issue-579765632)
-
 #### 主页选文
 
+[洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
