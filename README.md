@@ -27,6 +27,9 @@
 #### 主页选文
 
 [洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
+[不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722) |
+[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
+
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
@@ -42,9 +45,7 @@
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
-
-[不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722) |
-[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
+ 
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086) |
 [翻墙部落](https://git.io/urfos) |
 [网门](https://github.com/odoor2/oo/blob/master/README.md)
