@@ -6,6 +6,14 @@
 
 #### 热点动态文章
 
+[天灾也有前因后果](https://github.com/Hongyu91/cecjy/issues/126#issue-584214481)
+
+[大疫催人醒](https://github.com/Hongyu91/cecjy/issues/128#issue-584217331)
+
+[两武汉医生患武汉肺炎　数日康复](https://github.com/Hongyu91/cecjy/issues/127#issue-584215779
+
+[现在不退 更待何时](https://github.com/Hongyu91/cecjy/issues/125#issue-584213335)
+
 [“病毒来自美国”？谁把谎言撒遍社区？](https://github.com/Hongyu91/cecjy/issues/118#issue-583527629)
 
 [病毒是美国带来的？](https://github.com/Hongyu91/cecjy/issues/119#issue-583529998)
@@ -14,15 +22,8 @@
 
 [四川万源善良农妇王显银生前和家人遭受的迫害](https://github.com/Hongyu91/cecjy/issues/121#issue-583536186)
 
-[中共操控舆论遭抵制　百姓发声封不住](https://github.com/Hongyu91/cecjy/issues/113#issue-582816795)
-
-[参与网络电话监听定位　锦州公安蔡玉莉被举报 ](https://github.com/Hongyu91/cecjy/issues/114#issue-582819419)
-
-[武汉肺炎与因果报应](https://github.com/Hongyu91/cecjy/issues/109#issue-582808570)
-
 [生命的劫数与变数](https://github.com/Hongyu91/cecjy/issues/110#issue-582809701)
 
-[“行善利己，福泽满门；做恶害己，祸遗子孙”](https://github.com/Hongyu91/cecjy/issues/111#issue-582811043)
 
 #### 主页选文
 
