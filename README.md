@@ -8,6 +8,8 @@
 
 [天灾也有前因后果](https://github.com/Hongyu91/cecjy/issues/126#issue-584214481)
 
+[我被卷在车底平安无事　老板大喊：法轮大法好 ](https://github.com/Hongyu91/cecjy/issues/130#issue-584222868)
+
 [大疫催人醒](https://github.com/Hongyu91/cecjy/issues/128#issue-584217331)
 
 [两武汉医生患武汉肺炎　数日康复](https://github.com/Hongyu91/cecjy/issues/127#issue-584215779)
@@ -15,8 +17,6 @@
 [现在不退 更待何时](https://github.com/Hongyu91/cecjy/issues/125#issue-584213335)
 
 [“病毒来自美国”？谁把谎言撒遍社区？](https://github.com/Hongyu91/cecjy/issues/118#issue-583527629)
-
-[病毒是美国带来的？](https://github.com/Hongyu91/cecjy/issues/119#issue-583529998)
 
 [雇主就信服我这位大嫂](https://github.com/Hongyu91/cecjy/issues/120#issue-583532494)
 
