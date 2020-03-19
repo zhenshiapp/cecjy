@@ -10,7 +10,7 @@
 
 [大疫催人醒](https://github.com/Hongyu91/cecjy/issues/128#issue-584217331)
 
-[两武汉医生患武汉肺炎　数日康复](https://github.com/Hongyu91/cecjy/issues/127#issue-584215779
+[两武汉医生患武汉肺炎　数日康复](https://github.com/Hongyu91/cecjy/issues/127#issue-584215779)
 
 [现在不退 更待何时](https://github.com/Hongyu91/cecjy/issues/125#issue-584213335)
 
