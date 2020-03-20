@@ -10,7 +10,7 @@
 
 退出中共的党团队组织，脱离红魔控制，生命才会有保障！
 
-三退保平安！请你声明三退  http://tuidang.epochtimes.com/（国内需翻墙）
+三退保平安！请你声明三退  http://tuidang.epochtimes.com/ （国内需翻墙）
 
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086)
 
