@@ -16,6 +16,14 @@
 
 #### 热点动态文章
 
+[中共灭绝人性 酷刑摧残好人](https://github.com/Hongyu91/cecjy/issues/132#issue-584904889)
+
+[武汉疫情封城 新年札记反省](https://github.com/Hongyu91/cecjy/issues/133#issue-584906953)
+
+[听信中共煽动　华人回国避疫吞苦果 ](https://github.com/Hongyu91/cecjy/issues/134#issue-584908022)
+
+[山东淄博政法委书记韩国祥被举报](https://github.com/Hongyu91/cecjy/issues/135#issue-584909435)
+
 [天灾也有前因后果](https://github.com/Hongyu91/cecjy/issues/126#issue-584214481)
 
 [我被卷在车底平安无事　老板大喊：法轮大法好 ](https://github.com/Hongyu91/cecjy/issues/130#issue-584222868)
@@ -25,15 +33,6 @@
 [两武汉医生患武汉肺炎　数日康复](https://github.com/Hongyu91/cecjy/issues/127#issue-584215779)
 
 [现在不退 更待何时](https://github.com/Hongyu91/cecjy/issues/125#issue-584213335)
-
-[“病毒来自美国”？谁把谎言撒遍社区？](https://github.com/Hongyu91/cecjy/issues/118#issue-583527629)
-
-[雇主就信服我这位大嫂](https://github.com/Hongyu91/cecjy/issues/120#issue-583532494)
-
-[四川万源善良农妇王显银生前和家人遭受的迫害](https://github.com/Hongyu91/cecjy/issues/121#issue-583536186)
-
-[生命的劫数与变数](https://github.com/Hongyu91/cecjy/issues/110#issue-582809701)
-
 
 #### 主页选文
 
