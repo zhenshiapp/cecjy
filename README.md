@@ -16,6 +16,8 @@
 
 #### 热点动态文章
 
+[记者造谣获表彰　杀人犯成为“标兵”](https://github.com/Hongyu91/cecjy/issues/142#issue-585453355)
+
 [武汉肺炎易感染人群分析](https://github.com/Hongyu91/cecjy/issues/140#issue-585452071)
 
 [天涯寻法：湘江洞庭](https://github.com/Hongyu91/cecjy/issues/138#issue-585450831)
@@ -31,8 +33,6 @@
 [武汉疫情封城 新年札记反省](https://github.com/Hongyu91/cecjy/issues/133#issue-584906953)
 
 [听信中共煽动　华人回国避疫吞苦果 ](https://github.com/Hongyu91/cecjy/issues/134#issue-584908022)
-
-[天灾也有前因后果](https://github.com/Hongyu91/cecjy/issues/126#issue-584214481)
 
 #### 主页选文
 
