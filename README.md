@@ -14,7 +14,7 @@
 
 [代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086) 
 
-##### 点文字下载
+##### 点文字下载精装本电子书
 
 [法輪大法真相](https://github.com/Hongyu91/cecjy/files/4318121/default.zip)
 
