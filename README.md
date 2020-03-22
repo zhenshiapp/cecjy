@@ -22,6 +22,8 @@
 
 #### 热点动态文章
 
+[在中共病毒面前国人醒悟（1）](https://github.com/Hongyu91/cecjy/issues/147#issue-585670594)
+
 [中共法官逼迫当事人放弃信仰 ](https://github.com/Hongyu91/cecjy/issues/143#issue-585667846)
 
 [大陆公安人员感谢法轮功学员送来自救秘诀](https://github.com/Hongyu91/cecjy/issues/144#issue-585668346)
@@ -33,8 +35,6 @@
 [记者造谣获表彰　杀人犯成为“标兵”](https://github.com/Hongyu91/cecjy/issues/142#issue-585453355)
 
 [武汉肺炎易感染人群分析](https://github.com/Hongyu91/cecjy/issues/140#issue-585452071)
-
-[天涯寻法：湘江洞庭](https://github.com/Hongyu91/cecjy/issues/138#issue-585450831)
 
 [那天，我遇到了这样一位很特殊的有缘人](https://github.com/Hongyu91/cecjy/issues/139#issue-585451414)
 
