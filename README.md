@@ -26,6 +26,8 @@
 
 [中共法官逼迫当事人放弃信仰 ](https://github.com/Hongyu91/cecjy/issues/143#issue-585667846)
 
+[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123)
+
 [大陆公安人员感谢法轮功学员送来自救秘诀](https://github.com/Hongyu91/cecjy/issues/144#issue-585668346)
 
 [中共的另类瘟疫：特务五毛发难，潜入各国祸乱](https://github.com/Hongyu91/cecjy/issues/145#issue-585669656)
@@ -36,14 +38,12 @@
 
 [武汉肺炎易感染人群分析](https://github.com/Hongyu91/cecjy/issues/140#issue-585452071)
 
-[那天，我遇到了这样一位很特殊的有缘人](https://github.com/Hongyu91/cecjy/issues/139#issue-585451414)
-
 [打手们的下场](https://github.com/Hongyu91/cecjy/issues/141#issue-585452424)
 
 #### 主页选文
 
+[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
-[不干胶：疫情凶猛自保有妙招](https://github.com/Hongyu91/cecjy/issues/4#issue-575144722) |
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
