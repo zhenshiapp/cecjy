@@ -22,6 +22,14 @@
 
 #### 热点动态文章
 
+[中共法官逼迫当事人放弃信仰 ](https://github.com/Hongyu91/cecjy/issues/143#issue-585667846)
+
+[大陆公安人员感谢法轮功学员送来自救秘诀](https://github.com/Hongyu91/cecjy/issues/144#issue-585668346)
+
+[中共的另类瘟疫：特务五毛发难，潜入各国祸乱](https://github.com/Hongyu91/cecjy/issues/145#issue-585669656)
+
+[继两位哥哥被迫害致死　河南陈孝民遭冤狱折磨离世](https://github.com/Hongyu91/cecjy/issues/146#issue-585670061)
+
 [记者造谣获表彰　杀人犯成为“标兵”](https://github.com/Hongyu91/cecjy/issues/142#issue-585453355)
 
 [武汉肺炎易感染人群分析](https://github.com/Hongyu91/cecjy/issues/140#issue-585452071)
@@ -31,14 +39,6 @@
 [那天，我遇到了这样一位很特殊的有缘人](https://github.com/Hongyu91/cecjy/issues/139#issue-585451414)
 
 [打手们的下场](https://github.com/Hongyu91/cecjy/issues/141#issue-585452424)
-
-[中共灭绝人性 酷刑摧残好人](https://github.com/Hongyu91/cecjy/issues/132#issue-584904889)
-
-[现在不退 更待何时](https://github.com/Hongyu91/cecjy/issues/125#issue-584213335)
-
-[武汉疫情封城 新年札记反省](https://github.com/Hongyu91/cecjy/issues/133#issue-584906953)
-
-[听信中共煽动　华人回国避疫吞苦果 ](https://github.com/Hongyu91/cecjy/issues/134#issue-584908022)
 
 #### 主页选文
 
