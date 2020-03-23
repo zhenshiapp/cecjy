@@ -22,6 +22,14 @@
 
 #### 热点动态文章
 
+[为何求神、罪己诏失灵？](https://github.com/Hongyu91/cecjy/issues/150#issue-585986171)
+
+[从苏共到中共](https://github.com/Hongyu91/cecjy/issues/151#issue-585987351)
+
+[在中共病毒面前国人醒悟（2）](https://github.com/Hongyu91/cecjy/issues/152#issue-585988983)
+
+[二表姐诚念大法好，武汉肺炎消 ](https://github.com/Hongyu91/cecjy/issues/153#issue-585989865)
+
 [在中共病毒面前国人醒悟（1）](https://github.com/Hongyu91/cecjy/issues/147#issue-585670594)
 
 [中共法官逼迫当事人放弃信仰 ](https://github.com/Hongyu91/cecjy/issues/143#issue-585667846)
@@ -31,14 +39,6 @@
 [大陆公安人员感谢法轮功学员送来自救秘诀](https://github.com/Hongyu91/cecjy/issues/144#issue-585668346)
 
 [中共的另类瘟疫：特务五毛发难，潜入各国祸乱](https://github.com/Hongyu91/cecjy/issues/145#issue-585669656)
-
-[继两位哥哥被迫害致死　河南陈孝民遭冤狱折磨离世](https://github.com/Hongyu91/cecjy/issues/146#issue-585670061)
-
-[记者造谣获表彰　杀人犯成为“标兵”](https://github.com/Hongyu91/cecjy/issues/142#issue-585453355)
-
-[武汉肺炎易感染人群分析](https://github.com/Hongyu91/cecjy/issues/140#issue-585452071)
-
-[打手们的下场](https://github.com/Hongyu91/cecjy/issues/141#issue-585452424)
 
 #### 主页选文
 
