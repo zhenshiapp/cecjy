@@ -22,6 +22,8 @@
 
 #### 热点动态文章
 
+[活摘器官“纵向证据链”分析](https://github.com/Hongyu91/cecjy/issues/154#issue-585992200)
+
 [为何求神、罪己诏失灵？](https://github.com/Hongyu91/cecjy/issues/150#issue-585986171)
 
 [从苏共到中共](https://github.com/Hongyu91/cecjy/issues/151#issue-585987351)
@@ -29,8 +31,6 @@
 [在中共病毒面前国人醒悟（2）](https://github.com/Hongyu91/cecjy/issues/152#issue-585988983)
 
 [二表姐诚念大法好，武汉肺炎消 ](https://github.com/Hongyu91/cecjy/issues/153#issue-585989865)
-
-[在中共病毒面前国人醒悟（1）](https://github.com/Hongyu91/cecjy/issues/147#issue-585670594)
 
 [中共法官逼迫当事人放弃信仰 ](https://github.com/Hongyu91/cecjy/issues/143#issue-585667846)
 
