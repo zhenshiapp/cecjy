@@ -2,7 +2,7 @@
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
-#### 请收藏本站到您的浏览器：https://git.io/JvaVR
+#### 收藏本站 https://git.io/JvaVR
 
 本站心语：从历史走到今天，所发生的瘟疫和一切灾难都是神对人类的警告，针对人类的道德良知而来，人类不信神，造业巨大就面临被淘汰的危险。尤其到了今天，宇宙步入更新时期，人类对宇宙中正与邪，善与恶的选择成了人类能否躲过淘汰走入未來的关键。今天法轮大法在世间洪传全世界救度一切众生，而在中国大陆却被中共流氓集团邪恶迫害，并且造谣诬陷法轮功及其创始人李洪志师父，酷刑关押活摘法轮功学员器官，把法轮功污名化妖魔化让世人仇恨法轮功，令人神震怒。如果被中共灌输了法轮功不好的念头的人用这样的思想去衡量法轮功，将会在即将到来的大淘汰中遭遇天惩。所以法轮功学员冒着生命危险讲真相的行为是大善行为，是慈悲的表现，就是为了大家在今后的大淘汰中能留下来，所以只要现在还有机会了解法轮功真相的人，能善待法轮功的人，能认清中共红魔谎言的人，将会得到神的救度，在以后的灾难中就能保留下来。我给大家讲的诚念九字真言和三退保平安的方法是获得神救度的最好方法，能给你的未来带来福报，躲过大劫。
 
@@ -119,7 +119,7 @@
 [![tjp18](https://user-images.githubusercontent.com/61768866/76390774-f5570d80-63a8-11ea-8e01-fb77a91ffdfd.png)](https://github.com/Hongyu91/cecjy/files/4316498/default.zip)
 [![tjp19](https://user-images.githubusercontent.com/61768866/76391059-90e87e00-63a9-11ea-9cb8-f46029a54747.png)](https://github.com/Hongyu91/cecjy/files/4316510/default.zip)
 [![tjp21](https://user-images.githubusercontent.com/61768866/76959251-32e10b00-6954-11ea-9f12-316905b2437a.png)](https://github.com/Hongyu91/cecjy/files/4348821/default.zip)
-#### 请收藏本站到您的浏览器：https://git.io/JvaVR
+#### 收藏本站 https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八九期）
 
@@ -141,5 +141,5 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
-#### 请收藏本站到您的浏览器：https://git.io/JvaVR
+#### 收藏本站 https://git.io/JvaVR
 #### [返回主页](https://github.com/Hongyu91/cecjy)
