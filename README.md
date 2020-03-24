@@ -22,7 +22,7 @@
 
 [九評共產黨](https://github.com/Hongyu91/cecjy/files/4318129/default.zip)
 
-#### 热点动态文章
+#### 热点动态文章(保持更新）
 
 [活摘器官“纵向证据链”分析](https://github.com/Hongyu91/cecjy/issues/154#issue-585992200)
 
