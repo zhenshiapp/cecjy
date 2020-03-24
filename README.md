@@ -24,6 +24,14 @@
 
 #### 热点动态文章(保持更新）
 
+[古训今鉴：瘟神人人惧 三退保平安](https://github.com/Hongyu91/cecjy/issues/157#issue-586765239)
+
+[国际社会：“中共撒谎，民众死亡”](https://github.com/Hongyu91/cecjy/issues/158#issue-586767818)
+
+[由李文亮事件看替罪羊](https://github.com/Hongyu91/cecjy/issues/159#issue-586769186)
+
+[惨痛事实促意大利政要认清中共](https://github.com/Hongyu91/cecjy/issues/160#issue-586770410)
+
 [活摘器官“纵向证据链”分析](https://github.com/Hongyu91/cecjy/issues/154#issue-585992200)
 
 [为何求神、罪己诏失灵？](https://github.com/Hongyu91/cecjy/issues/150#issue-585986171)
@@ -33,14 +41,6 @@
 [在中共病毒面前国人醒悟（2）](https://github.com/Hongyu91/cecjy/issues/152#issue-585988983)
 
 [二表姐诚念大法好，武汉肺炎消 ](https://github.com/Hongyu91/cecjy/issues/153#issue-585989865)
-
-[中共法官逼迫当事人放弃信仰 ](https://github.com/Hongyu91/cecjy/issues/143#issue-585667846)
-
-[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123)
-
-[大陆公安人员感谢法轮功学员送来自救秘诀](https://github.com/Hongyu91/cecjy/issues/144#issue-585668346)
-
-[中共的另类瘟疫：特务五毛发难，潜入各国祸乱](https://github.com/Hongyu91/cecjy/issues/145#issue-585669656)
 
 #### 主页选文
 
