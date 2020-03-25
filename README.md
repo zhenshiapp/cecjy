@@ -129,8 +129,6 @@
 [![tjp18](https://user-images.githubusercontent.com/61768866/76390774-f5570d80-63a8-11ea-8e01-fb77a91ffdfd.png)](https://github.com/Hongyu91/cecjy/files/4316498/default.zip)
 [![tjp19](https://user-images.githubusercontent.com/61768866/76391059-90e87e00-63a9-11ea-9cb8-f46029a54747.png)](https://github.com/Hongyu91/cecjy/files/4316510/default.zip)
 [![tjp21](https://user-images.githubusercontent.com/61768866/76959251-32e10b00-6954-11ea-9f12-316905b2437a.png)](https://github.com/Hongyu91/cecjy/files/4348821/default.zip)
-
-
 #### 收藏本站 https://git.io/JvaVR
 
 # 明慧周报：大陆版（第七八九期）（每周更新）
