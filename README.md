@@ -63,10 +63,18 @@
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
+
+#### 国外法轮功真相网站相关连接（国内访问需翻墙）
  
-[代办三退](https://github.com/Hongyu91/cecjy/issues/5#issue-575149086) |
-[翻墙部落](https://git.io/urfos) |
-[网门](https://github.com/odoor2/oo/blob/master/README.md)
+[法轮大法](https://www.falundafa.org/) |
+[明慧网](http://www.minghui.org/) |
+[正见网](http://www.zhengjian.org/) |
+[新生网](http://www.xinsheng.net/) |
+[追查国际](http://www.zhuichaguoji.org/) |
+[希望之声](https://www.soundofhope.org/) |
+[大纪元新闻网](https://www.epochtimes.com/) |
+[新唐人电视台](https://www.ntdtv.com/) |
+[神韵艺术团](https://zh-cn.shenyunperformingarts.org/) 
 
 #### 推荐下载最新翻墙软件
 
@@ -142,6 +150,18 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843455-2a45ec00-5e0e-11ea-9776-bc56579dba9a.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
+
+#### 国外法轮功真相网站相关连接（国内访问需翻墙）
+ 
+[法轮大法](https://www.falundafa.org/) |
+[明慧网](http://www.minghui.org/) |
+[正见网](http://www.zhengjian.org/) |
+[新生网](http://www.xinsheng.net/) |
+[追查国际](http://www.zhuichaguoji.org/) |
+[希望之声](https://www.soundofhope.org/) |
+[大纪元新闻网](https://www.epochtimes.com/) |
+[新唐人电视台](https://www.ntdtv.com/) |
+[神韵艺术团](https://zh-cn.shenyunperformingarts.org/) 
 
 #### 收藏本站 https://git.io/JvaVR
 #### [返回主页](https://github.com/Hongyu91/cecjy)
