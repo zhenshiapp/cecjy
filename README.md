@@ -94,7 +94,7 @@
 
 ![IMG_20200325_200610](https://user-images.githubusercontent.com/61768866/77535325-659b7e00-6ed5-11ea-881c-38d5236810fb.jpg)
 
-##### 双击那个球形的图标文件epoch_access后就启动了免费的翻墙浏览器，会出现如下画面
+##### 双击那个球形的图标文件epoch_access后就启动了免费的翻墙浏览器，会出现新闻网站的画面
 
 ![IMG_20200325_200023](https://user-images.githubusercontent.com/61768866/77535286-587e8f00-6ed5-11ea-8e60-fda81bc26d4f.jpg)
 
