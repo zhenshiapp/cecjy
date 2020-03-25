@@ -24,6 +24,14 @@
 
 #### 热点动态文章(保持更新）
 
+[诚念九字真言　中共病毒消除](https://github.com/Hongyu91/cecjy/issues/163#issue-587532461)
+
+[加国家邮报：中共是威胁人类生存的最大病毒](https://github.com/Hongyu91/cecjy/issues/164#issue-587534143)
+
+[医生感染武汉肺炎 念真言康复 不奇怪](https://github.com/Hongyu91/cecjy/issues/165#issue-587535782)
+
+[宁夏银川市75岁老太太蒋红英再被劫入冤狱](https://github.com/Hongyu91/cecjy/issues/166#issue-587537802)
+
 [古训今鉴：瘟神人人惧 三退保平安](https://github.com/Hongyu91/cecjy/issues/157#issue-586765239)
 
 [国际社会：“中共撒谎，民众死亡”](https://github.com/Hongyu91/cecjy/issues/158#issue-586767818)
@@ -33,14 +41,6 @@
 [惨痛事实促意大利政要认清中共](https://github.com/Hongyu91/cecjy/issues/160#issue-586770410)
 
 [活摘器官“纵向证据链”分析](https://github.com/Hongyu91/cecjy/issues/154#issue-585992200)
-
-[为何求神、罪己诏失灵？](https://github.com/Hongyu91/cecjy/issues/150#issue-585986171)
-
-[从苏共到中共](https://github.com/Hongyu91/cecjy/issues/151#issue-585987351)
-
-[在中共病毒面前国人醒悟（2）](https://github.com/Hongyu91/cecjy/issues/152#issue-585988983)
-
-[二表姐诚念大法好，武汉肺炎消 ](https://github.com/Hongyu91/cecjy/issues/153#issue-585989865)
 
 #### 主页选文
 
