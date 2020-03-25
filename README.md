@@ -76,7 +76,9 @@
 [新唐人电视台](https://www.ntdtv.com/) |
 [神韵艺术团](https://zh-cn.shenyunperformingarts.org/) 
 
-#### 推荐下载最新翻墙软件
+#### 提示：介绍个翻墙小窍门，就是下载一个电脑版无界翻墙软件，解压双击软件运行，因为无界自带VPN，运行后整个电脑都在保护中，网页也在保护中了，这是只要运行稳定，你就可以去访问国外的法轮功真相网站了。
+
+#### 推荐下载最新翻墙软件：
 
 [自由门7.78版电脑版](https://github.com/Hongyu91/cecjy/files/4353481/fg778r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
