@@ -86,7 +86,7 @@
 
 ![pb123](https://user-images.githubusercontent.com/61768866/77535373-7815b780-6ed5-11ea-9120-6fac896eedaf.png)
 
-##### 你的电脑是什么系统，你就点旁边的下载两字，就开始下载了。这里以Windows系統 下載为例作个示范，点击下载成功并解压后会得到如下图片的文件
+##### 你的电脑是什么系统，你就点旁边的下载两字，就开始下载了。这里以Windows系統 下載为例作个示范，点击下载成功并解压后会得到如下文件
 
 ![IMG_20200325_202728](https://user-images.githubusercontent.com/61768866/77536200-f030ad00-6ed6-11ea-8fb7-6ca3d28a18c4.jpg)
 
