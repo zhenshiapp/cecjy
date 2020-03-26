@@ -90,7 +90,7 @@
 
 ![IMG_20200325_202728](https://user-images.githubusercontent.com/61768866/77536200-f030ad00-6ed6-11ea-8fb7-6ca3d28a18c4.jpg)
 
-##### 点击解压后的文件夹会看到这样的图片
+##### 点击解压后的文件夹会看到这些文件
 
 ![IMG_20200325_200610](https://user-images.githubusercontent.com/61768866/77535325-659b7e00-6ed5-11ea-881c-38d5236810fb.jpg)
 
