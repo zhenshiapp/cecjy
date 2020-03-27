@@ -24,6 +24,14 @@
 
 #### 热点动态文章(保持更新）
 
+[洪水猛兽让我们在每天加速变化中开始了2020](https://github.com/Hongyu91/cecjy/issues/176#issue-588972036)
+
+[细胞生物专家：为什么“九字真言”能解中共病毒](https://github.com/Hongyu91/cecjy/issues/177#issue-588973641)
+
+[人权律师：中共系统性破坏国际人权法实施 ](https://github.com/Hongyu91/cecjy/issues/178#issue-588976361)
+
+[“防范办”作伪证　保定法院执法犯法重判好人](https://github.com/Hongyu91/cecjy/issues/179#issue-588977479)
+
 [蓬佩奥：中共仍在隐瞒 让人的生命处于危险之中](https://github.com/Hongyu91/cecjy/issues/169#issue-588211750)
 
 [曾遭五年冤狱　昆明市肖玉霞又被绑架构陷 ](https://github.com/Hongyu91/cecjy/issues/170#issue-588213408)
@@ -33,14 +41,6 @@
 [四川什邡市原政法委书记唐前卫被举报](https://github.com/Hongyu91/cecjy/issues/172#issue-588216066)
 
 [诚念九字真言　中共病毒消除](https://github.com/Hongyu91/cecjy/issues/163#issue-587532461)
-
-[加国家邮报：中共是威胁人类生存的最大病毒](https://github.com/Hongyu91/cecjy/issues/164#issue-587534143)
-
-[医生感染武汉肺炎 念真言康复 不奇怪](https://github.com/Hongyu91/cecjy/issues/165#issue-587535782)
-
-[宁夏银川市75岁老太太蒋红英再被劫入冤狱](https://github.com/Hongyu91/cecjy/issues/166#issue-587537802)
-
-[古训今鉴：瘟神人人惧 三退保平安](https://github.com/Hongyu91/cecjy/issues/157#issue-586765239)
 
 #### 主页选文
 
