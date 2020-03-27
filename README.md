@@ -24,6 +24,8 @@
 
 #### 热点动态文章(保持更新）
 
+[看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196)
+
 [洪水猛兽让我们在每天加速变化中开始了2020](https://github.com/Hongyu91/cecjy/issues/176#issue-588972036)
 
 [细胞生物专家：为什么“九字真言”能解中共病毒](https://github.com/Hongyu91/cecjy/issues/177#issue-588973641)
@@ -35,8 +37,6 @@
 [蓬佩奥：中共仍在隐瞒 让人的生命处于危险之中](https://github.com/Hongyu91/cecjy/issues/169#issue-588211750)
 
 [曾遭五年冤狱　昆明市肖玉霞又被绑架构陷 ](https://github.com/Hongyu91/cecjy/issues/170#issue-588213408)
-
-[父亲遇险无恙　连说“法轮大法真好”](https://github.com/Hongyu91/cecjy/issues/171#issue-588214579)
 
 [四川什邡市原政法委书记唐前卫被举报](https://github.com/Hongyu91/cecjy/issues/172#issue-588216066)
 
