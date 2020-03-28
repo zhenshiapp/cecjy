@@ -213,6 +213,7 @@
 [明慧网](http://www.minghui.org/) |
 [正见网](http://www.zhengjian.org/) |
 [新生网](http://www.xinsheng.net/) |
+[看中国](http://cn.secretchina.com/) |
 [追查国际](http://www.zhuichaguoji.org/) |
 [希望之声](https://www.soundofhope.org/) |
 [大纪元新闻网](https://www.epochtimes.com/) |
