@@ -44,8 +44,8 @@
 
 #### 主页选文
 
-| [看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196) |
-| [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
+|[看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196) |
+|[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 | [洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
 | [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 
