@@ -236,6 +236,12 @@
 [天亮時分](https://www.youtube.com/channel/UCjvjNeHndz4PGs9JXhzdHqw) |
 [江峰时刻](https://www.youtube.com/channel/UCa6ERCDt3GzkvLye32ar89w)
 
+#### 我的国外社交媒体访问相关链接（国内访问需翻墙）
+[梅花迎春视频](https://www.facebook.com/pg/chuwy51/videos/?ref=page_internal) |
+[为您而来](https://www.facebook.com/groups/301789957183526/?ref=bookmarks) |
+[Chu Wy](https://www.facebook.com/chueyi.37892167) |
+[梅花迎春歸](https://twitter.com/wgmeihua) 
+
 #### 收藏本站 https://git.io/JvaVR
 
 #### [返回主页](https://github.com/Hongyu91/cecjy)
