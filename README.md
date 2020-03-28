@@ -47,23 +47,23 @@
 [看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196) |
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
-[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
+[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199) |
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
-[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
+[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
 
 [人生真谛](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/) |
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004) |
-[百步亭社区 样本活动 样本遭遇](https://github.com/Hongyu91/cecjy/issues/15#issue-575188950)
+[百步亭社区 样本活动 样本遭遇](https://github.com/Hongyu91/cecjy/issues/15#issue-575188950) |
 
 [瘟疫当前，世人求指点迷津](https://github.com/Hongyu91/cecjy/issues/13#issue-575176580) |
 [如何才能走出“武汉肺炎”大难？](https://github.com/Hongyu91/cecjy/issues/14#issue-575181554) |
-[武汉感染者：感谢法轮功送的自救秘诀](https://github.com/Hongyu91/cecjy/issues/12#issue-575174726)
+[武汉感染者：感谢法轮功送的自救秘诀](https://github.com/Hongyu91/cecjy/issues/12#issue-575174726) |
 
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
-[《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
+[《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726) |
 
 #### 国外法轮功真相网站相关链接（国内访问需翻墙）
  
@@ -75,7 +75,7 @@
 [希望之声](https://www.soundofhope.org/) |
 [大纪元新闻网](https://www.epochtimes.com/) |
 [新唐人电视台](https://www.ntdtv.com/) |
-[神韵艺术团](https://zh-cn.shenyunperformingarts.org/) 
+[神韵艺术团](https://zh-cn.shenyunperformingarts.org/) | 
 
 #### 国外油管频道访问相关链接（国内访问需翻墙）
 
@@ -86,7 +86,7 @@
 [全球新聞](https://www.youtube.com/results?search_query=%E5%85%A8%E7%90%83%E6%96%B0%E8%81%9E) |
 [大紀元 — 新聞看點](https://www.youtube.com/channel/UCPMqbkR35zZV1ysWGXJPW-w) |
 [今日点击](https://www.youtube.com/channel/UCIY7IuTwv2b9RANrzBkNijQ) |
-[热点互动](https://www.youtube.com/user/NTDChinaNewsChannel)
+[热点互动](https://www.youtube.com/user/NTDChinaNewsChannel) |
 
 #### 国外油管自媒体频道访问相关链接（国内访问需翻墙）
 
