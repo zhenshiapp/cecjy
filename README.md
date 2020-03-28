@@ -54,6 +54,7 @@
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
 [人生真谛](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/) |
+[小之每日真相](https://github.com/candysn/nini/blob/master/wnn.md) |
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004) |
 [百步亭社区 样本活动 样本遭遇](https://github.com/Hongyu91/cecjy/issues/15#issue-575188950)
 
