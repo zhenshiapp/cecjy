@@ -72,7 +72,7 @@
 [今日点击](https://www.youtube.com/channel/UCIY7IuTwv2b9RANrzBkNijQ) |
 [热点互动](https://www.youtube.com/user/NTDChinaNewsChannel)
 
- ##### 提示：给国内朋友介绍个翻墙小窍门，就是下载一个电脑版无界浏览免费翻墙软件，解压双击软件运行，因为无界自带VPN，运行后整个电脑都在保护中，网页也在保护中了，这时只要运行稳定，你就可以去访问国外的各大网站了，要想获得长期稳定的翻墙体验，建议购买国外的付费VPN，这里推荐一款ExpressVPN ，能访问全球，无界翻墙后打开它的链接地址，按它的提示购买即可，支持国内的银行卡和支付宝购买。链接地址：https://www.expressvpn.com/
+ ##### 提示：给国内朋友介绍个翻墙小窍门，就是下载一个电脑版无界浏览免费翻墙软件，解压双击软件运行，因为无界自带VPN，运行后整个电脑都在保护中，网页也在保护中了，这时只要运行稳定，你就可以访问国外的网站了，要想获得长期稳定的翻墙体验，建议购买国外的付费VPN，这里推荐一款ExpressVPN ，能访问全球，无界翻墙后打开它的链接地址，按它的提示购买即可，支持国内的银行卡和支付宝购买。链接地址：https://www.expressvpn.com/
 
 #### 推荐下载最新免费翻墙浏览器 突破封锁访问大纪元新唐人（重点推荐）
 
@@ -157,7 +157,7 @@
 [![tjp21](https://user-images.githubusercontent.com/61768866/76959251-32e10b00-6954-11ea-9f12-316905b2437a.png)](https://github.com/Hongyu91/cecjy/files/4348821/default.zip)
 #### 收藏本站 https://git.io/JvaVR
 
-# 明慧周报：大陆版（第七九零期）（每周更新）
+# 明慧周报：大陆版（第七九零期）
 
 ![image](https://user-images.githubusercontent.com/61768866/77738308-92bd6d00-704a-11ea-8778-68ac1dfd4539.png)
 ![image](https://user-images.githubusercontent.com/61768866/77738455-d57f4500-704a-11ea-9cb7-65cd3838a939.png)
