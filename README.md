@@ -4,7 +4,7 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-#### 热点动态文章(保持更新）
+#### 热点动态文章（会更新）
 
 [丈夫受伤的右眼康复了（外一篇）](https://github.com/Hongyu91/cecjy/issues/199#issue-589745020)
 
