@@ -97,12 +97,6 @@
 [天亮時分](https://www.youtube.com/channel/UCjvjNeHndz4PGs9JXhzdHqw) |
 [江峰时刻](https://www.youtube.com/channel/UCa6ERCDt3GzkvLye32ar89w)
 
-#### 我的国外社交媒体访问相关链接（国内访问需翻墙）
-[梅花迎春视频](https://www.facebook.com/pg/chuwy51/videos/?ref=page_internal) |
-[为您而来](https://www.facebook.com/groups/301789957183526/?ref=bookmarks) |
-[Chu Wy](https://www.facebook.com/chueyi.37892167) |
-[梅花迎春歸](https://twitter.com/wgmeihua) 
-
  ##### 提示：给国内朋友介绍个翻墙小窍门，就是下载一个电脑版无界浏览免费翻墙软件，解压双击软件运行，因为无界自带VPN，运行后整个电脑都在保护中，网页也在保护中了，这时只要运行稳定，你就可以去访问国外的法轮功真相网站和油管頻道及各大社交媒体了。要想获得长期稳定的翻墙体验，建议购买国外的付费VPN，这里推荐一款ExpressVPN ，能访问全球，无界翻墙后打开它的链接地址，按它的提示购买即可，支持国内的银行卡和支付宝购买。链接地址：https://www.expressvpn.com/
 
 #### 推荐下载最新免费翻墙浏览器 突破封锁访问大纪元新唐人（重点推荐）
@@ -238,12 +232,6 @@
 [石涛聚焦](https://www.youtube.com/playlist?list=PLQKc8QoelnZRigECJkhCBrpcoKAiPt1dN) |
 [天亮時分](https://www.youtube.com/channel/UCjvjNeHndz4PGs9JXhzdHqw) |
 [江峰时刻](https://www.youtube.com/channel/UCa6ERCDt3GzkvLye32ar89w)
-
-#### 我的国外社交媒体访问相关链接（国内访问需翻墙）
-[梅花迎春视频](https://www.facebook.com/pg/chuwy51/videos/?ref=page_internal) |
-[为您而来](https://www.facebook.com/groups/301789957183526/?ref=bookmarks) |
-[Chu Wy](https://www.facebook.com/chueyi.37892167) |
-[梅花迎春歸](https://twitter.com/wgmeihua) 
 
 #### 收藏本站 https://git.io/JvaVR
 
