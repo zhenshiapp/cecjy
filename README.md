@@ -61,7 +61,7 @@
 [新唐人电视台](https://www.ntdtv.com/) |
 [神韵艺术团](https://zh-cn.shenyunperformingarts.org/)
 
-#### 国外油管频道访问相关链接（国内访问需翻墙）
+#### 国外YouTube真相频道访问相关链接（国内访问需翻墙）
 
 [新唐人電視臺](https://www.youtube.com/channel/UCdbvc-yJ4JQjNGTgFiJIZNA) |
 [《細語人生》](https://www.youtube.com/channel/UCTk-8RivGf6UPimZHbUHXTw) |
@@ -71,13 +71,6 @@
 [大紀元 — 新聞看點](https://www.youtube.com/channel/UCPMqbkR35zZV1ysWGXJPW-w) |
 [今日点击](https://www.youtube.com/channel/UCIY7IuTwv2b9RANrzBkNijQ) |
 [热点互动](https://www.youtube.com/user/NTDChinaNewsChannel)
-
-#### 国外油管自媒体频道访问相关链接（国内访问需翻墙）
-
-[之道平安](https://www.youtube.com/channel/UCsGkHWzcrWogR1OYOlOnDhg/feed) |
-[石涛聚焦](https://www.youtube.com/playlist?list=PLQKc8QoelnZRigECJkhCBrpcoKAiPt1dN) |
-[天亮時分](https://www.youtube.com/channel/UCjvjNeHndz4PGs9JXhzdHqw) |
-[江峰时刻](https://www.youtube.com/channel/UCa6ERCDt3GzkvLye32ar89w)
 
  ##### 提示：给国内朋友介绍个翻墙小窍门，就是下载一个电脑版无界浏览免费翻墙软件，解压双击软件运行，因为无界自带VPN，运行后整个电脑都在保护中，网页也在保护中了，这时只要运行稳定，你就可以去访问国外的法轮功真相网站和油管頻道及各大社交媒体了。要想获得长期稳定的翻墙体验，建议购买国外的付费VPN，这里推荐一款ExpressVPN ，能访问全球，无界翻墙后打开它的链接地址，按它的提示购买即可，支持国内的银行卡和支付宝购买。链接地址：https://www.expressvpn.com/
 
