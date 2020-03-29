@@ -177,30 +177,6 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
-#### 国外法轮功真相网站相关连接（国内访问需翻墙）
- 
-[法轮大法](https://www.falundafa.org/) |
-[明慧网](http://www.minghui.org/) |
-[正见网](http://www.zhengjian.org/) |
-[新生网](http://www.xinsheng.net/) |
-[看中国](http://cn.secretchina.com/) |
-[追查国际](http://www.zhuichaguoji.org/) |
-[希望之声](https://www.soundofhope.org/) |
-[大纪元新闻网](https://www.epochtimes.com/) |
-[新唐人电视台](https://www.ntdtv.com/) |
-[神韵艺术团](https://zh-cn.shenyunperformingarts.org/) 
-
-#### 国外YouTube真相频道访问相关链接（国内访问需翻墙）
-
-[新唐人電視臺](https://www.youtube.com/channel/UCdbvc-yJ4JQjNGTgFiJIZNA) |
-[《細語人生》](https://www.youtube.com/channel/UCTk-8RivGf6UPimZHbUHXTw) |
-[大陸新聞解讀](https://www.youtube.com/playlist?list=PLaF6XA2KQtwSPkuLM-gBS1ugJcmRChw0c) |
-[中國禁聞](https://www.youtube.com/channel/UCYSHqbSBDD0X3NC-ze8z5xQ) |
-[全球新聞](https://www.youtube.com/results?search_query=%E5%85%A8%E7%90%83%E6%96%B0%E8%81%9E) |
-[大紀元 — 新聞看點](https://www.youtube.com/channel/UCPMqbkR35zZV1ysWGXJPW-w) |
-[今日点击](https://www.youtube.com/channel/UCIY7IuTwv2b9RANrzBkNijQ) |
-[热点互动](https://www.youtube.com/user/NTDChinaNewsChannel)
-
 #### 收藏本站 https://git.io/JvaVR
 
 #### [返回主页](https://github.com/Hongyu91/cecjy)
