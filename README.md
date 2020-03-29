@@ -24,6 +24,14 @@
 
 #### 热点动态文章(保持更新）
 
+[神在唤醒你，你看见了吗？](https://github.com/Hongyu91/cecjy/issues/192#issue-589735725)
+
+[请不要放过救人的最后机会](https://github.com/Hongyu91/cecjy/issues/193#issue-589736175)
+
+[遭13年冤狱折磨　辽宁赵成林含冤离世](https://github.com/Hongyu91/cecjy/issues/194#issue-589736577)
+
+[洪氏夫妇诚心相信大法好、“三退”保平安](https://github.com/Hongyu91/cecjy/issues/195#issue-589736861)
+
 [《危难时刻》——劫难中的一线曙光](https://github.com/Hongyu91/cecjy/issues/183#issue-589526444)
 
 [大疫来袭 爱博电视展神力](https://github.com/Hongyu91/cecjy/issues/184#issue-589527385)
@@ -33,14 +41,6 @@
 [武汉武汉肺炎死亡人数 二月份至少20822](https://github.com/Hongyu91/cecjy/issues/186#issue-589528764)
 
 [看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196)
-
-[洪水猛兽让我们在每天加速变化中开始了2020](https://github.com/Hongyu91/cecjy/issues/176#issue-588972036)
-
-[细胞生物专家：为什么“九字真言”能解中共病毒](https://github.com/Hongyu91/cecjy/issues/177#issue-588973641)
-
-[人权律师：中共系统性破坏国际人权法实施 ](https://github.com/Hongyu91/cecjy/issues/178#issue-588976361)
-
-[“防范办”作伪证　保定法院执法犯法重判好人](https://github.com/Hongyu91/cecjy/issues/179#issue-588977479)
 
 #### 主页选文
 
