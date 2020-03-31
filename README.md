@@ -88,16 +88,6 @@
 [![tjp11](https://user-images.githubusercontent.com/61768866/76388286-bb373d00-63a3-11ea-9d08-d0616c87a5ee.png)](https://github.com/Hongyu91/cecjy/files/4316342/default.zip)
 [![tjp12](https://user-images.githubusercontent.com/61768866/76388709-b030dc80-63a4-11ea-8a52-683d9a546140.png)](https://github.com/Hongyu91/cecjy/files/4316363/default.zip)
 
-[![tjp13](https://user-images.githubusercontent.com/61768866/76389119-81673600-63a5-11ea-8eba-cb272fc144ad.png)](https://github.com/Hongyu91/cecjy/files/4316398/default.zip)
-[![tjp14](https://user-images.githubusercontent.com/61768866/76389399-19fdb600-63a6-11ea-9bf1-492b7b3c1684.png)](https://github.com/Hongyu91/cecjy/files/4316420/default.zip)
-[![tjp15](https://user-images.githubusercontent.com/61768866/76389642-a9a36480-63a6-11ea-9676-d81981624ef5.png)](https://github.com/Hongyu91/cecjy/files/4316442/default.zip)
-[![tjp16](https://user-images.githubusercontent.com/61768866/76389935-6a294800-63a7-11ea-8034-1ca7979ff528.png)](https://github.com/Hongyu91/cecjy/files/4316455/default.zip)
-
-[![tjp17](https://user-images.githubusercontent.com/61768866/76390380-44507300-63a8-11ea-97c6-c55a5f09185a.png)](https://github.com/Hongyu91/cecjy/files/4316483/default.zip)
-[![tjp18](https://user-images.githubusercontent.com/61768866/76390774-f5570d80-63a8-11ea-8e01-fb77a91ffdfd.png)](https://github.com/Hongyu91/cecjy/files/4316498/default.zip)
-[![tjp19](https://user-images.githubusercontent.com/61768866/76391059-90e87e00-63a9-11ea-9cb8-f46029a54747.png)](https://github.com/Hongyu91/cecjy/files/4316510/default.zip)
-[![tjp21](https://user-images.githubusercontent.com/61768866/76959251-32e10b00-6954-11ea-9f12-316905b2437a.png)](https://github.com/Hongyu91/cecjy/files/4348821/default.zip)
-
 # 明慧周报：大陆版（第七九零期）
 
 ![image](https://user-images.githubusercontent.com/61768866/77738308-92bd6d00-704a-11ea-8778-68ac1dfd4539.png)
