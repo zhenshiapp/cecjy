@@ -28,15 +28,13 @@
 
 [看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196) |
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
-[洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
-[人生真谛](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/) |
-[小之每日真相](https://github.com/candysn/nini/blob/master/wnn.md) |
+[洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
 [贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004) |
 [百步亭社区 样本活动 样本遭遇](https://github.com/Hongyu91/cecjy/issues/15#issue-575188950)
 
@@ -48,54 +46,6 @@
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
-#### 国外法轮功真相网站相关链接（国内访问需翻墙）
- 
-[法轮大法](https://www.falundafa.org/) |
-[明慧网](http://www.minghui.org/) |
-[正见网](http://www.zhengjian.org/) |
-[新生网](http://www.xinsheng.net/) |
-[看中国](http://cn.secretchina.com/) |
-[追查国际](http://www.zhuichaguoji.org/) |
-[希望之声](https://www.soundofhope.org/) |
-[大纪元新闻网](https://www.epochtimes.com/) |
-[新唐人电视台](https://www.ntdtv.com/) |
-[神韵艺术团](https://zh-cn.shenyunperformingarts.org/)
-
-#### 国外YouTube真相频道访问相关链接（国内访问需翻墙）
-
-[新唐人電視臺](https://www.youtube.com/channel/UCdbvc-yJ4JQjNGTgFiJIZNA) |
-[《細語人生》](https://www.youtube.com/channel/UCTk-8RivGf6UPimZHbUHXTw) |
-[大陸新聞解讀](https://www.youtube.com/playlist?list=PLaF6XA2KQtwSPkuLM-gBS1ugJcmRChw0c) |
-[中國禁聞](https://www.youtube.com/channel/UCYSHqbSBDD0X3NC-ze8z5xQ) |
-[全球新聞](https://www.youtube.com/results?search_query=%E5%85%A8%E7%90%83%E6%96%B0%E8%81%9E) |
-[大紀元 — 新聞看點](https://www.youtube.com/channel/UCPMqbkR35zZV1ysWGXJPW-w) |
-[今日点击](https://www.youtube.com/channel/UCIY7IuTwv2b9RANrzBkNijQ) |
-[热点互动](https://www.youtube.com/user/NTDChinaNewsChannel)
-
- ##### 提示：给国内朋友介绍个翻墙小窍门，就是下载一个电脑版无界浏览免费翻墙软件，解压双击软件运行，因为无界自带VPN，运行后整个电脑都在保护中，网页也在保护中了，这时只要运行稳定，你就可以访问国外的网站了，要想获得长期稳定的翻墙体验，建议购买国外的付费VPN，这里推荐一款ExpressVPN ，能访问全球，无界翻墙后打开它的链接地址，按它的提示购买即可，支持国内的银行卡和支付宝购买。链接地址：https://www.expressvpn.com/
-
-#### 推荐下载最新免费翻墙浏览器 突破封锁访问大纪元新唐人
-
-##### 下载地址：https://git.io/xiazai
-
-##### 打开地址出现如下画面
-
-![pb123](https://user-images.githubusercontent.com/61768866/77535373-7815b780-6ed5-11ea-9120-6fac896eedaf.png)
-
-##### 你的电脑是什么系统，你就点旁边的下载两字，就开始下载了。这里以Windows系統 下載为例作个示范，点击下载成功并解压后会得到如下文件
-
-![IMG_20200325_202728](https://user-images.githubusercontent.com/61768866/77536200-f030ad00-6ed6-11ea-8fb7-6ca3d28a18c4.jpg)
-
-##### 点击解压后的文件夹会看到这些文件
-
-![IMG_20200325_200610](https://user-images.githubusercontent.com/61768866/77535325-659b7e00-6ed5-11ea-881c-38d5236810fb.jpg)
-
-##### 双击那个球形的图标文件epoch_access后就启动了免费的翻墙浏览器，会出现新闻网站的画面
-
-![IMG_20200325_200023](https://user-images.githubusercontent.com/61768866/77535286-587e8f00-6ed5-11ea-8e60-fda81bc26d4f.jpg)
-
-##### 看到这个画面后你就翻墙成功了，在里面想看什么新闻文章，视频等点击访问即看，挺方便的，这个免翻浏览器将带给你真实的讯息。当然国外的朋友也可以下载使用，一样会正常运行，因为这个免费翻墙浏览器使用很方便的。
-
 #### 推荐下载最新翻墙软件：
 
 [自由门7.78版电脑版](https://github.com/Hongyu91/cecjy/files/4353481/fg778r.zip) |
@@ -103,8 +53,6 @@
 [爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [自由门安卓版](https://github.com/Hongyu91/cecjy/files/4315538/fgma.zip) |
 [无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip) |
-[希望之声安卓版](https://github.com/Hongyu91/cecjy/files/4312282/oHopea.zip) |
-[网门安卓版](https://github.com/Hongyu91/cecjy/files/4312289/oGate.zip)
 
 #### 推荐二维条码下载翻墙软件
 
