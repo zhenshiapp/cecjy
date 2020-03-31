@@ -4,6 +4,10 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
+#### 视频天地
+
+点击播放 [武汉肺炎电影《危难时刻》](http://dwz.sh/KlAi6)
+
 #### 热点动态文章
 
 [说谎害人的报应](https://github.com/Hongyu91/cecjy/issues/206#issue-590859593)
