@@ -18,12 +18,6 @@
 
 [神在唤醒你，你看见了吗？](https://github.com/Hongyu91/cecjy/issues/192#issue-589735725)
 
-[请不要放过救人的最后机会](https://github.com/Hongyu91/cecjy/issues/193#issue-589736175)
-
-[遭13年冤狱折磨　辽宁赵成林含冤离世](https://github.com/Hongyu91/cecjy/issues/194#issue-589736577)
-
-[洪氏夫妇诚心相信大法好、“三退”保平安](https://github.com/Hongyu91/cecjy/issues/195#issue-589736861)
-
 #### 主页选文
 
 [看见瘟神…… ](https://github.com/Hongyu91/cecjy/issues/181#issue-589028196) |
