@@ -10,6 +10,8 @@
 
 点击播放：[【环球直击】3月31日完整版](http://dwz.sh/SuvU)
 
+点击播放：[熱點互動（上）2020/03/30](http://dwz.sh/aavCj)
+
 #### 热点动态文章
 
 [说谎害人的报应](https://github.com/Hongyu91/cecjy/issues/206#issue-590859593)
