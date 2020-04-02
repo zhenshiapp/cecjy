@@ -10,8 +10,6 @@
 
 点击播放：[【细语人生】见证大法的神迹（第十六集）](http://dwz.sh/z18I8)
 
-点击播放：[【环球直击】3月31日完整版](http://dwz.sh/SuvU)
-
 #### 热点动态文章
 
 [民间传说：梦里地狱走一遭](https://github.com/Hongyu91/cecjy/issues/217#issue-592416142)
