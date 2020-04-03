@@ -4,13 +4,6 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-#### 即时视频（打开后加载2～3秒，刷新页面可观看）
-
-点文字播放：[大紀元 — 新聞看點](https://web.ptbi.gq/watch?v=JW6EFel6FCE)
-
-![sptu1](https://user-images.githubusercontent.com/61768866/78326697-9b172a00-75ad-11ea-872e-7e638114dbac.png)
-
-每天新增2500病例，大陸疫情再次爆發💥！曾光：超SARS百倍不止😱！日本也被封口🤐：10月已知病毒洩漏😈不許外傳！習手諭洩密，中共自詡「大國擔當【新聞看點 李沐陽 】
 #### 热点动态文章
 
 [民间传说：梦里地狱走一遭](https://github.com/Hongyu91/cecjy/issues/217#issue-592416142)
@@ -46,6 +39,14 @@
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
+
+#### 即时视频（打开后加载2～3秒，刷新页面可观看）
+
+点文字播放：[大紀元 — 新聞看點](https://web.ptbi.gq/watch?v=JW6EFel6FCE)
+
+![sptu1](https://user-images.githubusercontent.com/61768866/78326697-9b172a00-75ad-11ea-872e-7e638114dbac.png)
+
+每天新增2500病例，大陸疫情再次爆發💥！曾光：超SARS百倍不止😱！日本也被封口🤐：10月已知病毒洩漏😈不許外傳！習手諭洩密，中共自詡「大國擔當【新聞看點 李沐陽 】
 
 #### 推荐下载最新翻墙软件：
 
