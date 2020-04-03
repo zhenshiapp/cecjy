@@ -42,7 +42,7 @@
 
 #### 即时视频
 
-点击访问：[快醒醒——致所有迷中的世人](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
+点击访问：[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
 
 点击访问：[大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/227#issue-593305340)
 
