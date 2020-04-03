@@ -4,11 +4,9 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-#### 视频天地
+#### 点图片播放：微电影：希望的声音，希望喜欢！
 
-点击播放： [武汉肺炎电影《危难时刻》](http://dwz.sh/KlAi6) 
-
-点击播放：[微电影：希望的声音](https://is.gd/aDQsXV)
+[![sptu1](https://user-images.githubusercontent.com/61768866/78321532-d78f5980-759e-11ea-8fb9-6ec797fd8665.png)](https://is.gd/aDQsXV)
 
 #### 热点动态文章
 
