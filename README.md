@@ -96,12 +96,12 @@
 [![tjp11](https://user-images.githubusercontent.com/61768866/76388286-bb373d00-63a3-11ea-9d08-d0616c87a5ee.png)](https://github.com/Hongyu91/cecjy/files/4316342/default.zip)
 [![tjp12](https://user-images.githubusercontent.com/61768866/76388709-b030dc80-63a4-11ea-8a52-683d9a546140.png)](https://github.com/Hongyu91/cecjy/files/4316363/default.zip)
 
-# 明慧周报：大陆版（第七九零期）
+# 明慧周报：中国版（第七九一期）
 
-![image](https://user-images.githubusercontent.com/61768866/77738308-92bd6d00-704a-11ea-8778-68ac1dfd4539.png)
-![image](https://user-images.githubusercontent.com/61768866/77738455-d57f4500-704a-11ea-9cb7-65cd3838a939.png)
-![image](https://user-images.githubusercontent.com/61768866/77738518-f182e680-704a-11ea-8662-bf2ff844b67f.png)
-![image](https://user-images.githubusercontent.com/61768866/77738557-05c6e380-704b-11ea-9e88-a800af2ceae7.png)
+![image](https://user-images.githubusercontent.com/61768866/78334755-e980f480-75be-11ea-9c64-14d5243d0218.png)
+![image](https://user-images.githubusercontent.com/61768866/78334798-f998d400-75be-11ea-95ba-ba002b5b506c.png)
+![image](https://user-images.githubusercontent.com/61768866/78334831-0a494a00-75bf-11ea-85da-6103d54920ba.png)
+![image](https://user-images.githubusercontent.com/61768866/78334862-17fecf80-75bf-11ea-8b4c-e68ca68b7d88.png)
 
 #### 法轮功基本真相贴图
  
