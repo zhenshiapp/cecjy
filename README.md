@@ -42,7 +42,7 @@
 
 #### 即时视频（打开后加载2～3秒，刷新页面可观看）
 
-点文字播放：[大紀元 — 新聞看點](https://web.ptbi.gq/watch?v=JW6EFel6FCE)
+点击访问：[大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/227#issue-593305340)
 
 ![sptu1](https://user-images.githubusercontent.com/61768866/78326697-9b172a00-75ad-11ea-872e-7e638114dbac.png)
 
