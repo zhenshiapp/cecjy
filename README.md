@@ -48,6 +48,22 @@
 
 每天新增2500病例，大陸疫情再次爆發💥！曾光：超SARS百倍不止😱！日本也被封口🤐：10月已知病毒洩漏😈不許外傳！習手諭洩密，中共自詡「大國擔當【新聞看點 李沐陽 】
 
+# 明慧周报：中国版（第七九一期）
+
+![image](https://user-images.githubusercontent.com/61768866/78334755-e980f480-75be-11ea-9c64-14d5243d0218.png)
+![image](https://user-images.githubusercontent.com/61768866/78334798-f998d400-75be-11ea-95ba-ba002b5b506c.png)
+![image](https://user-images.githubusercontent.com/61768866/78334831-0a494a00-75bf-11ea-85da-6103d54920ba.png)
+![image](https://user-images.githubusercontent.com/61768866/78334862-17fecf80-75bf-11ea-8b4c-e68ca68b7d88.png)
+
+#### 法轮功基本真相贴图
+ 
+![image](https://user-images.githubusercontent.com/61768866/75843311-d6d39e00-5e0d-11ea-97ce-91d578dc452d.png)
+![image](https://user-images.githubusercontent.com/61768866/75843362-ef43b880-5e0d-11ea-8783-74f0aed401da.png)
+![image](https://user-images.githubusercontent.com/61768866/75843414-0d111d80-5e0e-11ea-9db8-038a2499ce61.png)
+![image](https://user-images.githubusercontent.com/61768866/75843455-2a45ec00-5e0e-11ea-9776-bc56579dba9a.png)
+![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
+![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
+
 #### 推荐下载最新翻墙软件：
 
 [自由门7.78版电脑版](https://github.com/Hongyu91/cecjy/files/4353481/fg778r.zip) |
@@ -95,22 +111,6 @@
 [![tip10](https://user-images.githubusercontent.com/61768866/76387981-fc7b1d00-63a2-11ea-8808-b97bd26ebe42.png)](https://github.com/Hongyu91/cecjy/files/4316323/default.zip)
 [![tjp11](https://user-images.githubusercontent.com/61768866/76388286-bb373d00-63a3-11ea-9d08-d0616c87a5ee.png)](https://github.com/Hongyu91/cecjy/files/4316342/default.zip)
 [![tjp12](https://user-images.githubusercontent.com/61768866/76388709-b030dc80-63a4-11ea-8a52-683d9a546140.png)](https://github.com/Hongyu91/cecjy/files/4316363/default.zip)
-
-# 明慧周报：中国版（第七九一期）
-
-![image](https://user-images.githubusercontent.com/61768866/78334755-e980f480-75be-11ea-9c64-14d5243d0218.png)
-![image](https://user-images.githubusercontent.com/61768866/78334798-f998d400-75be-11ea-95ba-ba002b5b506c.png)
-![image](https://user-images.githubusercontent.com/61768866/78334831-0a494a00-75bf-11ea-85da-6103d54920ba.png)
-![image](https://user-images.githubusercontent.com/61768866/78334862-17fecf80-75bf-11ea-8b4c-e68ca68b7d88.png)
-
-#### 法轮功基本真相贴图
- 
-![image](https://user-images.githubusercontent.com/61768866/75843311-d6d39e00-5e0d-11ea-97ce-91d578dc452d.png)
-![image](https://user-images.githubusercontent.com/61768866/75843362-ef43b880-5e0d-11ea-8783-74f0aed401da.png)
-![image](https://user-images.githubusercontent.com/61768866/75843414-0d111d80-5e0e-11ea-9db8-038a2499ce61.png)
-![image](https://user-images.githubusercontent.com/61768866/75843455-2a45ec00-5e0e-11ea-9776-bc56579dba9a.png)
-![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
-![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
 #### 三退联系邮箱 lianyu291@gmail.com
 
