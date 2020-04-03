@@ -4,7 +4,7 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-点图片或文字播放微电影：[希望的声音](https://is.gd/aDQsXV)
+点图片或文字播放微电影：[希望的声音](https://is.gd/aDQsXV)（打开缓冲后点三角形按钮播放）
 
 [![sptu1](https://user-images.githubusercontent.com/61768866/78322002-1671df00-75a0-11ea-9762-af30c76123de.png)](https://is.gd/aDQsXV)
 
