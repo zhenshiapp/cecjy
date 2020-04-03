@@ -4,9 +4,9 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-点图片播放微电影：希望的声音
+点图片或文字播放微电影：[希望的声音](https://is.gd/aDQsXV)
 
-[![sptu1](https://user-images.githubusercontent.com/61768866/78321532-d78f5980-759e-11ea-8fb9-6ec797fd8665.png)](https://is.gd/aDQsXV)
+[![sptu1](https://user-images.githubusercontent.com/61768866/78322002-1671df00-75a0-11ea-9762-af30c76123de.png)](https://is.gd/aDQsXV)
 
 #### 热点动态文章
 
