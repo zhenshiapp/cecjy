@@ -4,7 +4,7 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-#### 点图片播放：微电影：希望的声音，希望喜欢！
+#### 点图片播放微电影：希望的声音
 
 [![sptu1](https://user-images.githubusercontent.com/61768866/78321532-d78f5980-759e-11ea-8fb9-6ec797fd8665.png)](https://is.gd/aDQsXV)
 
