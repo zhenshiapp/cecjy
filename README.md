@@ -6,7 +6,7 @@
 
 #### 即时视频（打开后加载2～3秒，刷新页面可观看）
 
-点击播放：[大紀元 — 新聞看點](https://web.ptbi.gq/watch?v=JW6EFel6FCE)
+点文字播放：[大紀元 — 新聞看點](https://web.ptbi.gq/watch?v=JW6EFel6FCE)
 
 ![sptu1](https://user-images.githubusercontent.com/61768866/78326697-9b172a00-75ad-11ea-872e-7e638114dbac.png)
 
