@@ -40,7 +40,7 @@
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
-#### 即时视频（打开后加载2～3秒，刷新页面可观看）
+#### 即时视频
 
 点击访问：[大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/227#issue-593305340)
 
