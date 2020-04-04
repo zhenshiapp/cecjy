@@ -42,9 +42,7 @@
 
 #### 即时视频
 
-点击访问：[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
-
-点击访问：[大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/227#issue-593305340)
+点击访问：[千年之緣!](https://github.com/Hongyu91/cecjy/issues/231#issue-593724077)
 
 # 明慧周报：中国版（第七九一期）
 
