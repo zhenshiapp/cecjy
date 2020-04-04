@@ -6,17 +6,17 @@
 
 #### 热点动态文章
 
+[看来武汉肺炎真的是长眼睛的](https://github.com/Hongyu91/cecjy/issues/232#issue-593769062)
+
+[疫情肆虐　纽约为何是重灾区？](https://github.com/Hongyu91/cecjy/issues/234#issue-593771651)
+
+[福建南平市浦城县公检法人员恶行与恶报](https://github.com/Hongyu91/cecjy/issues/235#issue-593771997)
+
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220)
 
 [肖永芬在吉林女子监狱被迫害致死的情况](https://github.com/Hongyu91/cecjy/issues/224#issue-593182016)
 
 [国家评论：别让中共利用疫情的阴谋得逞](https://github.com/Hongyu91/cecjy/issues/225#issue-593183634)
-
-[民间传说：梦里地狱走一遭](https://github.com/Hongyu91/cecjy/issues/217#issue-592416142)
-
-[两个司机喊：法轮大法好 真善忍好](https://github.com/Hongyu91/cecjy/issues/218#issue-592417548)
-
-[曝光辽宁省营口市国保支队队长张继的恶行](https://github.com/Hongyu91/cecjy/issues/219#issue-592419332)
 
 #### 主页选文
 
