@@ -42,8 +42,8 @@
 
 #### 即时视频
 
-点击访问：[武汉肺炎电影《危难时刻》](http://dwz.sh/KlAi6)
-点击访问：[可贵的中华儿女，我们为什么劝您三退？](https://web.ptbi.gq/watch?v=I8ewn3VK2gY&feature=youtu.be)
+点击访问：[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842)
+点击访问：[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
 点击访问：[千年之緣](https://github.com/Hongyu91/cecjy/issues/231#issue-593724077)
 
 ### 声明三退可点击： [办理三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
