@@ -74,6 +74,8 @@
 [自由门安卓版](https://github.com/Hongyu91/cecjy/files/4315538/fgma.zip) |
 [无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip) |
 
+### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
+
 #### 推荐二维条码下载翻墙软件
 
 ![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
