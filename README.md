@@ -46,7 +46,7 @@
 点击访问：[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
 点击访问：[千年之緣](https://github.com/Hongyu91/cecjy/issues/231#issue-593724077)
 
-### 声明三退可点击： [办理三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
+### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 # 明慧周报：中国版（第七九一期）
 
@@ -112,7 +112,7 @@
 [![tjp11](https://user-images.githubusercontent.com/61768866/76388286-bb373d00-63a3-11ea-9d08-d0616c87a5ee.png)](https://github.com/Hongyu91/cecjy/files/4316342/default.zip)
 [![tjp12](https://user-images.githubusercontent.com/61768866/76388709-b030dc80-63a4-11ea-8a52-683d9a546140.png)](https://github.com/Hongyu91/cecjy/files/4316363/default.zip)
 
-### 声明三退可点击： [办理三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
+### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 #### 收藏本站 https://git.io/JvaVR  
 
