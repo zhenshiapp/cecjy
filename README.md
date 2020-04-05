@@ -4,6 +4,8 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
+### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
+
 #### 热点动态文章
 
 [中共邪党加强用魔爪控制孩子们](https://github.com/Hongyu91/cecjy/issues/243#issue-594311777)
