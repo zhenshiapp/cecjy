@@ -32,9 +32,9 @@
 [劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
 [可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
 
+[疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
-[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
-[2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
+[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123)
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
