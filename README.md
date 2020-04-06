@@ -8,23 +8,23 @@
 
 ##### 警示：《九评共产党》一书中揭示的历史教训是：共产党的任何承诺都不能相信，任何保证都不会兑现。谁在什么问题上相信了共产党，就会在什么问题上送掉小命。 http://goo.gl/06OoF
 
-#### 点击访问即时视频：[《石濤聚焦》「對比全球武漢肺炎百萬人確診與死亡比例圖表：習總造假已至純傻純孽」英國首相強森高燒不退住院 智庫提出向中共國索賠6.5兆億美元 控其違反國際法《國際衛生條例》（05/04）](https://github.com/Hongyu91/cecjy/issues/246#issue-594795812)
+#### 点击访问：[劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843)
 
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 #### 热点动态文章
+
+[善念是得救的希望](https://github.com/Hongyu91/cecjy/issues/248#issue-594900717)
+
+[法轮大法神奇故事（43）一个血癌病人的心声](https://github.com/Hongyu91/cecjy/issues/249#issue-594902696)
+
+[“全部都是假的”与“天安门自焚”伪案](https://github.com/Hongyu91/cecjy/issues/250#issue-594905074)
 
 [中共邪党加强用魔爪控制孩子们](https://github.com/Hongyu91/cecjy/issues/243#issue-594311777)
 
 [中共掩盖、甩锅与造假加速世界的觉醒](https://github.com/Hongyu91/cecjy/issues/241#issue-594308759)
 
 [看来武汉肺炎真的是长眼睛的](https://github.com/Hongyu91/cecjy/issues/232#issue-593769062)
-
-[疫情肆虐　纽约为何是重灾区？](https://github.com/Hongyu91/cecjy/issues/234#issue-593771651)
-
-[武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220)
-
-[肖永芬在吉林女子监狱被迫害致死的情况](https://github.com/Hongyu91/cecjy/issues/224#issue-593182016)
 
 #### 主页选文
 
