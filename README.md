@@ -8,7 +8,7 @@
 
 ##### 《九评共产党》一书中揭示的历史的教训就是：共产党的任何承诺都不能相信，任何保证都不会兑现。谁在什么问题上相信了共产党，就会在什么问题上送掉小命。 http://goo.gl/06OoF
 
-#### 点击访问：[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
+#### 点击访问即时视频：[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
 
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
@@ -47,12 +47,6 @@
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
-
-#### 即时视频
-
-点击访问：[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842)
-点击访问：[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
-点击访问：[千年之緣](https://github.com/Hongyu91/cecjy/issues/231#issue-593724077)
 
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
