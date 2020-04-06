@@ -28,6 +28,10 @@
 
 #### 主页选文
 
+[神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786) |
+[劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
+[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
+
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [2020新年不干胶](https://github.com/Hongyu91/cecjy/issues/3#issue-575143199)
