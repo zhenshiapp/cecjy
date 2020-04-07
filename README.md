@@ -14,17 +14,17 @@
 
 #### 热点动态文章
 
+[中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131)
+
+[中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246)
+
+[一人得法　全家受益　真实不虚](https://github.com/Hongyu91/cecjy/issues/257#issue-595698379)
+
 [善念是得救的希望](https://github.com/Hongyu91/cecjy/issues/248#issue-594900717)
 
 [法轮大法神奇故事（43）一个血癌病人的心声](https://github.com/Hongyu91/cecjy/issues/249#issue-594902696)
 
 [“全部都是假的”与“天安门自焚”伪案](https://github.com/Hongyu91/cecjy/issues/250#issue-594905074)
-
-[中共邪党加强用魔爪控制孩子们](https://github.com/Hongyu91/cecjy/issues/243#issue-594311777)
-
-[中共掩盖、甩锅与造假加速世界的觉醒](https://github.com/Hongyu91/cecjy/issues/241#issue-594308759)
-
-[看来武汉肺炎真的是长眼睛的](https://github.com/Hongyu91/cecjy/issues/232#issue-593769062)
 
 #### 主页精选
 
@@ -32,9 +32,13 @@
 [【微電影】希望的聲音](https://github.com/Hongyu91/cecjy/issues/247#issue-594898347) |
 [難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
 
-[神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786) |
+[中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
+[中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246) |
+[神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786)
+
 [劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
-[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455)
+[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
+[一人得法　全家受益　真实不虚](https://github.com/Hongyu91/cecjy/issues/257#issue-595698379)
 
 [疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
