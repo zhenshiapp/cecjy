@@ -26,7 +26,11 @@
 
 [看来武汉肺炎真的是长眼睛的](https://github.com/Hongyu91/cecjy/issues/232#issue-593769062)
 
-#### 主页选文
+#### 主页精选
+
+[[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
+[【微電影】希望的聲音](https://github.com/Hongyu91/cecjy/issues/247#issue-594898347) |
+[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
 
 [神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786) |
 [劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
