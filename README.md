@@ -8,7 +8,7 @@
 
 ##### 警示：《九评共产党》一书中揭示的历史教训是：共产党的任何承诺都不能相信，任何保证都不会兑现。谁在什么问题上相信了共产党，就会在什么问题上送掉小命。 http://goo.gl/06OoF
 
-#### 点击访问：[劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843)
+#### 点击访问即时视频：[冥府为一次地震筹备五十年](https://github.com/Hongyu91/cecjy/issues/254#issue-595528890)
 
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
