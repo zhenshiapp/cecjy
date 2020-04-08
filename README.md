@@ -18,7 +18,13 @@
 
 #### 热点动态文章
 
+[前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227)
+
+[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
+
 [影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
+
+[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
 
 [一场建三江事件，解体全国洗脑班](https://github.com/Hongyu91/cecjy/issues/263#issue-596388414)
 
@@ -28,9 +34,11 @@
 
 [中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246)
 
-[一人得法　全家受益　真实不虚](https://github.com/Hongyu91/cecjy/issues/257#issue-595698379)
-
 #### 主页精选
+
+[前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
+[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266) |
+[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
 
 [[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
 [【微電影】希望的聲音](https://github.com/Hongyu91/cecjy/issues/247#issue-594898347) |
