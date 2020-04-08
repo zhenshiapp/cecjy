@@ -18,17 +18,17 @@
 
 #### 热点动态文章
 
+[影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
+
+[一场建三江事件，解体全国洗脑班](https://github.com/Hongyu91/cecjy/issues/263#issue-596388414)
+
+[台湾防疫成功独步世界，源于正气内存](https://github.com/Hongyu91/cecjy/issues/262#issue-596386259)
+
 [中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131)
 
 [中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246)
 
 [一人得法　全家受益　真实不虚](https://github.com/Hongyu91/cecjy/issues/257#issue-595698379)
-
-[善念是得救的希望](https://github.com/Hongyu91/cecjy/issues/248#issue-594900717)
-
-[法轮大法神奇故事（43）一个血癌病人的心声](https://github.com/Hongyu91/cecjy/issues/249#issue-594902696)
-
-[“全部都是假的”与“天安门自焚”伪案](https://github.com/Hongyu91/cecjy/issues/250#issue-594905074)
 
 #### 主页精选
 
@@ -42,7 +42,7 @@
 
 [劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
 [可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
-[一人得法　全家受益　真实不虚](https://github.com/Hongyu91/cecjy/issues/257#issue-595698379)
+[影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
 
 [疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
