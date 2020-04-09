@@ -32,13 +32,13 @@
 
 #### 主页精选
 
-[前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
-[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266) |
-[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
-
 [[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
 [【微電影】希望的聲音](https://github.com/Hongyu91/cecjy/issues/247#issue-594898347) |
 [難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
+
+[前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
+[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266) |
+[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
 
 [中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
 [中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246) |
