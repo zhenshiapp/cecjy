@@ -14,6 +14,12 @@
 
 #### 热点动态文章
 
+[澳洲联邦议员呼吁各国联手追责中共](https://github.com/Hongyu91/cecjy/issues/269#issue-597117414)
+
+[大疫面前 正常国家的政府们怎么做？](https://github.com/Hongyu91/cecjy/issues/270#issue-597121275)
+
+[对“武汉解封”的一点思考](https://github.com/Hongyu91/cecjy/issues/271#issue-597122832)
+
 [前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227)
 
 [武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
@@ -23,12 +29,6 @@
 [人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
 
 [一场建三江事件，解体全国洗脑班](https://github.com/Hongyu91/cecjy/issues/263#issue-596388414)
-
-[台湾防疫成功独步世界，源于正气内存](https://github.com/Hongyu91/cecjy/issues/262#issue-596386259)
-
-[中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131)
-
-[中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246)
 
 #### 主页精选
 
