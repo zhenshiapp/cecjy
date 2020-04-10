@@ -10,6 +10,8 @@
 
 #### 点击访问即时视频：[纽约布鲁克林法轮功游行传真相民众感动欢迎| 首例新冠肺移植肺源来自哪里？](https://github.com/Hongyu91/cecjy/issues/273#issue-597667671)
 
+#### 点击访问即时视频：[【今日点击】亲吻五星旗也无效 赛尔维亚总统儿子确诊](https://github.com/Hongyu91/cecjy/issues/274#issue-597676658)
+
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 #### 热点动态文章
