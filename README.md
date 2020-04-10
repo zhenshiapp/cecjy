@@ -18,6 +18,12 @@
 
 #### 热点动态文章
 
+[行善积德与明白真相](https://github.com/Hongyu91/cecjy/issues/276#issue-597737287)
+
+[吉林父子被劳教所十天内虐杀](https://github.com/Hongyu91/cecjy/issues/277#issue-597740845)
+
+[台湾教授的震撼和领悟](https://github.com/Hongyu91/cecjy/issues/278#issue-597742826)
+
 [澳洲联邦议员呼吁各国联手追责中共](https://github.com/Hongyu91/cecjy/issues/269#issue-597117414)
 
 [大疫面前 正常国家的政府们怎么做？](https://github.com/Hongyu91/cecjy/issues/270#issue-597121275)
@@ -27,12 +33,6 @@
 [前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227)
 
 [武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
-
-[影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
-
-[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
-
-[一场建三江事件，解体全国洗脑班](https://github.com/Hongyu91/cecjy/issues/263#issue-596388414)
 
 #### 主页精选
 
