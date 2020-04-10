@@ -36,26 +36,25 @@
 
 #### 主页精选
 
-[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348)
-[[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
-[【微電影】希望的聲音](https://github.com/Hongyu91/cecjy/issues/247#issue-594898347) |
-[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
+[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348) |
+[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
+[[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842)
 
+[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
-[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266) |
-[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
+[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
 
 [中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
 [中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246) |
 [神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786)
 
 [劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
-[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
+[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340) |
 [影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
 
 [疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
-[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123)
+[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
