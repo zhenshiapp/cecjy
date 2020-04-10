@@ -38,7 +38,7 @@
 
 [这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348) |
 [可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
-[[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842)
+[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842)
 
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
