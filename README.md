@@ -8,19 +8,7 @@
 
 ##### 警示：《九评共产党》一书中揭示的历史教训是：共产党的任何承诺都不能相信，任何保证都不会兑现。谁在什么问题上相信了共产党，就会在什么问题上送掉小命。 http://goo.gl/06OoF
 
-#### 观看即时视频
-
-[新世紀影視演員專訪：鄭雪菲｜探尋藝術真諦，捍衛人性良知](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
-
-[原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
-
-[辛灝年妙答挑釁提問 : 我愛中国 你愛中共](https://github.com/Hongyu91/cecjy/issues/284#issue-598123476)
-
-[纽约布鲁克林法轮功游行传真相民众感动欢迎| 首例新冠肺移植肺源来自哪里？](https://github.com/Hongyu91/cecjy/issues/273#issue-597667671)
-
-[【今日点击】亲吻五星旗也无效 赛尔维亚总统儿子确诊](https://github.com/Hongyu91/cecjy/issues/274#issue-597676658)
-
-[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348)
+#### 点击访问即时视频  [新世紀影視演員專訪：鄭雪菲｜探尋藝術真諦，捍衛人性良知](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
 
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
@@ -43,10 +31,6 @@
 [武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
 
 #### 主页精选
-
-[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348) |
-[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
-[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842)
 
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
