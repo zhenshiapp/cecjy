@@ -78,8 +78,6 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
-### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
-
 #### 推荐下载最新翻墙软件：
 
 [自由门7.78版电脑版](https://github.com/Hongyu91/cecjy/files/4353481/fg778r.zip) |
