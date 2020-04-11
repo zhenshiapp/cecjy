@@ -4,10 +4,6 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
-#### 观看视频：[新世紀影視演員專訪：鄭雪菲｜探尋藝術真諦，捍衛人性良知](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
-
-### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
-
 #### 热点动态文章
 
 [行善积德与明白真相](https://github.com/Hongyu91/cecjy/issues/276#issue-597737287)
@@ -59,6 +55,8 @@
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
+
+#### 观看视频：[新世紀影視演員專訪：鄭雪菲｜探尋藝術真諦，捍衛人性良知](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
 
 ### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
