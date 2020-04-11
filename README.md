@@ -4,6 +4,8 @@
 
 #### 收藏本站 https://git.io/JvaVR
 
+### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
+
 #### 热点动态文章
 
 [行善积德与明白真相](https://github.com/Hongyu91/cecjy/issues/276#issue-597737287)
