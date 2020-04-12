@@ -16,6 +16,10 @@
 
 [妻子疑被活摘器官　丈夫遭灭口](https://github.com/Hongyu91/cecjy/issues/291#issue-598427248)
 
+[美国参议员科顿：要象对待恶疾一样对待中共](https://github.com/Hongyu91/cecjy/issues/293#issue-598467475)
+
+[警察说：“進去吧，跟炼法轮功的学学怎样做人”](https://github.com/Hongyu91/cecjy/issues/292#issue-598429023)
+
 [省长坐镇火化还有体温的她](https://github.com/Hongyu91/cecjy/issues/287#issue-598226100)
 
 [迷茫之中有曙光](https://github.com/Hongyu91/cecjy/issues/285#issue-598224584)
