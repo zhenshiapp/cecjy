@@ -54,7 +54,7 @@
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
-#### 观看视频：[新世紀影視演員專訪：鄭雪菲｜探尋藝術真諦，捍衛人性良知](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
+#### 观看视频：[【百年红祸】特别专题 第十四集：折射中国知识分子命运的王实味](https://github.com/Hongyu91/cecjy/issues/288#issue-598395092)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
