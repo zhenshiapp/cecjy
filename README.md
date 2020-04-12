@@ -60,7 +60,13 @@
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
-#### 观看视频：[【百年红祸】特别专题 第十四集：折射中国知识分子命运的王实味](https://github.com/Hongyu91/cecjy/issues/288#issue-598395092)
+#### 观看视频
+
+[辛灝年妙答挑釁提問 : 我愛中国 你愛中共](https://github.com/Hongyu91/cecjy/issues/284#issue-598123476)
+
+[原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
+
+[【百年红祸】特别专题 第十四集：折射中国知识分子命运的王实味](https://github.com/Hongyu91/cecjy/issues/288#issue-598395092)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
