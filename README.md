@@ -2,6 +2,10 @@
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
+免翻墙！请复制网址在浏览器中打开！
+
+晓莲小站为你提供真实的讯息，让你了解不为人知的事实真相！
+
 #### 收藏本站 https://git.io/JvaVR
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
