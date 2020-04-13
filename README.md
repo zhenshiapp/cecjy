@@ -24,7 +24,7 @@
 
 [美国参议员科顿：要象对待恶疾一样对待中共](https://github.com/Hongyu91/cecjy/issues/293#issue-598467475)
 
-[警察说：“進去吧，跟炼法轮功的学学怎样做人”](https://github.com/Hongyu91/cecjy/issues/292#issue-598429023)
+[瘟疫促美国反思　多部门联手对抗中共舆论战](https://github.com/Hongyu91/cecjy/issues/301#issue-598759925)
 
 #### 主页精选
 
