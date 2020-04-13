@@ -18,7 +18,7 @@
 
 [“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492)
 
-[从“中共病毒”这一名称找出防疫方案 ](https://github.com/Hongyu91/cecjy/issues/290#issue-598426385)
+[辽宁桓仁县华来镇派出所所长朱哨兵遭恶报丧命](https://github.com/Hongyu91/cecjy/issues/298#issue-598740785)
 
 [妻子疑被活摘器官　丈夫遭灭口](https://github.com/Hongyu91/cecjy/issues/291#issue-598427248)
 
