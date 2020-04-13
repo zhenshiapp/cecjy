@@ -28,9 +28,9 @@
 
 #### 主页精选
 
-[“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492)
+[“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492) |
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802) |
-[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
+[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920)
 
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [对大法的态度 决定了两岸政体的命运](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412) |
