@@ -12,7 +12,7 @@
 
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
-[对大法的态度 决定了两岸政体的命运 ](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412)
+[对大法的态度 决定了两岸政体的命运](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412)
 
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920)
 
@@ -33,7 +33,7 @@
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
 
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
-[对大法的态度 决定了两岸政体的命运 ](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412 |
+[对大法的态度 决定了两岸政体的命运](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412) |
 [武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
 
 [中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
