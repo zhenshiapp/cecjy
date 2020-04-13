@@ -62,11 +62,7 @@
 
 #### 观看视频
 
-[辛灝年妙答挑釁提問 : 我愛中国 你愛中共](https://github.com/Hongyu91/cecjy/issues/284#issue-598123476)
-
-[原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
-
-[【百年红祸】特别专题 第十四集：折射中国知识分子命运的王实味](https://github.com/Hongyu91/cecjy/issues/288#issue-598395092)
+[“好一似，食盡鳥投林， 落了片白茫茫大地真乾淨。 ” 賈府諸子弟的德行敗壞，導致最終家破人散的結局。](https://github.com/Hongyu91/cecjy/issues/294#issue-598640590)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
