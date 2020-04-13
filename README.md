@@ -68,6 +68,8 @@
 
 #### 观看视频
 
+[【細語人生】縱橫破解：預言與人生-上集 The Stories of Life](https://github.com/Hongyu91/cecjy/issues/302#issue-598819565)
+
 [“好一似，食盡鳥投林， 落了片白茫茫大地真乾淨。 ” 賈府諸子弟的德行敗壞，導致最終家破人散的結局。](https://github.com/Hongyu91/cecjy/issues/294#issue-598640590)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
