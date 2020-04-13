@@ -10,6 +10,12 @@
 
 #### 热点动态文章
 
+[大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
+
+[对大法的态度 决定了两岸政体的命运 ](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412)
+
+[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920)
+
 [“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492)
 
 [从“中共病毒”这一名称找出防疫方案 ](https://github.com/Hongyu91/cecjy/issues/290#issue-598426385)
@@ -20,16 +26,14 @@
 
 [警察说：“進去吧，跟炼法轮功的学学怎样做人”](https://github.com/Hongyu91/cecjy/issues/292#issue-598429023)
 
-[省长坐镇火化还有体温的她](https://github.com/Hongyu91/cecjy/issues/287#issue-598226100)
-
-[迷茫之中有曙光](https://github.com/Hongyu91/cecjy/issues/285#issue-598224584)
-
-[迫害正信招疫劫　特效药何在？](https://github.com/Hongyu91/cecjy/issues/286#issue-598225390)
-
 #### 主页精选
 
+[“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492)
+[大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802) |
+[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
+
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
-[前凤凰网记者：不信中共谎言 相信法轮功真相](https://github.com/Hongyu91/cecjy/issues/265#issue-596398227) |
+[对大法的态度 决定了两岸政体的命运 ](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412 |
 [武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
 
 [中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
