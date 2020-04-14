@@ -68,6 +68,8 @@
 
 #### 观看视频
 
+[原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
+
 [【細語人生】縱橫破解：預言與人生-上集 The Stories of Life](https://github.com/Hongyu91/cecjy/issues/302#issue-598819565)
 
 [“好一似，食盡鳥投林， 落了片白茫茫大地真乾淨。 ” 賈府諸子弟的德行敗壞，導致最終家破人散的結局。](https://github.com/Hongyu91/cecjy/issues/294#issue-598640590)
