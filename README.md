@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[辽宁法轮功学员李凤美遭多年迫害离世](https://github.com/Hongyu91/cecjy/issues/306#issue-599365277)
+
 [中共公检法 迫害善良人](https://github.com/Hongyu91/cecjy/issues/303#issue-599346935)
 
 [【明慧特稿】错爱](https://github.com/Hongyu91/cecjy/issues/304#issue-599350232)
