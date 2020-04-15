@@ -12,6 +12,14 @@
 
 #### 热点动态文章
 
+[浅谈神的存在](https://github.com/Hongyu91/cecjy/issues/311#issue-600116958)
+
+[大疫前的保命诀](https://github.com/Hongyu91/cecjy/issues/308#issue-600111465)
+
+[国际社会追责 中宣部紧急通知脱钩](https://github.com/Hongyu91/cecjy/issues/309#issue-600114463)
+
+[湖南省步云桥镇镇长和书记遭报应被撤职](https://github.com/Hongyu91/cecjy/issues/310#issue-600115747)
+
 [辽宁法轮功学员李凤美遭多年迫害离世](https://github.com/Hongyu91/cecjy/issues/306#issue-599365277)
 
 [中共公检法 迫害善良人](https://github.com/Hongyu91/cecjy/issues/303#issue-599346935)
@@ -21,14 +29,6 @@
 [【明慧特稿】所谓“中国免费、美国自费” ](https://github.com/Hongyu91/cecjy/issues/305#issue-599353701)
 
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
-
-[对大法的态度 决定了两岸政体的命运](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412)
-
-[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920)
-
-[“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492)
-
-[辽宁桓仁县华来镇派出所所长朱哨兵遭恶报丧命](https://github.com/Hongyu91/cecjy/issues/298#issue-598740785)
 
 #### 主页精选
 
