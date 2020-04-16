@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[妻死夫残　老幼申冤无门、孤苦离世](https://github.com/Hongyu91/cecjy/issues/317#issue-600849824)
+
 [震撼人心的九字真言](https://github.com/Hongyu91/cecjy/issues/313#issue-600833564)
 
 [魔鬼在细节中：聚焦“中共疫情数据”](https://github.com/Hongyu91/cecjy/issues/314#issue-600838875)
@@ -19,8 +21,6 @@
 [小骗易躲 大骗难防](https://github.com/Hongyu91/cecjy/issues/315#issue-600841002)
 
 [莫言世间无报应 ](https://github.com/Hongyu91/cecjy/issues/316#issue-600844205)
-
-[浅谈神的存在](https://github.com/Hongyu91/cecjy/issues/311#issue-600116958)
 
 [大疫前的保命诀](https://github.com/Hongyu91/cecjy/issues/308#issue-600111465)
 
