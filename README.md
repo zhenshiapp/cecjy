@@ -72,6 +72,8 @@
 
 #### 观看视频
 
+[【环球直击】4月16日完整版（1）](https://github.com/Hongyu91/cecjy/issues/320#issue-601000780)
+
 [大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/312#issue-600718284)
 
 [原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
