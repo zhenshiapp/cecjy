@@ -12,6 +12,14 @@
 
 #### 热点动态文章
 
+[震撼人心的九字真言](https://github.com/Hongyu91/cecjy/issues/313#issue-600833564)
+
+[魔鬼在细节中：聚焦“中共疫情数据”](https://github.com/Hongyu91/cecjy/issues/314#issue-600838875)
+
+[小骗易躲 大骗难防](https://github.com/Hongyu91/cecjy/issues/315#issue-600841002)
+
+[莫言世间无报应 ](https://github.com/Hongyu91/cecjy/issues/316#issue-600844205)
+
 [浅谈神的存在](https://github.com/Hongyu91/cecjy/issues/311#issue-600116958)
 
 [大疫前的保命诀](https://github.com/Hongyu91/cecjy/issues/308#issue-600111465)
@@ -21,14 +29,6 @@
 [湖南省步云桥镇镇长和书记遭报应被撤职](https://github.com/Hongyu91/cecjy/issues/310#issue-600115747)
 
 [辽宁法轮功学员李凤美遭多年迫害离世](https://github.com/Hongyu91/cecjy/issues/306#issue-599365277)
-
-[中共公检法 迫害善良人](https://github.com/Hongyu91/cecjy/issues/303#issue-599346935)
-
-[【明慧特稿】错爱](https://github.com/Hongyu91/cecjy/issues/304#issue-599350232)
-
-[【明慧特稿】所谓“中国免费、美国自费” ](https://github.com/Hongyu91/cecjy/issues/305#issue-599353701)
-
-[大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
 #### 主页精选
 
@@ -50,7 +50,7 @@
 
 [疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
-[人不可糊涂　神不可侵犯 ](https://github.com/Hongyu91/cecjy/issues/267#issue-596407727)
+[魔鬼在细节中：聚焦“中共疫情数据”](https://github.com/Hongyu91/cecjy/issues/314#issue-600838875)
 
 [十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
