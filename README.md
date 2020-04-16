@@ -72,6 +72,8 @@
 
 #### 观看视频
 
+[世界憤怒追責中共！](https://github.com/Hongyu91/cecjy/issues/322#issue-601067159)
+
 [中国歌王关贵敏的故事](https://github.com/Hongyu91/cecjy/issues/321#issue-601053135)
 
 [【环球直击】4月16日完整版（1）](https://github.com/Hongyu91/cecjy/issues/320#issue-601000780)
