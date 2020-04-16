@@ -70,7 +70,7 @@
 
 #### 观看视频
 
-[回應華春瑩 美國FCC委員卡爾揭中共謊言](https://github.com/Hongyu91/cecjy/issues/307#issue-599927224)
+[大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/312#issue-600718284)
 
 [原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
 
