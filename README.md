@@ -78,8 +78,6 @@
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
-《九评共产党》揭示：共产党的任何承诺都不能相信，任何保证都不会兑现。谁在什么问题上相信了共产党，就会在什么问题上送掉小命。点击链接阅读：http://goo.gl/06OoF
-
 # 明慧周报：中国版（第七九二期）
 
 ![image](https://user-images.githubusercontent.com/61768866/78972549-9bc93680-7b40-11ea-8867-f4a54f7f52c0.png)
