@@ -32,6 +32,8 @@
 
 #### 主页精选
 
+[传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317)
+
 [“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492) |
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802) |
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920)
