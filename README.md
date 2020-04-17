@@ -75,11 +75,11 @@
 
 [《石濤聚焦》「哈爾濱二次大爆發 很多小區今天開始封城」哈一大越千人排隊就診 染病女工無moneybag就醫跳樓 重新發放出行證 高速警察“從哪兒來回哪去！哈爾濱封城了！”（16/04）](https://github.com/Hongyu91/cecjy/issues/330#issue-601839315)
 
+[紐約男子莫名倒地😱，全球200萬染病；川普停世衛資金，安徽男子倒地抽搐，牡丹江封城？中共向美議會要「表揚」🤔；華人回家個中共不收變「偷渡」😢；天有異象：巨大日暈☀️出現【新聞看點 李沐陽04.15】](https://github.com/Hongyu91/cecjy/issues/312#issue-600718284)
+
 [世界憤怒追責中共！](https://github.com/Hongyu91/cecjy/issues/322#issue-601067159)
 
 [中国歌王关贵敏的故事](https://github.com/Hongyu91/cecjy/issues/321#issue-601053135)
-
-[大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/312#issue-600718284)
 
 [原创歌曲《走出劫难》疫情中如何得救？如何治愈病毒，走出瘟疫的劫难？](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958)
 
