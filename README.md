@@ -36,8 +36,8 @@
 [传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317)
 
 [西方开仓放粮　中共画饼充饥](https://github.com/Hongyu91/cecjy/issues/329#issue-601788859) |
-[大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802) |
-[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920)
+[谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
+[大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
 [对大法的态度 决定了两岸政体的命运](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412) |
