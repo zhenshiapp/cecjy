@@ -73,11 +73,11 @@
 
 #### 观看视频
 
+[《石濤聚焦》「哈爾濱二次大爆發 很多小區今天開始封城」哈一大越千人排隊就診 染病女工無moneybag就醫跳樓 重新發放出行證 高速警察“從哪兒來回哪去！哈爾濱封城了！”（16/04）](https://github.com/Hongyu91/cecjy/issues/330#issue-601839315)
+
 [世界憤怒追責中共！](https://github.com/Hongyu91/cecjy/issues/322#issue-601067159)
 
 [中国歌王关贵敏的故事](https://github.com/Hongyu91/cecjy/issues/321#issue-601053135)
-
-[【环球直击】4月16日完整版（1）](https://github.com/Hongyu91/cecjy/issues/320#issue-601000780)
 
 [大紀元 — 新聞看點](https://github.com/Hongyu91/cecjy/issues/312#issue-600718284)
 
