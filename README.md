@@ -2,7 +2,7 @@
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
-#### 本站为你提供真实的讯息，网友尽快联系我做三退，躲过未来大劫。lianyu291@gmail.com
+#### 本站为你提供真实的讯息，网友尽快联系我做三退，躲过未来大劫。lianyu291@gmail.com  电报 @stpa1
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
