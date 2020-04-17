@@ -87,12 +87,12 @@
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
-# 明慧周报：中国版（第七九二期）
+# 明慧周报：中国版（第七九三期）
 
-![image](https://user-images.githubusercontent.com/61768866/78972549-9bc93680-7b40-11ea-8867-f4a54f7f52c0.png)
-![image](https://user-images.githubusercontent.com/61768866/78972579-abe11600-7b40-11ea-8c1b-9278d35663a9.png)
-![image](https://user-images.githubusercontent.com/61768866/78972615-c1564000-7b40-11ea-8e4c-825566b0cfaa.png)
-![image](https://user-images.githubusercontent.com/61768866/78972651-d3d07980-7b40-11ea-97e3-31aa0df08142.png)
+![image](https://user-images.githubusercontent.com/61768866/79545274-00494000-80c3-11ea-8bd4-5e4fcb42be71.png)
+![image](https://user-images.githubusercontent.com/61768866/79545397-31c20b80-80c3-11ea-8a28-7e300e4aaa70.png)
+![image](https://user-images.githubusercontent.com/61768866/79545433-42728180-80c3-11ea-9fa6-07cfb2bebd9f.png)
+![image](https://user-images.githubusercontent.com/61768866/79545478-528a6100-80c3-11ea-9476-1d70bc977538.png)
 
 #### 法轮功基本真相贴图
  
