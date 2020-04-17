@@ -12,6 +12,14 @@
 
 #### 热点动态文章
 
+[妻子沿街喊冤乞讨救夫](https://github.com/Hongyu91/cecjy/issues/327#issue-601772704)
+
+[神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
+
+[17名法轮功学员疫情期间遭迫害离世](https://github.com/Hongyu91/cecjy/issues/325#issue-601767202)
+
+[真实对幻影　美中武肺感染人数对比悬殊](https://github.com/Hongyu91/cecjy/issues/326#issue-601769433)
+
 [妻死夫残　老幼申冤无门、孤苦离世](https://github.com/Hongyu91/cecjy/issues/317#issue-600849824)
 
 [震撼人心的九字真言](https://github.com/Hongyu91/cecjy/issues/313#issue-600833564)
@@ -22,16 +30,9 @@
 
 [莫言世间无报应 ](https://github.com/Hongyu91/cecjy/issues/316#issue-600844205)
 
-[大疫前的保命诀](https://github.com/Hongyu91/cecjy/issues/308#issue-600111465)
-
-[国际社会追责 中宣部紧急通知脱钩](https://github.com/Hongyu91/cecjy/issues/309#issue-600114463)
-
-[湖南省步云桥镇镇长和书记遭报应被撤职](https://github.com/Hongyu91/cecjy/issues/310#issue-600115747)
-
-[辽宁法轮功学员李凤美遭多年迫害离世](https://github.com/Hongyu91/cecjy/issues/306#issue-599365277)
-
 #### 主页精选
 
+[妻子沿街喊冤乞讨救夫](https://github.com/Hongyu91/cecjy/issues/327#issue-601772704) |
 [传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317)
 
 [“三退”是生命对善与恶的选择](https://github.com/Hongyu91/cecjy/issues/289#issue-598425492) |
