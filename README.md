@@ -6,7 +6,7 @@
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
-#### 收藏本站 https://git.io/JvaVR
+#### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
@@ -152,6 +152,6 @@
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
-#### 收藏本站 https://git.io/JvaVR  
+#### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### [返回顶部](https://github.com/Hongyu91/cecjy)
