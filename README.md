@@ -73,9 +73,11 @@
 
 #### 观看视频
 
-[【环球直击】（4月17日完整版1）](https://github.com/Hongyu91/cecjy/issues/339#issue-602402040)
+[音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464)
 
 [【全球新闻】4月17日完整版](https://github.com/Hongyu91/cecjy/issues/340#issue-602402957)
+
+[【环球直击】（4月17日完整版1）](https://github.com/Hongyu91/cecjy/issues/339#issue-602402040)
 
 [大紀元 — 新聞看點【新聞看點 李沐陽04.17】](https://github.com/Hongyu91/cecjy/issues/336#issue-602398355)
 
@@ -84,6 +86,10 @@
 [今日點擊 （04.18）](https://github.com/Hongyu91/cecjy/issues/338#issue-602400969)
 
 [世界的十字路口 唐浩（2020.4.17）](https://github.com/Hongyu91/cecjy/issues/341#issue-602404791)
+
+[天亮时分(政论天下第152集 20200417)](https://github.com/Hongyu91/cecjy/issues/342#issue-602414383)
+
+[江峰漫談直播20200415第156期](https://github.com/Hongyu91/cecjy/issues/343#issue-602416387)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
