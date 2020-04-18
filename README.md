@@ -157,7 +157,7 @@
 
 #### [返回顶部](https://github.com/Hongyu91/cecjy)
 
-#### 相关链接 
+#### 相关链接 (国内翻墙访问）
 [明慧网](http://www.minghui.org/) |
 [正见网](http://www.zhengjian.org/) |
 [新生网](http://www.xinsheng.net/) |
