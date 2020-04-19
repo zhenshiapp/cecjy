@@ -73,7 +73,7 @@
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
-#### 观看视频
+#### 热点动态视频
 
 [非常好聽的洞簫演奏《人間清流天上來》](https://github.com/Hongyu91/cecjy/issues/357#issue-602660869)
 
