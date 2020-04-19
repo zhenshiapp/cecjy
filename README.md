@@ -93,6 +93,28 @@
 
 [【今日点击】（04.19）](https://github.com/Hongyu91/cecjy/issues/352#issue-602651220)
 
+#### 视频精选
+
+[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
+[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
+[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
+
+[【细语人生】 见证大法的神奇 （第二十一集）](https://github.com/Hongyu91/cecjy/issues/358#issue-602663337) |
+[神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654) |
+[新世紀影視演員專訪：鄭雪菲](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
+
+[大瘟疫當前請珍惜救命的：千年之緣！](https://github.com/Hongyu91/cecjy/issues/231#issue-593724077) |
+[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348) |
+[冥府为一次地震筹备五十年](https://github.com/Hongyu91/cecjy/issues/254#issue-595528890)
+
+[世界憤怒追責中共！](https://github.com/Hongyu91/cecjy/issues/322#issue-601067159) |
+[中国歌王关贵敏的故事](https://github.com/Hongyu91/cecjy/issues/321#issue-601053135) |
+[音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464) 
+
+[原创歌曲《走出劫难》](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958) |
+[【严真点评】外交部大实话](https://github.com/Hongyu91/cecjy/issues/355#issue-602655612) |
+[辛灝年妙答挑釁提問 : 我愛中国 你愛中共](https://github.com/Hongyu91/cecjy/issues/284#issue-598123476) 
+
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 # 明慧周报：中国版（第七九三期）
