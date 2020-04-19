@@ -30,7 +30,7 @@
 
 [神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
 
-#### 主页精选
+#### 文章精选
 
 [妻子沿街喊冤乞讨救夫](https://github.com/Hongyu91/cecjy/issues/327#issue-601772704) |
 [历经“四·二五” 两岸强烈对比](https://github.com/Hongyu91/cecjy/issues/347#issue-602646130) |
