@@ -12,6 +12,14 @@
 
 #### 热点动态文章
 
+[历经“四·二五”　两岸强烈对比](https://github.com/Hongyu91/cecjy/issues/347#issue-602646130)
+
+[疫情持续　英国政要发声问责中共 ](https://github.com/Hongyu91/cecjy/issues/346#issue-602644681)
+
+[善待大法和大法弟子　福报多](https://github.com/Hongyu91/cecjy/issues/348#issue-602646477)
+
+[四川省开江县原防邪办（610）主任漆楚文被举报](https://github.com/Hongyu91/cecjy/issues/349#issue-602646906)
+
 [武汉肺炎在我们家族失去了传染力](https://github.com/Hongyu91/cecjy/issues/331#issue-602393944)
 
 [传播避疫良方　河北郭志萍和陈秀梅遭非法批捕](https://github.com/Hongyu91/cecjy/issues/332#issue-602394654)
@@ -21,14 +29,6 @@
 [妻子沿街喊冤乞讨救夫](https://github.com/Hongyu91/cecjy/issues/327#issue-601772704)
 
 [神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
-
-[17名法轮功学员疫情期间遭迫害离世](https://github.com/Hongyu91/cecjy/issues/325#issue-601767202)
-
-[真实对幻影　美中武肺感染人数对比悬殊](https://github.com/Hongyu91/cecjy/issues/326#issue-601769433)
-
-[西方开仓放粮　中共画饼充饥](https://github.com/Hongyu91/cecjy/issues/329#issue-601788859)
-
-[震撼人心的九字真言](https://github.com/Hongyu91/cecjy/issues/313#issue-600833564)
 
 #### 主页精选
 
