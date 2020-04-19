@@ -33,7 +33,9 @@
 #### 主页精选
 
 [妻子沿街喊冤乞讨救夫](https://github.com/Hongyu91/cecjy/issues/327#issue-601772704) |
+[历经“四·二五”　两岸强烈对比](https://github.com/Hongyu91/cecjy/issues/347#issue-602646130) |
 [传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317)
+
 
 [西方开仓放粮　中共画饼充饥](https://github.com/Hongyu91/cecjy/issues/329#issue-601788859) |
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
