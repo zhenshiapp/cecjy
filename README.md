@@ -75,11 +75,11 @@
 
 #### 观看视频
 
-[世界的十字路口 唐浩（2020.4.17）](https://github.com/Hongyu91/cecjy/issues/341#issue-602404791)
+[非常好聽的洞簫演奏《人間清流天上來》](https://github.com/Hongyu91/cecjy/issues/357#issue-602660869)
 
-[天亮时分(政论天下第152集 20200417)](https://github.com/Hongyu91/cecjy/issues/342#issue-602414383)
+[神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654)
 
-[江峰漫談直播20200415第156期](https://github.com/Hongyu91/cecjy/issues/343#issue-602416387)
+[【细语人生】 见证大法的神奇 （第二十一集）](https://github.com/Hongyu91/cecjy/issues/358#issue-602663337)
 
 [音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464)
 
