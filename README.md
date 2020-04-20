@@ -12,6 +12,16 @@
 
 #### 热点动态文章
 
+[从昆明一个炼功点看中共对法轮功迫害的残酷性](https://github.com/Hongyu91/cecjy/issues/369#issue-603031910)
+
+[纪念四·二五和平上访　台湾花莲法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/367#issue-603026308)
+
+[广西某组织部部长退党记](https://github.com/Hongyu91/cecjy/issues/366#issue-603024129)
+
+[医院没看好的病　诚念“法轮大法好”好了](https://github.com/Hongyu91/cecjy/issues/368#issue-603028441)
+
+[神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
+
 [历经“四·二五”　两岸强烈对比](https://github.com/Hongyu91/cecjy/issues/347#issue-602646130)
 
 [疫情持续　英国政要发声问责中共 ](https://github.com/Hongyu91/cecjy/issues/346#issue-602644681)
@@ -19,16 +29,6 @@
 [善待大法和大法弟子　福报多](https://github.com/Hongyu91/cecjy/issues/348#issue-602646477)
 
 [四川省开江县原防邪办（610）主任漆楚文被举报](https://github.com/Hongyu91/cecjy/issues/349#issue-602646906)
-
-[武汉肺炎在我们家族失去了传染力](https://github.com/Hongyu91/cecjy/issues/331#issue-602393944)
-
-[传播避疫良方　河北郭志萍和陈秀梅遭非法批捕](https://github.com/Hongyu91/cecjy/issues/332#issue-602394654)
-
-[中共隐瞒疫情　美议员痛批：人类史上最恶劣](https://github.com/Hongyu91/cecjy/issues/334#issue-602395858)
-
-[妻子沿街喊冤乞讨救夫](https://github.com/Hongyu91/cecjy/issues/327#issue-601772704)
-
-[神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
 
 #### 文章精选
 
