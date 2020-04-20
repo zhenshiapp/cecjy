@@ -72,6 +72,12 @@
 
 #### 热点动态视频
 
+[【环球直击】（4月19日完整版1）](https://github.com/Hongyu91/cecjy/issues/370#issue-603050569)
+
+[大紀元 — 新聞看點【新聞看點 李沐陽04.18】](https://github.com/Hongyu91/cecjy/issues/351#issue-602648765)
+
+[【今日点击】（04.19）](https://github.com/Hongyu91/cecjy/issues/352#issue-602651220)
+
 [非常好聽的洞簫演奏《人間清流天上來》](https://github.com/Hongyu91/cecjy/issues/357#issue-602660869)
 
 [神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654)
@@ -80,15 +86,9 @@
 
 [音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464)
 
-[【环球直击】（4月18日完整版）](https://github.com/Hongyu91/cecjy/issues/354#issue-602653735)
-
 [【时事小品】为何渴望回归中国](https://github.com/Hongyu91/cecjy/issues/353#issue-602652629)
 
-[大紀元 — 新聞看點【新聞看點 李沐陽04.18】](https://github.com/Hongyu91/cecjy/issues/351#issue-602648765)
-
 [【严真点评】外交部大实话（04.19）](https://github.com/Hongyu91/cecjy/issues/355#issue-602655612)
-
-[【今日点击】（04.19）](https://github.com/Hongyu91/cecjy/issues/352#issue-602651220)
 
 #### 视频精选
 
