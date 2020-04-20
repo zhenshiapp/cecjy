@@ -74,9 +74,9 @@
 
 [【环球直击】（4月19日完整版1）](https://github.com/Hongyu91/cecjy/issues/370#issue-603050569)
 
-[大紀元 — 新聞看點【新聞看點 李沐陽04.18】](https://github.com/Hongyu91/cecjy/issues/351#issue-602648765)
+[天亮时分(政论天下第153集 20200419)](https://github.com/Hongyu91/cecjy/issues/371#issue-603056690)
 
-[【今日点击】（04.19）](https://github.com/Hongyu91/cecjy/issues/352#issue-602651220)
+[大紀元 — 新聞看點【新聞看點 李沐陽04.18】](https://github.com/Hongyu91/cecjy/issues/351#issue-602648765)
 
 [非常好聽的洞簫演奏《人間清流天上來》](https://github.com/Hongyu91/cecjy/issues/357#issue-602660869)
 
