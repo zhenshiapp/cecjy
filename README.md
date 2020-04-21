@@ -13,6 +13,8 @@
 
 #### 热点动态文章
 
+[亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498)
+
 [青海铁路警察夫妻被迫害致死](https://github.com/Hongyu91/cecjy/issues/375#issue-603769014)
 
 [瘟疫来时　谁能不受侵扰？](https://github.com/Hongyu91/cecjy/issues/372#issue-603764179)
@@ -25,15 +27,13 @@
 
 [纪念四·二五和平上访　台湾花莲法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/367#issue-603026308)
 
-[广西某组织部部长退党记](https://github.com/Hongyu91/cecjy/issues/366#issue-603024129)
-
 [医院没看好的病　诚念“法轮大法好”好了](https://github.com/Hongyu91/cecjy/issues/368#issue-603028441)
 
 [神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
 
 #### 文章精选
 
-[西方开仓放粮　中共画饼充饥](https://github.com/Hongyu91/cecjy/issues/329#issue-601788859) |
+[亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498) |
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
