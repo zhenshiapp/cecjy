@@ -72,23 +72,23 @@
 
 #### 热点动态视频
 
+[音乐视频：壮哉四二五](https://github.com/Hongyu91/cecjy/issues/379#issue-603788262)
+
+[清华大学博士的人生经历(上)](https://github.com/Hongyu91/cecjy/issues/380#issue-603793419)
+
+[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255)
+
 [【全球新闻】4月20日完整版](https://github.com/Hongyu91/cecjy/issues/378#issue-603780753)
 
 [【今日点击】（04.21）](https://github.com/Hongyu91/cecjy/issues/377#issue-603776134)
 
 [大紀元 — 新聞看點【新聞看點 李沐陽04.20】](https://github.com/Hongyu91/cecjy/issues/376#issue-603773027)
 
-[非常好聽的洞簫演奏《人間清流天上來》](https://github.com/Hongyu91/cecjy/issues/357#issue-602660869)
-
 [神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654)
 
 [【细语人生】 见证大法的神奇 （第二十一集）](https://github.com/Hongyu91/cecjy/issues/358#issue-602663337)
 
 [音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464)
-
-[【时事小品】为何渴望回归中国](https://github.com/Hongyu91/cecjy/issues/353#issue-602652629)
-
-[【严真点评】外交部大实话（04.19）](https://github.com/Hongyu91/cecjy/issues/355#issue-602655612)
 
 #### 视频精选
 
