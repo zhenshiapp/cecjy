@@ -2,7 +2,7 @@
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
-#### 本站文章视频免翻墙，为你提供真实的讯息。禁止发辱骂法轮功的帖子和评论，违者一律拉黑！
+#### 本站文章视频免翻墙，为你提供真实的讯息。禁止社区网友发辱骂法轮功的帖子和评论，违者一律拉黑！
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
