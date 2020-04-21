@@ -72,11 +72,11 @@
 
 #### 热点动态视频
 
-[【环球直击】（4月19日完整版1）](https://github.com/Hongyu91/cecjy/issues/370#issue-603050569)
+[【全球新闻】4月20日完整版](https://github.com/Hongyu91/cecjy/issues/378#issue-603780753)
 
-[天亮时分(政论天下第153集 20200419)](https://github.com/Hongyu91/cecjy/issues/371#issue-603056690)
+[【今日点击】（04.21）](https://github.com/Hongyu91/cecjy/issues/377#issue-603776134)
 
-[大紀元 — 新聞看點【新聞看點 李沐陽04.18】](https://github.com/Hongyu91/cecjy/issues/351#issue-602648765)
+[大紀元 — 新聞看點【新聞看點 李沐陽04.20】](https://github.com/Hongyu91/cecjy/issues/376#issue-603773027)
 
 [非常好聽的洞簫演奏《人間清流天上來》](https://github.com/Hongyu91/cecjy/issues/357#issue-602660869)
 
