@@ -96,6 +96,10 @@
 [武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
 [難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
 
+[音乐视频：壮哉四二五](https://github.com/Hongyu91/cecjy/issues/379#issue-603788262) |
+[清华大学博士的人生经历(上)](https://github.com/Hongyu91/cecjy/issues/380#issue-603793419) |
+[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255)
+
 [【细语人生】 见证大法的神奇 （第二十一集）](https://github.com/Hongyu91/cecjy/issues/358#issue-602663337) |
 [神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654) |
 [新世紀影視演員專訪：鄭雪菲](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
