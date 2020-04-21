@@ -13,6 +13,14 @@
 
 #### 热点动态文章
 
+[青海铁路警察夫妻被迫害致死](https://github.com/Hongyu91/cecjy/issues/375#issue-603769014)
+
+[瘟疫来时　谁能不受侵扰？](https://github.com/Hongyu91/cecjy/issues/372#issue-603764179)
+
+[浪子回头修大法](https://github.com/Hongyu91/cecjy/issues/373#issue-603765373)
+
+[疫情肆虐全球　更显四·二五精神可贵](https://github.com/Hongyu91/cecjy/issues/374#issue-603766982)
+
 [从昆明一个炼功点看中共对法轮功迫害的残酷性](https://github.com/Hongyu91/cecjy/issues/369#issue-603031910)
 
 [纪念四·二五和平上访　台湾花莲法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/367#issue-603026308)
@@ -22,14 +30,6 @@
 [医院没看好的病　诚念“法轮大法好”好了](https://github.com/Hongyu91/cecjy/issues/368#issue-603028441)
 
 [神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
-
-[历经“四·二五”　两岸强烈对比](https://github.com/Hongyu91/cecjy/issues/347#issue-602646130)
-
-[疫情持续　英国政要发声问责中共 ](https://github.com/Hongyu91/cecjy/issues/346#issue-602644681)
-
-[善待大法和大法弟子　福报多](https://github.com/Hongyu91/cecjy/issues/348#issue-602646477)
-
-[四川省开江县原防邪办（610）主任漆楚文被举报](https://github.com/Hongyu91/cecjy/issues/349#issue-602646906)
 
 #### 文章精选
 
