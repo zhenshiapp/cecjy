@@ -83,12 +83,6 @@
 
 [大紀元 — 新聞看點【新聞看點 李沐陽04.20】](https://github.com/Hongyu91/cecjy/issues/376#issue-603773027)
 
-[神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654)
-
-[【细语人生】 见证大法的神奇 （第二十一集）](https://github.com/Hongyu91/cecjy/issues/358#issue-602663337)
-
-[音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464)
-
 #### 视频精选
 
 [可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
