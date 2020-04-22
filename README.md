@@ -99,10 +99,6 @@
 [神的警示在兌現！4/5](https://github.com/Hongyu91/cecjy/issues/356#issue-602658654) |
 [新世紀影視演員專訪：鄭雪菲](https://github.com/Hongyu91/cecjy/issues/282#issue-598121679)
 
-[大瘟疫當前請珍惜救命的：千年之緣！](https://github.com/Hongyu91/cecjy/issues/231#issue-593724077) |
-[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348) |
-[冥府为一次地震筹备五十年](https://github.com/Hongyu91/cecjy/issues/254#issue-595528890)
-
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 # 明慧周报：中国版（第七九三期）
