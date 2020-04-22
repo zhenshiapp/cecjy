@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[质疑声浪中“修订”疫情数据— 透视魔鬼的忧惧](https://github.com/Hongyu91/cecjy/issues/384#issue-604516383)
+
+[人权律师：人们正在承担漠视中共活摘罪行的后果](https://github.com/Hongyu91/cecjy/issues/385#issue-604518351)
+
+[“四·二五”后江泽民在云南煽动迫害法轮功](https://github.com/Hongyu91/cecjy/issues/386#issue-604520579)
+
 [亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498)
 
 [青海铁路警察夫妻被迫害致死](https://github.com/Hongyu91/cecjy/issues/375#issue-603769014)
@@ -23,12 +29,6 @@
 [疫情肆虐全球　更显四·二五精神可贵](https://github.com/Hongyu91/cecjy/issues/374#issue-603766982)
 
 [从昆明一个炼功点看中共对法轮功迫害的残酷性](https://github.com/Hongyu91/cecjy/issues/369#issue-603031910)
-
-[纪念四·二五和平上访　台湾花莲法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/367#issue-603026308)
-
-[医院没看好的病　诚念“法轮大法好”好了](https://github.com/Hongyu91/cecjy/issues/368#issue-603028441)
-
-[神安排了共产邪灵的灭亡 ](https://github.com/Hongyu91/cecjy/issues/323#issue-601762262)
 
 #### 文章精选
 
