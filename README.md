@@ -103,14 +103,6 @@
 [这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348) |
 [冥府为一次地震筹备五十年](https://github.com/Hongyu91/cecjy/issues/254#issue-595528890)
 
-[世界憤怒追責中共！](https://github.com/Hongyu91/cecjy/issues/322#issue-601067159) |
-[中国歌王关贵敏的故事](https://github.com/Hongyu91/cecjy/issues/321#issue-601053135) |
-[音乐电视：《思子吟》](https://github.com/Hongyu91/cecjy/issues/344#issue-602418464) 
-
-[原创歌曲《走出劫难》](https://github.com/Hongyu91/cecjy/issues/283#issue-598122958) |
-[【严真点评】外交部大实话](https://github.com/Hongyu91/cecjy/issues/355#issue-602655612) |
-[辛灝年妙答挑釁提問 : 我愛中国 你愛中共](https://github.com/Hongyu91/cecjy/issues/284#issue-598123476) 
-
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
 # 明慧周报：中国版（第七九三期）
