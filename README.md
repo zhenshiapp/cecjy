@@ -93,8 +93,8 @@
 [【传奇时代】天国乐团 (中)](https://github.com/Hongyu91/cecjy/issues/391#issue-604558428) |
 [【传奇时代】天国乐团 (下)](https://github.com/Hongyu91/cecjy/issues/390#issue-604553904)
 
-[音乐视频：壮哉四二五](https://github.com/Hongyu91/cecjy/issues/379#issue-603788262) |
 [清华大学博士的人生经历(上)](https://github.com/Hongyu91/cecjy/issues/380#issue-603793419) |
+[清华大学博士的人生经历(中)](https://github.com/Hongyu91/cecjy/issues/394#issue-604705989) |
 [清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
