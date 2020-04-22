@@ -81,7 +81,7 @@
 
 [清华大学博士的人生经历(上)](https://github.com/Hongyu91/cecjy/issues/380#issue-603793419)
 
-[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255
+[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255)
 
 #### 视频精选
 
