@@ -71,19 +71,17 @@
 
 #### 热点动态视频
 
-[音乐视频：壮哉四二五](https://github.com/Hongyu91/cecjy/issues/379#issue-603788262)
+[【全球新闻】4月21日完整版](https://github.com/Hongyu91/cecjy/issues/389#issue-604539891)
 
 [大紀元 — 新聞看點（04.21）](https://github.com/Hongyu91/cecjy/issues/387#issue-604529497)
 
+[【今日点击】（04.22）](https://github.com/Hongyu91/cecjy/issues/388#issue-604535219)
+
+[音乐视频：壮哉四二五](https://github.com/Hongyu91/cecjy/issues/379#issue-603788262)
+
 [清华大学博士的人生经历(上)](https://github.com/Hongyu91/cecjy/issues/380#issue-603793419)
 
-[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255)
-
-[【全球新闻】4月20日完整版](https://github.com/Hongyu91/cecjy/issues/378#issue-603780753)
-
-[【今日点击】（04.21）](https://github.com/Hongyu91/cecjy/issues/377#issue-603776134)
-
-
+[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255
 
 #### 视频精选
 
