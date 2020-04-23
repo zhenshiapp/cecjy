@@ -71,9 +71,9 @@
 
 #### 热点动态视频
 
-[【全球新闻】4月21日完整版](https://github.com/Hongyu91/cecjy/issues/389#issue-604539891)
+[大紀元 — 新聞看點（04.22）](https://github.com/Hongyu91/cecjy/issues/395#issue-605212628)
 
-[大紀元 — 新聞看點（04.21）](https://github.com/Hongyu91/cecjy/issues/387#issue-604529497)
+[【全球新闻】4月21日完整版](https://github.com/Hongyu91/cecjy/issues/389#issue-604539891)
 
 [【今日点击】（04.22）](https://github.com/Hongyu91/cecjy/issues/388#issue-604535219)
 
