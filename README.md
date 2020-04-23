@@ -71,11 +71,11 @@
 
 #### 热点动态视频
 
+[【中国禁闻】4月22日完整版](https://github.com/Hongyu91/cecjy/issues/401#issue-605316859)
+
 [大紀元 — 新聞看點（04.22）](https://github.com/Hongyu91/cecjy/issues/395#issue-605212628)
 
 [【今日点击】（04.23）](https://github.com/Hongyu91/cecjy/issues/396#issue-605214026)
-
-[【全球新闻】4月21日完整版](https://github.com/Hongyu91/cecjy/issues/389#issue-604539891)
 
 [【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399)
 
