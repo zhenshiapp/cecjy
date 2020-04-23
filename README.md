@@ -12,6 +12,14 @@
 
 #### 热点动态文章
 
+[丈夫被毒打身亡　女教师控告元凶遭诬判七年](https://github.com/Hongyu91/cecjy/issues/399#issue-605308523)
+
+[执行灭绝人性命令的报应](https://github.com/Hongyu91/cecjy/issues/397#issue-605303940)
+
+[重整世道人心 中共断送契机](https://github.com/Hongyu91/cecjy/issues/398#issue-605305073)
+
+[化解瘟疫劫难的无价特效药](https://github.com/Hongyu91/cecjy/issues/400#issue-605311342)
+
 [质疑声浪中“修订”疫情数据— 透视魔鬼的忧惧](https://github.com/Hongyu91/cecjy/issues/384#issue-604516383)
 
 [人权律师：人们正在承担漠视中共活摘罪行的后果](https://github.com/Hongyu91/cecjy/issues/385#issue-604518351)
@@ -21,14 +29,6 @@
 [亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498)
 
 [青海铁路警察夫妻被迫害致死](https://github.com/Hongyu91/cecjy/issues/375#issue-603769014)
-
-[瘟疫来时　谁能不受侵扰？](https://github.com/Hongyu91/cecjy/issues/372#issue-603764179)
-
-[浪子回头修大法](https://github.com/Hongyu91/cecjy/issues/373#issue-603765373)
-
-[疫情肆虐全球　更显四·二五精神可贵](https://github.com/Hongyu91/cecjy/issues/374#issue-603766982)
-
-[从昆明一个炼功点看中共对法轮功迫害的残酷性](https://github.com/Hongyu91/cecjy/issues/369#issue-603031910)
 
 #### 文章精选
 
