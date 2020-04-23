@@ -73,9 +73,9 @@
 
 [大紀元 — 新聞看點（04.22）](https://github.com/Hongyu91/cecjy/issues/395#issue-605212628)
 
-[【全球新闻】4月21日完整版](https://github.com/Hongyu91/cecjy/issues/389#issue-604539891)
+[【今日点击】（04.23）](https://github.com/Hongyu91/cecjy/issues/396#issue-605214026)
 
-[【今日点击】（04.22）](https://github.com/Hongyu91/cecjy/issues/388#issue-604535219)
+[【全球新闻】4月21日完整版](https://github.com/Hongyu91/cecjy/issues/389#issue-604539891)
 
 [【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399)
 
