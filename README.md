@@ -71,6 +71,8 @@
 
 #### 热点动态视频
 
+[九双鞋的感人故事](https://github.com/Hongyu91/cecjy/issues/402#issue-605320511)
+
 [【中国禁闻】4月22日完整版](https://github.com/Hongyu91/cecjy/issues/401#issue-605316859)
 
 [大紀元 — 新聞看點（04.22）](https://github.com/Hongyu91/cecjy/issues/395#issue-605212628)
