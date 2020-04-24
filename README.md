@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[浅解“共”字看尽中共气数](https://github.com/Hongyu91/cecjy/issues/414#issue-606189016)
+
 [大疫下 当年四二五带给人们什么启示](https://github.com/Hongyu91/cecjy/issues/408#issue-606106980)
 
 [回顾“四二五”　天津教育学院事件亲历者的见证](https://github.com/Hongyu91/cecjy/issues/409#issue-606109843)
@@ -23,8 +25,6 @@
 [执行灭绝人性命令的报应](https://github.com/Hongyu91/cecjy/issues/397#issue-605303940)
 
 [重整世道人心 中共断送契机](https://github.com/Hongyu91/cecjy/issues/398#issue-605305073)
-
-[化解瘟疫劫难的无价特效药](https://github.com/Hongyu91/cecjy/issues/400#issue-605311342)
 
 [质疑声浪中“修订”疫情数据— 透视魔鬼的忧惧](https://github.com/Hongyu91/cecjy/issues/384#issue-604516383)
 
@@ -65,6 +65,7 @@
 [如何才能走出“武汉肺炎”大难？](https://github.com/Hongyu91/cecjy/issues/14#issue-575181554) |
 [中共（武汉）疫情之我见](https://github.com/Hongyu91/cecjy/issues/221#issue-592485573)
 
+[浅解“共”字看尽中共气数](https://github.com/Hongyu91/cecjy/issues/414#issue-606189016) |
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
