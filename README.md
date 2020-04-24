@@ -71,11 +71,11 @@
 
 #### 热点动态视频
 
+[心願](https://github.com/Hongyu91/cecjy/issues/407#issue-606103019)
+
 [【中国禁闻】4月23日完整版](https://github.com/Hongyu91/cecjy/issues/406#issue-606096906)
 
 [大紀元 — 新聞看點（04.23）](https://github.com/Hongyu91/cecjy/issues/405#issue-606092747)
-
-[九双鞋的感人故事](https://github.com/Hongyu91/cecjy/issues/402#issue-605320511)
 
 [【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399)
 
