@@ -71,7 +71,7 @@
 
 #### 热点动态视频
 
-[大紀元 — 新聞看點（04.22）](https://github.com/Hongyu91/cecjy/issues/405#issue-606092747)
+[大紀元 — 新聞看點（04.23）](https://github.com/Hongyu91/cecjy/issues/405#issue-606092747)
 
 [九双鞋的感人故事](https://github.com/Hongyu91/cecjy/issues/402#issue-605320511)
 
