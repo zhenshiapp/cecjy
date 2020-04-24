@@ -68,7 +68,7 @@
 [浅解“共”字看尽中共气数](https://github.com/Hongyu91/cecjy/issues/414#issue-606189016) |
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
-[《刘伯温碑记》――末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
+[《刘伯温碑记》―末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
 
 #### 热点动态视频
 
