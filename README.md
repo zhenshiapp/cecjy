@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[大疫下 当年四二五带给人们什么启示](https://github.com/Hongyu91/cecjy/issues/408#issue-606106980)
+
+[回顾“四二五”　天津教育学院事件亲历者的见证](https://github.com/Hongyu91/cecjy/issues/409#issue-606109843)
+
+[多伦多学员纪念四二五　政要支持](https://github.com/Hongyu91/cecjy/issues/410#issue-606112924)
+
 [丈夫被毒打身亡　女教师控告元凶遭诬判七年](https://github.com/Hongyu91/cecjy/issues/399#issue-605308523)
 
 [执行灭绝人性命令的报应](https://github.com/Hongyu91/cecjy/issues/397#issue-605303940)
@@ -23,12 +29,6 @@
 [质疑声浪中“修订”疫情数据— 透视魔鬼的忧惧](https://github.com/Hongyu91/cecjy/issues/384#issue-604516383)
 
 [人权律师：人们正在承担漠视中共活摘罪行的后果](https://github.com/Hongyu91/cecjy/issues/385#issue-604518351)
-
-[“四·二五”后江泽民在云南煽动迫害法轮功](https://github.com/Hongyu91/cecjy/issues/386#issue-604520579)
-
-[亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498)
-
-[青海铁路警察夫妻被迫害致死](https://github.com/Hongyu91/cecjy/issues/375#issue-603769014)
 
 #### 文章精选
 
