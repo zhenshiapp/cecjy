@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[经历武汉肺炎疫情　丈夫明白了许多](https://github.com/Hongyu91/cecjy/issues/425#issue-606947045)
+
+[佳木斯陈兰芝屡遭迫害　老伴在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/426#issue-606947864)
+
+[山东寿光市委政法委副书记王树爱被举报](https://github.com/Hongyu91/cecjy/issues/427#issue-606948854)
+
 [切肤之痛后　再看四·二五](https://github.com/Hongyu91/cecjy/issues/421#issue-606721392)
 
 [“画皮”落地　我们看到了什么？](https://github.com/Hongyu91/cecjy/issues/420#issue-606719580)
@@ -23,12 +29,6 @@
 [浅解“共”字看尽中共气数](https://github.com/Hongyu91/cecjy/issues/414#issue-606189016)
 
 [大疫下 当年四二五带给人们什么启示](https://github.com/Hongyu91/cecjy/issues/408#issue-606106980)
-
-[回顾“四二五”　天津教育学院事件亲历者的见证](https://github.com/Hongyu91/cecjy/issues/409#issue-606109843)
-
-[多伦多学员纪念四二五　政要支持](https://github.com/Hongyu91/cecjy/issues/410#issue-606112924)
-
-[丈夫被毒打身亡　女教师控告元凶遭诬判七年](https://github.com/Hongyu91/cecjy/issues/399#issue-605308523)
 
 #### 文章精选
 
