@@ -76,19 +76,10 @@
 
 [故意視而不見 會帶來什麼後果？](https://github.com/Hongyu91/cecjy/issues/424#issue-606944861)
 
-[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
-
-[【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399)
-
-[【传奇时代】天国乐团 (中)](https://github.com/Hongyu91/cecjy/issues/391#issue-604558428)
-
-[【传奇时代】天国乐团 (下)](https://github.com/Hongyu91/cecjy/issues/390#issue-604553904)
-
 #### 视频精选
 
 [心願](https://github.com/Hongyu91/cecjy/issues/407#issue-606103019) |
 [過年](https://github.com/Hongyu91/cecjy/issues/417#issue-606688268) |
-[故意視而不見 會帶來什麼後果？](https://github.com/Hongyu91/cecjy/issues/424#issue-606944861)
 
 [可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
 [武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
