@@ -34,7 +34,7 @@
 
 [传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317) |
 [传奇人生：我那神话般的经历(下)](https://github.com/Hongyu91/cecjy/issues/430#issue-606980417) |
-[大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
+[诚念“法轮大法好”　朋友起死回生](https://github.com/Hongyu91/cecjy/issues/428#issue-606949835)
 
 [亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498) |
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
