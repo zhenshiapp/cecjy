@@ -76,7 +76,7 @@
 
 [大紀元 — 新聞看點（04.25）](https://github.com/Hongyu91/cecjy/issues/423#issue-606941204)
 
-[【今日点击】（04.25）](https://github.com/Hongyu91/cecjy/issues/416#issue-606686489)
+[故意視而不見 會帶來什麼後果？](https://github.com/Hongyu91/cecjy/issues/424#issue-606944861)
 
 [【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399)
 
