@@ -76,7 +76,7 @@
 
 [故意視而不見 會帶來什麼後果？](https://github.com/Hongyu91/cecjy/issues/424#issue-606944861)
 
-[故意視而不見 會帶來什麼後果？](https://github.com/Hongyu91/cecjy/issues/424#issue-606944861)
+[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
 
 [【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399)
 
