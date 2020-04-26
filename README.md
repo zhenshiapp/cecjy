@@ -74,7 +74,7 @@
 
 [過年](https://github.com/Hongyu91/cecjy/issues/417#issue-606688268)
 
-[大紀元 — 新聞看點（04.24）](https://github.com/Hongyu91/cecjy/issues/415#issue-606685993)
+[大紀元 — 新聞看點（04.25）](https://github.com/Hongyu91/cecjy/issues/423#issue-606941204)
 
 [【今日点击】（04.25）](https://github.com/Hongyu91/cecjy/issues/416#issue-606686489)
 
