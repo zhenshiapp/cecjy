@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[哈尔滨市阿城区五名法轮功学员被非法拘留十天 ](https://github.com/Hongyu91/cecjy/issues/431#issue-607293607)
+
+[株连迫害下的人伦悲剧　宁夏书记毒杀妻子](https://github.com/Hongyu91/cecjy/issues/432#issue-607297919)
+
+[得救百姓为法轮功学员说句公道话](https://github.com/Hongyu91/cecjy/issues/433#issue-607299596)
+
 [经历武汉肺炎疫情　丈夫明白了许多](https://github.com/Hongyu91/cecjy/issues/425#issue-606947045)
 
 [佳木斯陈兰芝屡遭迫害　老伴在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/426#issue-606947864)
@@ -24,17 +30,11 @@
 
 [从全球究责中共说起 ](https://github.com/Hongyu91/cecjy/issues/418#issue-606718253)
 
-[从“香港”二字看天数 ](https://github.com/Hongyu91/cecjy/issues/419#issue-606718868)
-
-[浅解“共”字看尽中共气数](https://github.com/Hongyu91/cecjy/issues/414#issue-606189016)
-
-[大疫下 当年四二五带给人们什么启示](https://github.com/Hongyu91/cecjy/issues/408#issue-606106980)
-
 #### 文章精选
 
 [传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317) |
 [传奇人生：我那神话般的经历(下)](https://github.com/Hongyu91/cecjy/issues/430#issue-606980417) |
-[诚念“法轮大法好”　朋友起死回生](https://github.com/Hongyu91/cecjy/issues/428#issue-606949835)
+[株连迫害下的人伦悲剧　宁夏书记毒杀妻子](https://github.com/Hongyu91/cecjy/issues/432#issue-607297919)
 
 [亲历者的见证：“四·二五”的那一天](https://github.com/Hongyu91/cecjy/issues/383#issue-603823498) |
 [谎言是党文化的核心](https://github.com/Hongyu91/cecjy/issues/297#issue-598734920) |
