@@ -76,9 +76,9 @@
 
 #### 热点动态视频
 
-[【環球直擊-20200426】](https://github.com/Hongyu91/cecjy/issues/435#issue-607307163)
+[大紀元 — 新聞看點（04.27）](https://github.com/Hongyu91/cecjy/issues/436#issue-607986902)
 
-[大紀元 — 新聞看點（04.26）](https://github.com/Hongyu91/cecjy/issues/434#issue-607304649)
+[【環球直擊-20200426】](https://github.com/Hongyu91/cecjy/issues/435#issue-607307163)
 
 #### 视频精选
 
