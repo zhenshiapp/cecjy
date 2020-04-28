@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[话说“跟着共产党，走进火葬场”](https://github.com/Hongyu91/cecjy/issues/439#issue-608083806)
+
+[做一个真正的中国人 ](https://github.com/Hongyu91/cecjy/issues/440#issue-608086820)
+
+[尼日利亚律师楼将中共告上法庭　索赔2千亿美元](https://github.com/Hongyu91/cecjy/issues/441#issue-608087729)
+
 [哈尔滨市阿城区五名法轮功学员被非法拘留十天 ](https://github.com/Hongyu91/cecjy/issues/431#issue-607293607)
 
 [株连迫害下的人伦悲剧　宁夏书记毒杀妻子](https://github.com/Hongyu91/cecjy/issues/432#issue-607297919)
@@ -23,12 +29,6 @@
 [佳木斯陈兰芝屡遭迫害　老伴在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/426#issue-606947864)
 
 [山东寿光市委政法委副书记王树爱被举报](https://github.com/Hongyu91/cecjy/issues/427#issue-606948854)
-
-[切肤之痛后　再看四·二五](https://github.com/Hongyu91/cecjy/issues/421#issue-606721392)
-
-[“画皮”落地　我们看到了什么？](https://github.com/Hongyu91/cecjy/issues/420#issue-606719580)
-
-[从全球究责中共说起 ](https://github.com/Hongyu91/cecjy/issues/418#issue-606718253)
 
 #### 文章精选
 
