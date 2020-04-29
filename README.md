@@ -76,9 +76,7 @@
 
 #### 热点动态视频
 
-[大紀元 — 新聞看點（04.28）](https://github.com/Hongyu91/cecjy/issues/447#issue-608846172)
-
-[【环球直击】(4月27日完整版1）](https://github.com/Hongyu91/cecjy/issues/437#issue-607995161)
+[【禁闻】肺炎疫情：与中共渐行渐近 梵蒂冈沦陷](https://github.com/Hongyu91/cecjy/issues/448#issue-608849922)
 
 #### 视频精选
 
