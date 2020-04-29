@@ -18,7 +18,7 @@
 
 [国保队长：“我们也不想抓你啊！”](https://github.com/Hongyu91/cecjy/issues/445#issue-608837769)
 
-[话说“跟着共产党，走进火葬场”](https://github.com/Hongyu91/cecjy/issues/439#issue-608083806)
+[中共执政史：一部暴力与谎言的罪恶史](https://github.com/Hongyu91/cecjy/issues/446#issue-608840233)
 
 [做一个真正的中国人 ](https://github.com/Hongyu91/cecjy/issues/440#issue-608086820)
 
