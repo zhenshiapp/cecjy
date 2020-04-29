@@ -76,7 +76,7 @@
 
 #### 热点动态视频
 
-[大紀元 — 新聞看點（04.27）](https://github.com/Hongyu91/cecjy/issues/436#issue-607986902)
+[大紀元 — 新聞看點（04.28）](https://github.com/Hongyu91/cecjy/issues/447#issue-608846172)
 
 [【环球直击】(4月27日完整版1）](https://github.com/Hongyu91/cecjy/issues/437#issue-607995161)
 
