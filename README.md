@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[冥冥之中有定数：预言明朝英宗、代宗皇位交替的童谣](https://github.com/Hongyu91/cecjy/issues/443#issue-608834697)
+
+[玻璃堆坍塌　九字真言保命](https://github.com/Hongyu91/cecjy/issues/444#issue-608836491)
+
+[国保队长：“我们也不想抓你啊！”](https://github.com/Hongyu91/cecjy/issues/445#issue-608837769)
+
 [话说“跟着共产党，走进火葬场”](https://github.com/Hongyu91/cecjy/issues/439#issue-608083806)
 
 [做一个真正的中国人 ](https://github.com/Hongyu91/cecjy/issues/440#issue-608086820)
@@ -23,12 +29,6 @@
 [株连迫害下的人伦悲剧　宁夏书记毒杀妻子](https://github.com/Hongyu91/cecjy/issues/432#issue-607297919)
 
 [得救百姓为法轮功学员说句公道话](https://github.com/Hongyu91/cecjy/issues/433#issue-607299596)
-
-[经历武汉肺炎疫情　丈夫明白了许多](https://github.com/Hongyu91/cecjy/issues/425#issue-606947045)
-
-[佳木斯陈兰芝屡遭迫害　老伴在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/426#issue-606947864)
-
-[山东寿光市委政法委副书记王树爱被举报](https://github.com/Hongyu91/cecjy/issues/427#issue-606948854)
 
 #### 文章精选
 
