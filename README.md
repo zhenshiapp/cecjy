@@ -76,7 +76,7 @@
 
 #### 热点动态视频
 
-[【禁闻】肺炎疫情：与中共渐行渐近 梵蒂冈沦陷](https://github.com/Hongyu91/cecjy/issues/448#issue-608849922)
+[大紀元 — 新聞看點（04.29）](https://github.com/Hongyu91/cecjy/issues/450#issue-609642861)
 
 #### 视频精选
 
