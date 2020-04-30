@@ -76,6 +76,8 @@
 
 #### 热点动态视频
 
+[【环球直击】4月30日完整版（1）](https://github.com/Hongyu91/cecjy/issues/455#issue-609943562)
+
 [大紀元 — 新聞看點（04.29）](https://github.com/Hongyu91/cecjy/issues/450#issue-609642861)
 
 #### 视频精选
