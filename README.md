@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[回忆李洪志先生在瑞典传功讲法](https://github.com/Hongyu91/cecjy/issues/461#issue-610638709)
+
 [是谁打开了大瘟疫的潘多拉盒子？](https://github.com/Hongyu91/cecjy/issues/456#issue-610622084)
 
 [加拿大高级研究员：病毒是中共给世界带来的灾难](https://github.com/Hongyu91/cecjy/issues/457#issue-610623459)
@@ -27,8 +29,6 @@
 [冥冥之中有定数：预言明朝英宗、代宗皇位交替的童谣](https://github.com/Hongyu91/cecjy/issues/443#issue-608834697)
 
 [玻璃堆坍塌　九字真言保命](https://github.com/Hongyu91/cecjy/issues/444#issue-608836491)
-
-[国保队长：“我们也不想抓你啊！”](https://github.com/Hongyu91/cecjy/issues/445#issue-608837769)
 
 #### 文章精选
 
