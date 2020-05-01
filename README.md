@@ -76,9 +76,7 @@
 
 #### 热点动态视频
 
-[【环球直击】4月30日完整版（1）](https://github.com/Hongyu91/cecjy/issues/455#issue-609943562)
-
-[大紀元 — 新聞看點（04.29）](https://github.com/Hongyu91/cecjy/issues/450#issue-609642861)
+[大紀元 — 新聞看點（04.30）](https://github.com/Hongyu91/cecjy/issues/460#issue-610635095)
 
 #### 视频精选
 
@@ -101,12 +99,12 @@
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
-# 明慧周报：中国版（第七九五期）
+# 明慧周报：中国版（第七九四期）
 
-![image](https://user-images.githubusercontent.com/61768866/80792009-eed55d00-8bc5-11ea-81ca-13c0b902ac74.png)
-![image](https://user-images.githubusercontent.com/61768866/80792057-14626680-8bc6-11ea-80b8-a1af8928996f.png)
-![image](https://user-images.githubusercontent.com/61768866/80792111-44aa0500-8bc6-11ea-9fae-2c10472d0a66.png)
-![image](https://user-images.githubusercontent.com/61768866/80792168-6efbc280-8bc6-11ea-82ad-d91b04fe3b9f.png)
+![image](https://user-images.githubusercontent.com/61768866/80188054-39ddf600-8643-11ea-9fe8-e0ce3aa78838.png)
+![image](https://user-images.githubusercontent.com/61768866/80188120-4d895c80-8643-11ea-9b14-aa1aa8de78dd.png)
+![image](https://user-images.githubusercontent.com/61768866/80188180-61cd5980-8643-11ea-972d-669a5518ec90.png)
+![image](https://user-images.githubusercontent.com/61768866/80188236-73aefc80-8643-11ea-8ccf-902daf2a53a6.png)
 
 #### 法轮功基本真相贴图
  
