@@ -76,7 +76,7 @@
 
 #### 热点动态视频
 
-[大紀元 — 新聞看點（04.30）](https://github.com/Hongyu91/cecjy/issues/460#issue-610635095)
+[大紀元 — 新聞看點（05.01）](https://github.com/Hongyu91/cecjy/issues/464#issue-611097345)
 
 [【一吐為快】突破人類底線的人類公敵是彭佩奧還是共產黨？| 天路漫遊](https://github.com/Hongyu91/cecjy/issues/463#issue-610748270)
 
