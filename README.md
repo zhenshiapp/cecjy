@@ -76,6 +76,8 @@
 
 #### 热点动态视频
 
+[【環球直擊-20200501】](https://github.com/Hongyu91/cecjy/issues/471#issue-611174991)
+
 [【今日点击】（05.02）](https://github.com/Hongyu91/cecjy/issues/465#issue-611098954)
 
 [大紀元 — 新聞看點（05.01）](https://github.com/Hongyu91/cecjy/issues/464#issue-611097345)
