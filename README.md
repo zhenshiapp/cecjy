@@ -76,15 +76,11 @@
 
 #### 热点动态视频
 
-[視頻：多倫多大法小弟子恭祝師尊生日快樂](https://github.com/Hongyu91/cecjy/issues/472#issue-611178307)
-
 [【環球直擊-20200502】](https://github.com/Hongyu91/cecjy/issues/479#issue-611352271)
 
 [大紀元 — 新聞看點（05.02）](https://github.com/Hongyu91/cecjy/issues/474#issue-611324808)
 
 [【禁闻】回中国避疫 留意学生断送前程（05.02）](https://github.com/Hongyu91/cecjy/issues/473#issue-611190139)
-
-[【一吐為快】突破人類底線的人類公敵是彭佩奧還是共產黨？| 天路漫遊](https://github.com/Hongyu91/cecjy/issues/463#issue-610748270)
 
 #### 视频精选
 
