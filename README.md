@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[贵州孩子哭喊“我要爸爸妈妈”离世](https://github.com/Hongyu91/cecjy/issues/480#issue-611354055)
+
 [中共迫害老人是在断人的未来](https://github.com/Hongyu91/cecjy/issues/475#issue-611349660)
 
 [孙力军迫害法轮功遭报落马的启示 ](https://github.com/Hongyu91/cecjy/issues/476#issue-611350045)
@@ -27,8 +29,6 @@
 [回忆李洪志先生在瑞典传功讲法](https://github.com/Hongyu91/cecjy/issues/461#issue-610638709)
 
 [是谁打开了大瘟疫的潘多拉盒子？](https://github.com/Hongyu91/cecjy/issues/456#issue-610622084)
-
-[加拿大高级研究员：病毒是中共给世界带来的灾难](https://github.com/Hongyu91/cecjy/issues/457#issue-610623459)
 
 #### 文章精选
 
