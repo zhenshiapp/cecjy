@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[中共迫害老人是在断人的未来](https://github.com/Hongyu91/cecjy/issues/475#issue-611349660)
+
+[孙力军迫害法轮功遭报落马的启示 ](https://github.com/Hongyu91/cecjy/issues/476#issue-611350045)
+
+[中共造假外宣六大套路 ](https://github.com/Hongyu91/cecjy/issues/477#issue-611350664)
+
 [“爱国”还是“碍国”？](https://github.com/Hongyu91/cecjy/issues/466#issue-611141222)
 
 [中共肺炎暴露中共制造的“网络暴徒”](https://github.com/Hongyu91/cecjy/issues/467#issue-611141679)
@@ -23,12 +29,6 @@
 [是谁打开了大瘟疫的潘多拉盒子？](https://github.com/Hongyu91/cecjy/issues/456#issue-610622084)
 
 [加拿大高级研究员：病毒是中共给世界带来的灾难](https://github.com/Hongyu91/cecjy/issues/457#issue-610623459)
-
-[遭警察非法抄家　长沙法轮功学员代清平下落不明](https://github.com/Hongyu91/cecjy/issues/458#issue-610624981)
-
-[一个政法官员的觉醒](https://github.com/Hongyu91/cecjy/issues/451#issue-609649421)
-
-[中共不让国际调查疫情　如同掩盖活摘器官](https://github.com/Hongyu91/cecjy/issues/452#issue-609650865)
 
 #### 文章精选
 
