@@ -44,10 +44,9 @@
 [中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246) |
 [神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786)
 
+[感悟“人生真谛”](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/) |
 [劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
-[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340) |
-[影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158) |
-[感悟“人生真谛”](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/)
+[影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
 
 [疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
 [武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
