@@ -8,8 +8,6 @@
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-#### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
-
 #### 热点动态文章
 
 [真念法轮大法好　武汉肺炎病毒消](https://github.com/Hongyu91/cecjy/issues/481#issue-611674962)
@@ -73,35 +71,6 @@
 [《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
 [《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
 [《刘伯温碑记》―末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
-
-#### 热点动态视频
-
-[【環球直擊-20200502】](https://github.com/Hongyu91/cecjy/issues/479#issue-611352271)
-
-[大紀元 — 新聞看點（05.02）](https://github.com/Hongyu91/cecjy/issues/474#issue-611324808)
-
-[【禁闻】回中国避疫 留意学生断送前程（05.02）](https://github.com/Hongyu91/cecjy/issues/473#issue-611190139)
-
-#### 视频精选
-
-[視頻：多倫多大法小弟子恭祝師尊生日快樂](https://github.com/Hongyu91/cecjy/issues/472#issue-611178307)
-
-[電影《歸途》](https://github.com/Hongyu91/cecjy/issues/429#issue-606961999) |
-[心願](https://github.com/Hongyu91/cecjy/issues/407#issue-606103019) |
-[過年](https://github.com/Hongyu91/cecjy/issues/417#issue-606688268) |
-[这个星球上从未有过的罪恶,已经和正在中国发生着](https://github.com/Hongyu91/cecjy/issues/275#issue-597690348)
-
-[可贵的中华儿女，我们为什么劝您三退？](https://github.com/Hongyu91/cecjy/issues/236#issue-593773455) |
-[武汉肺炎电影《危难时刻》](https://github.com/Hongyu91/cecjy/issues/233#issue-593770842) |
-[難忘的歲月](https://github.com/Hongyu91/cecjy/issues/228#issue-593347340)
-
-[【传奇时代】天国乐团 (上)](https://github.com/Hongyu91/cecjy/issues/392#issue-604559399) |
-[【传奇时代】天国乐团 (中)](https://github.com/Hongyu91/cecjy/issues/391#issue-604558428) |
-[【传奇时代】天国乐团 (下)](https://github.com/Hongyu91/cecjy/issues/390#issue-604553904)
-
-[清华大学博士的人生经历(上)](https://github.com/Hongyu91/cecjy/issues/380#issue-603793419) |
-[清华大学博士的人生经历(中)](https://github.com/Hongyu91/cecjy/issues/394#issue-604705989) |
-[清华大学博士的人生经历(下)](https://github.com/Hongyu91/cecjy/issues/381#issue-603798255)
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
 
@@ -175,12 +144,3 @@
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### [返回顶部](https://github.com/Hongyu91/cecjy)
-
-#### 相关链接 (国内翻墙访问）
-[明慧网](http://www.minghui.org/) |
-[正见网](http://www.zhengjian.org/) |
-[新生网](http://www.xinsheng.net/) |
-[希望之声](https://www.soundofhope.org/) |
-[大纪元新闻网](https://www.epochtimes.com/) |
-[新唐人电视台](https://www.ntdtv.com/gb/) |
-[神韵艺术团](https://zh-cn.shenyunperformingarts.org/)
