@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[真念法轮大法好　武汉肺炎病毒消](https://github.com/Hongyu91/cecjy/issues/481#issue-611674962)
+
+[无尽的感恩　台湾宜兰学员庆祝法轮大法日](https://github.com/Hongyu91/cecjy/issues/482#issue-611677504)
+
+[广州新被定性为疫区　该何去何从？](https://github.com/Hongyu91/cecjy/issues/483#issue-611679353)
+
 [贵州孩子哭喊“我要爸爸妈妈”离世](https://github.com/Hongyu91/cecjy/issues/480#issue-611354055)
 
 [中共迫害老人是在断人的未来](https://github.com/Hongyu91/cecjy/issues/475#issue-611349660)
@@ -23,12 +29,6 @@
 [“爱国”还是“碍国”？](https://github.com/Hongyu91/cecjy/issues/466#issue-611141222)
 
 [中共肺炎暴露中共制造的“网络暴徒”](https://github.com/Hongyu91/cecjy/issues/467#issue-611141679)
-
-[从孙力军落马看恶徒下场 ](https://github.com/Hongyu91/cecjy/issues/468#issue-611141932)
-
-[回忆李洪志先生在瑞典传功讲法](https://github.com/Hongyu91/cecjy/issues/461#issue-610638709)
-
-[是谁打开了大瘟疫的潘多拉盒子？](https://github.com/Hongyu91/cecjy/issues/456#issue-610622084)
 
 #### 文章精选
 
