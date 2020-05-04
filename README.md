@@ -8,6 +8,8 @@
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
+#### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/237#issue-593775238)
+
 #### 热点动态文章
 
 [真念法轮大法好　武汉肺炎病毒消](https://github.com/Hongyu91/cecjy/issues/481#issue-611674962)
