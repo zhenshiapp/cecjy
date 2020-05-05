@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[继孙力军之后又一酷吏下台](https://github.com/Hongyu91/cecjy/issues/489#issue-612392624)
+
 [疫苗和救赎之路](https://github.com/Hongyu91/cecjy/issues/486#issue-612387683)
 
 [近两月榆树市至少65人次法轮功学员遭绑架、骚扰](https://github.com/Hongyu91/cecjy/issues/487#issue-612389881)
@@ -27,8 +29,6 @@
 [贵州孩子哭喊“我要爸爸妈妈”离世](https://github.com/Hongyu91/cecjy/issues/480#issue-611354055)
 
 [中共迫害老人是在断人的未来](https://github.com/Hongyu91/cecjy/issues/475#issue-611349660)
-
-[孙力军迫害法轮功遭报落马的启示 ](https://github.com/Hongyu91/cecjy/issues/476#issue-611350045)
 
 #### 文章精选
 
