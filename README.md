@@ -12,6 +12,8 @@
 
 #### 热点动态文章
 
+[可传染的罪恶 ](https://github.com/Hongyu91/cecjy/issues/491#issue-612438181)
+
 [曝光甘肃武威监狱监狱长马占明的恶行 ](https://github.com/Hongyu91/cecjy/issues/490#issue-612396862)
 
 [继孙力军之后又一酷吏下台](https://github.com/Hongyu91/cecjy/issues/489#issue-612392624)
@@ -28,8 +30,6 @@
 
 [贵州孩子哭喊“我要爸爸妈妈”离世](https://github.com/Hongyu91/cecjy/issues/480#issue-611354055)
 
-[中共迫害老人是在断人的未来](https://github.com/Hongyu91/cecjy/issues/475#issue-611349660)
-
 #### 文章精选
 
 [传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317) |
@@ -37,7 +37,7 @@
 [株连迫害下的人伦悲剧　宁夏书记毒杀妻子](https://github.com/Hongyu91/cecjy/issues/432#issue-607297919)
 
 [中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
-[对大法的态度 决定了两岸政体的命运](https://github.com/Hongyu91/cecjy/issues/296#issue-598732412) |
+[可传染的罪恶 ](https://github.com/Hongyu91/cecjy/issues/491#issue-612438181) |
 [武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
 
 [中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
