@@ -12,6 +12,12 @@
 
 #### 热点动态文章
 
+[疫苗和救赎之路](https://github.com/Hongyu91/cecjy/issues/486#issue-612387683)
+
+[近两月榆树市至少65人次法轮功学员遭绑架、骚扰](https://github.com/Hongyu91/cecjy/issues/487#issue-612389881)
+
+[武汉市公安局局长李义龙、六一零主任殷玉梅被举报 ](https://github.com/Hongyu91/cecjy/issues/488#issue-612391028)
+
 [真念法轮大法好　武汉肺炎病毒消](https://github.com/Hongyu91/cecjy/issues/481#issue-611674962)
 
 [无尽的感恩　台湾宜兰学员庆祝法轮大法日](https://github.com/Hongyu91/cecjy/issues/482#issue-611677504)
@@ -23,12 +29,6 @@
 [中共迫害老人是在断人的未来](https://github.com/Hongyu91/cecjy/issues/475#issue-611349660)
 
 [孙力军迫害法轮功遭报落马的启示 ](https://github.com/Hongyu91/cecjy/issues/476#issue-611350045)
-
-[中共造假外宣六大套路 ](https://github.com/Hongyu91/cecjy/issues/477#issue-611350664)
-
-[“爱国”还是“碍国”？](https://github.com/Hongyu91/cecjy/issues/466#issue-611141222)
-
-[中共肺炎暴露中共制造的“网络暴徒”](https://github.com/Hongyu91/cecjy/issues/467#issue-611141679)
 
 #### 文章精选
 
