@@ -30,45 +30,6 @@
 
 [贵州孩子哭喊“我要爸爸妈妈”离世](https://github.com/Hongyu91/cecjy/issues/480#issue-611354055)
 
-#### 文章精选
-
-[传奇人生：我那神话般的经历 （上）](https://github.com/Hongyu91/cecjy/issues/319#issue-600942317) |
-[传奇人生：我那神话般的经历(下)](https://github.com/Hongyu91/cecjy/issues/430#issue-606980417) |
-[株连迫害下的人伦悲剧　宁夏书记毒杀妻子](https://github.com/Hongyu91/cecjy/issues/432#issue-607297919)
-
-[中国非中共 差异何止十万八千里](https://github.com/Hongyu91/cecjy/issues/148#issue-585672123) |
-[可传染的罪恶 ](https://github.com/Hongyu91/cecjy/issues/491#issue-612438181) |
-[武汉母子被虐杀　一家五口遭迫害](https://github.com/Hongyu91/cecjy/issues/266#issue-596404266)
-
-[中共病毒长眼睛 ─ 中西方科学有共识](https://github.com/Hongyu91/cecjy/issues/255#issue-595694131) |
-[中共的谎言猛于病毒](https://github.com/Hongyu91/cecjy/issues/256#issue-595696246) |
-[神佛的慈悲与大淘汰前的选择](https://github.com/Hongyu91/cecjy/issues/252#issue-594912786)
-
-[感悟“人生真谛”](http://drwsmab.ask2ask.com/2019/01/22/shenyun2019/) |
-[劫难中的希望](https://github.com/Hongyu91/cecjy/issues/251#issue-594906843) |
-[影评：观电影《危难时刻》有感](https://github.com/Hongyu91/cecjy/issues/264#issue-596394158)
-
-[疫情数据显示 中共党员是高危人群](https://github.com/Hongyu91/cecjy/issues/253#issue-594935663) |
-[武汉人解读中共肺炎](https://github.com/Hongyu91/cecjy/issues/223#issue-593180220) |
-[魔鬼在细节中：聚焦“中共疫情数据”](https://github.com/Hongyu91/cecjy/issues/314#issue-600838875)
-
-[十九前的“伪火”：不攻自破的“世纪谎言” ](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
-[因炼法轮功 2019年被中共迫害的老人们](https://github.com/Hongyu91/cecjy/issues/6#issue-575160898) |
-[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
-
-[洛杉矶法轮功学员呼吁法办江泽民](https://github.com/Hongyu91/cecjy/issues/99#issue-581571478) |
-[贺三亿五千万人三退　洛杉矶学员送防治瘟疫良方 ](https://github.com/Hongyu91/cecjy/issues/16#issue-575196004) |
-[百步亭社区 样本活动 样本遭遇](https://github.com/Hongyu91/cecjy/issues/15#issue-575188950)
-
-[瘟疫当前，世人求指点迷津](https://github.com/Hongyu91/cecjy/issues/13#issue-575176580) |
-[如何才能走出“武汉肺炎”大难？](https://github.com/Hongyu91/cecjy/issues/14#issue-575181554) |
-[中共（武汉）疫情之我见](https://github.com/Hongyu91/cecjy/issues/221#issue-592485573)
-
-[浅解“共”字看尽中共气数](https://github.com/Hongyu91/cecjy/issues/414#issue-606189016) |
-[《推碑图》预言当今大事件(上)](https://github.com/Hongyu91/cecjy/issues/11#issue-575171523) |
-[《推碑图》预言当今大事件(下)](https://github.com/Hongyu91/cecjy/issues/10#issue-575170294) |
-[《刘伯温碑记》―末法大劫难警示录](https://github.com/Hongyu91/cecjy/issues/9#issue-575168726)
-
 ##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
 # 明慧周报：中国版（第七九四期）
