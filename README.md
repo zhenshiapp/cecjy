@@ -24,11 +24,7 @@
 
 [武汉市公安局局长李义龙、六一零主任殷玉梅被举报 ](https://github.com/Hongyu91/cecjy/issues/488#issue-612391028)
 
-#### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
-
-#### [下载真相电子书](https://github.com/Hongyu91/sddfh)
-
-#### [下载最新翻墙软件](https://github.com/Hongyu91/cwe)
+### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
 # 明慧周报：中国版（第七九四期）
 
