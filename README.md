@@ -24,13 +24,11 @@
 
 [武汉市公安局局长李义龙、六一零主任殷玉梅被举报 ](https://github.com/Hongyu91/cecjy/issues/488#issue-612391028)
 
-[真念法轮大法好　武汉肺炎病毒消](https://github.com/Hongyu91/cecjy/issues/481#issue-611674962)
+#### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-[无尽的感恩　台湾宜兰学员庆祝法轮大法日](https://github.com/Hongyu91/cecjy/issues/482#issue-611677504)
+#### [下载真相电子书](https://github.com/Hongyu91/sddfh)
 
-[贵州孩子哭喊“我要爸爸妈妈”离世](https://github.com/Hongyu91/cecjy/issues/480#issue-611354055)
-
-##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
+#### [下载最新翻墙软件](https://github.com/Hongyu91/cwe)
 
 # 明慧周报：中国版（第七九四期）
 
