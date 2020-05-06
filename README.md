@@ -12,17 +12,17 @@
 
 ### 热点动态文章
 
+[非洲外交官的担当和中共当局的冷酷](https://github.com/Hongyu91/cecjy/issues/492#issue-613177068)
+
+[遭11年冤狱迫害　江西杨德新又被非法关押大半年](https://github.com/Hongyu91/cecjy/issues/493#issue-613179542)
+
+[“运动了，运动了！七、八年来一次！”](https://github.com/Hongyu91/cecjy/issues/494#issue-613180956)
+
 [可传染的罪恶 ](https://github.com/Hongyu91/cecjy/issues/491#issue-612438181)
 
 [曝光甘肃武威监狱监狱长马占明的恶行 ](https://github.com/Hongyu91/cecjy/issues/490#issue-612396862)
 
 [继孙力军之后又一酷吏下台](https://github.com/Hongyu91/cecjy/issues/489#issue-612392624)
-
-[疫苗和救赎之路](https://github.com/Hongyu91/cecjy/issues/486#issue-612387683)
-
-[近两月榆树市至少65人次法轮功学员遭绑架、骚扰](https://github.com/Hongyu91/cecjy/issues/487#issue-612389881)
-
-[武汉市公安局局长李义龙、六一零主任殷玉梅被举报 ](https://github.com/Hongyu91/cecjy/issues/488#issue-612391028)
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
