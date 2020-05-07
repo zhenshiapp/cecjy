@@ -12,17 +12,18 @@
 
 ### 热点动态文章
 
-[非洲外交官的担当和中共当局的冷酷](https://github.com/Hongyu91/cecjy/issues/492#issue-613177068)
+[迫害法轮功的江氏集团正在快速解体](https://github.com/Hongyu91/cecjy/issues/495#issue-613825652)
+
+[黑龙江省疫情严重的原因 ](https://github.com/Hongyu91/cecjy/issues/496#issue-613827749)
+
+[村干部明真相抑制邪恶、保护大法弟子](https://github.com/Hongyu91/cecjy/issues/497#issue-613829404)
+
+[中国要达到美国的科技水平还要多少年？](https://github.com/Hongyu91/cecjy/issues/498#issue-613832008)
 
 [遭11年冤狱迫害　江西杨德新又被非法关押大半年](https://github.com/Hongyu91/cecjy/issues/493#issue-613179542)
 
 [“运动了，运动了！七、八年来一次！”](https://github.com/Hongyu91/cecjy/issues/494#issue-613180956)
 
-[可传染的罪恶 ](https://github.com/Hongyu91/cecjy/issues/491#issue-612438181)
-
-[曝光甘肃武威监狱监狱长马占明的恶行 ](https://github.com/Hongyu91/cecjy/issues/490#issue-612396862)
-
-[继孙力军之后又一酷吏下台](https://github.com/Hongyu91/cecjy/issues/489#issue-612392624)
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
