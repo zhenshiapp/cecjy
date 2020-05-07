@@ -12,6 +12,8 @@
 
 ### 热点动态文章
 
+[妻子尸骨未寒　北京顺义区国保上门绑架丈夫和女儿 ](https://github.com/Hongyu91/cecjy/issues/499#issue-613852663)
+
 [迫害法轮功的江氏集团正在快速解体](https://github.com/Hongyu91/cecjy/issues/495#issue-613825652)
 
 [黑龙江省疫情严重的原因 ](https://github.com/Hongyu91/cecjy/issues/496#issue-613827749)
@@ -20,10 +22,7 @@
 
 [中国要达到美国的科技水平还要多少年？](https://github.com/Hongyu91/cecjy/issues/498#issue-613832008)
 
-[遭11年冤狱迫害　江西杨德新又被非法关押大半年](https://github.com/Hongyu91/cecjy/issues/493#issue-613179542)
-
 [“运动了，运动了！七、八年来一次！”](https://github.com/Hongyu91/cecjy/issues/494#issue-613180956)
-
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
