@@ -12,17 +12,23 @@
 
 ### 热点动态文章
 
+[【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859)
+
+[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
+
+[【513征文】从拜金女孩修成大法弟子](https://github.com/Hongyu91/cecjy/issues/507#issue-615115607)
+
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098)
 
 [“法轮功，救命恩人啊”](https://github.com/Hongyu91/cecjy/issues/501#issue-614592631)
 
 [瑞典“清零”孔子学院　引人思考](https://github.com/Hongyu91/cecjy/issues/502#issue-614594745)
 
-[妻子尸骨未寒　北京顺义区国保上门绑架丈夫和女儿 ](https://github.com/Hongyu91/cecjy/issues/499#issue-613852663)
+### 固定选文
 
-[迫害法轮功的江氏集团正在快速解体](https://github.com/Hongyu91/cecjy/issues/495#issue-613825652)
-
-[黑龙江省疫情严重的原因 ](https://github.com/Hongyu91/cecjy/issues/496#issue-613827749)
+[【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859) |
+[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815) |
+[【513征文】从拜金女孩修成大法弟子](https://github.com/Hongyu91/cecjy/issues/507#issue-615115607)
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
