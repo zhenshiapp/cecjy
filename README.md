@@ -50,7 +50,7 @@
 
 #### 推荐下载最新翻墙软件：
 
-[自由门7.79版电脑版](https://github.com/Hongyu91/cecjy/files/4535095/fg779r.zip) |
+[自由门7.80版电脑版](https://github.com/Hongyu91/cecjy/files/4602941/fg780r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
 [爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [自由门安卓版](https://github.com/Hongyu91/cecjy/files/4315538/fgma.zip) |
