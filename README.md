@@ -12,6 +12,8 @@
 
 ### 热点动态文章
 
+[重庆双胞胎姐妹被迫害致死](https://github.com/Hongyu91/cecjy/issues/518#issue-615345548)
+
 [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174)
 
 [【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859)
@@ -21,8 +23,6 @@
 [中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
 
 [“法轮功，救命恩人啊”](https://github.com/Hongyu91/cecjy/issues/501#issue-614592631)
-
-[瑞典“清零”孔子学院　引人思考](https://github.com/Hongyu91/cecjy/issues/502#issue-614594745)
 
 ### 固定选文
 
