@@ -12,13 +12,13 @@
 
 ### 热点动态文章
 
+[瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174)
+
 [【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859)
 
+[【明慧特稿】二波瘟疫将起，又将定时定地？（下）](https://github.com/Hongyu91/cecjy/issues/510#issue-615335545)
+
 [中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
-
-[【513征文】从拜金女孩修成大法弟子](https://github.com/Hongyu91/cecjy/issues/507#issue-615115607)
-
-[浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098)
 
 [“法轮功，救命恩人啊”](https://github.com/Hongyu91/cecjy/issues/501#issue-614592631)
 
@@ -26,11 +26,13 @@
 
 ### 固定选文
 
-[【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859)
+[瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
+[【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859) |
+[【明慧特稿】二波瘟疫将起，又将定时定地？（下）](https://github.com/Hongyu91/cecjy/issues/510#issue-615335545)
 
 [【513征文】飞上蓝天](https://github.com/Hongyu91/cecjy/issues/508#issue-615123920) |
 [中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815) |
-[【513征文】从拜金女孩修成大法弟子](https://github.com/Hongyu91/cecjy/issues/507#issue-615115607)
+[浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098)
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
