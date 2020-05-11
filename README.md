@@ -13,6 +13,10 @@
 
 ### 热点动态文章
 
+[“六一零”的“秘密经费”](https://github.com/Hongyu91/cecjy/issues/519#issue-615686891)
+
+[“人民”不是冰冷的数字](https://github.com/Hongyu91/cecjy/issues/520#issue-615688664)
+
 [重庆双胞胎姐妹被迫害致死](https://github.com/Hongyu91/cecjy/issues/518#issue-615345548)
 
 [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174)
@@ -20,10 +24,6 @@
 [【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859)
 
 [【明慧特稿】二波瘟疫将起，又将定时定地？（下）](https://github.com/Hongyu91/cecjy/issues/510#issue-615335545)
-
-[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
-
-[“法轮功，救命恩人啊”](https://github.com/Hongyu91/cecjy/issues/501#issue-614592631)
 
 ### 固定选文
 
