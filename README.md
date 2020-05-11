@@ -27,9 +27,6 @@
 
 ### 固定选文
 
-[【明慧特稿】二波瘟疫将起，又将定时定地？（上）](https://github.com/Hongyu91/cecjy/issues/505#issue-615113859) |
-[【明慧特稿】二波瘟疫将起，又将定时定地？（下）](https://github.com/Hongyu91/cecjy/issues/510#issue-615335545)
-
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) ||
 [中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
