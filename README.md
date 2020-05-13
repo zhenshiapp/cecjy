@@ -13,17 +13,17 @@
 
 ### 热点动态文章
 
+[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733)
+
+[末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
+
+[【庆祝513】仙人指路](https://github.com/Hongyu91/cecjy/issues/525#issue-617206647)
+
 [【庆祝513】校园里的一股清流](https://github.com/Hongyu91/cecjy/issues/521#issue-616418219)
 
 [【庆祝513】医院判定瘫痪 九旬老母从新站起来](https://github.com/Hongyu91/cecjy/issues/522#issue-616420133)
 
 [“六一零”的“秘密经费”](https://github.com/Hongyu91/cecjy/issues/519#issue-615686891)
-
-[“人民”不是冰冷的数字](https://github.com/Hongyu91/cecjy/issues/520#issue-615688664)
-
-[重庆双胞胎姐妹被迫害致死](https://github.com/Hongyu91/cecjy/issues/518#issue-615345548)
-
-[瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174)
 
 ### 固定选文
 
