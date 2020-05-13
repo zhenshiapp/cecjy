@@ -1,7 +1,7 @@
 # 晓莲小站
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
-![image](https://user-images.githubusercontent.com/61768866/81495057-04423980-92e0-11ea-8642-dfa205a2ab2b.png)
+![2020-5-11-2005060343243_01--ss](https://user-images.githubusercontent.com/61768866/81793941-99da0500-953c-11ea-9807-42ce0a2eebd1.jpg)
 
 #### 本站免翻墙，为你提供真实信息。
 
