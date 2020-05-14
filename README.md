@@ -12,6 +12,14 @@
 
 ### 热点动态文章
 
+[末世之缘 ](https://github.com/Hongyu91/cecjy/issues/531#issue-617984268)
+
+[试错法用于社会是灾难](https://github.com/Hongyu91/cecjy/issues/532#issue-617987166)
+
+[给公检法不同职位众生讲真相的体悟](https://github.com/Hongyu91/cecjy/issues/529#issue-617977355)
+
+[恶人下场：遭举报与现世报](https://github.com/Hongyu91/cecjy/issues/530#issue-617980098)
+
 [【庆祝513】与师父在一起的日子 ](https://github.com/Hongyu91/cecjy/issues/527#issue-617254974)
 
 [【庆祝513】摆脱死神后　执迷老人终于明了是非 ](https://github.com/Hongyu91/cecjy/issues/526#issue-617250427)
@@ -21,14 +29,6 @@
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733)
 
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
-
-[【庆祝513】仙人指路](https://github.com/Hongyu91/cecjy/issues/525#issue-617206647)
-
-[【庆祝513】校园里的一股清流](https://github.com/Hongyu91/cecjy/issues/521#issue-616418219)
-
-[【庆祝513】医院判定瘫痪 九旬老母从新站起来](https://github.com/Hongyu91/cecjy/issues/522#issue-616420133)
-
-[“六一零”的“秘密经费”](https://github.com/Hongyu91/cecjy/issues/519#issue-615686891)
 
 ### 固定选文
 
