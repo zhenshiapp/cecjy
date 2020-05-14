@@ -36,6 +36,10 @@
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
 [中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
 
+[【庆祝513】“眼见为实”的母亲亲历神迹](https://github.com/Hongyu91/cecjy/issues/528#issue-617262043) |
+[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
+[末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
+
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
 # 明慧周报：中国版（第七九六期）
