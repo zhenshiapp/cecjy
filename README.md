@@ -12,6 +12,8 @@
 
 ### 热点动态文章
 
+[湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242)
+
 [拒绝中共 远离瘟疫](https://github.com/Hongyu91/cecjy/issues/533#issue-618747092)
 
 [纪实小小说：历经大难得洪福](https://github.com/Hongyu91/cecjy/issues/534#issue-618748842)
@@ -19,8 +21,6 @@
 [【庆祝513】快乐的“临时工”](https://github.com/Hongyu91/cecjy/issues/535#issue-618750319)
 
 [末世之缘 ](https://github.com/Hongyu91/cecjy/issues/531#issue-617984268)
-
-[试错法用于社会是灾难](https://github.com/Hongyu91/cecjy/issues/532#issue-617987166)
 
 [给公检法不同职位众生讲真相的体悟](https://github.com/Hongyu91/cecjy/issues/529#issue-617977355)
 
