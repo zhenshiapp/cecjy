@@ -12,6 +12,12 @@
 
 ### 热点动态文章
 
+[拒绝中共 远离瘟疫](https://github.com/Hongyu91/cecjy/issues/533#issue-618747092)
+
+[纪实小小说：历经大难得洪福](https://github.com/Hongyu91/cecjy/issues/534#issue-618748842)
+
+[【庆祝513】快乐的“临时工”](https://github.com/Hongyu91/cecjy/issues/535#issue-618750319)
+
 [末世之缘 ](https://github.com/Hongyu91/cecjy/issues/531#issue-617984268)
 
 [试错法用于社会是灾难](https://github.com/Hongyu91/cecjy/issues/532#issue-617987166)
@@ -23,12 +29,6 @@
 [【庆祝513】与师父在一起的日子 ](https://github.com/Hongyu91/cecjy/issues/527#issue-617254974)
 
 [【庆祝513】摆脱死神后　执迷老人终于明了是非 ](https://github.com/Hongyu91/cecjy/issues/526#issue-617250427)
-
-[【庆祝513】“眼见为实”的母亲亲历神迹](https://github.com/Hongyu91/cecjy/issues/528#issue-617262043)
-
-[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733)
-
-[末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
 
 ### 固定选文
 
