@@ -12,6 +12,8 @@
 
 ### 热点动态文章
 
+[天灭中共是真的 ](https://github.com/Hongyu91/cecjy/issues/538#issue-618831363)
+
 [湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242)
 
 [拒绝中共 远离瘟疫](https://github.com/Hongyu91/cecjy/issues/533#issue-618747092)
@@ -21,8 +23,6 @@
 [【庆祝513】快乐的“临时工”](https://github.com/Hongyu91/cecjy/issues/535#issue-618750319)
 
 [末世之缘 ](https://github.com/Hongyu91/cecjy/issues/531#issue-617984268)
-
-[给公检法不同职位众生讲真相的体悟](https://github.com/Hongyu91/cecjy/issues/529#issue-617977355)
 
 [恶人下场：遭举报与现世报](https://github.com/Hongyu91/cecjy/issues/530#issue-617980098)
 
