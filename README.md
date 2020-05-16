@@ -12,6 +12,14 @@
 
 ### 热点动态文章
 
+[美国国会飘扬国旗　向李洪志先生致敬](https://github.com/Hongyu91/cecjy/issues/539#issue-619407008)
+
+[【庆祝513】收银员的故事](https://github.com/Hongyu91/cecjy/issues/540#issue-619407665)
+
+[【庆祝513】捷克学员：大法给我们一家人幸福](https://github.com/Hongyu91/cecjy/issues/541#issue-619408264)
+
+[夫妻俩被枉判七年　四川邻水县罗学放被迫害致死 ](https://github.com/Hongyu91/cecjy/issues/542#issue-619408733)
+
 [天灭中共是真的 ](https://github.com/Hongyu91/cecjy/issues/538#issue-618831363)
 
 [湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242)
@@ -21,14 +29,6 @@
 [纪实小小说：历经大难得洪福](https://github.com/Hongyu91/cecjy/issues/534#issue-618748842)
 
 [【庆祝513】快乐的“临时工”](https://github.com/Hongyu91/cecjy/issues/535#issue-618750319)
-
-[末世之缘 ](https://github.com/Hongyu91/cecjy/issues/531#issue-617984268)
-
-[恶人下场：遭举报与现世报](https://github.com/Hongyu91/cecjy/issues/530#issue-617980098)
-
-[【庆祝513】与师父在一起的日子 ](https://github.com/Hongyu91/cecjy/issues/527#issue-617254974)
-
-[【庆祝513】摆脱死神后　执迷老人终于明了是非 ](https://github.com/Hongyu91/cecjy/issues/526#issue-617250427)
 
 ### 固定选文
 
