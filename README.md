@@ -12,6 +12,12 @@
 
 ### 热点动态文章
 
+[法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721)
+
+[大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625)
+
+[科学家们也在祈求造物主 ](https://github.com/Hongyu91/cecjy/issues/545#issue-619642439)
+
 [美国国会飘扬国旗　向李洪志先生致敬](https://github.com/Hongyu91/cecjy/issues/539#issue-619407008)
 
 [【庆祝513】收银员的故事](https://github.com/Hongyu91/cecjy/issues/540#issue-619407665)
@@ -24,13 +30,11 @@
 
 [湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242)
 
-[拒绝中共 远离瘟疫](https://github.com/Hongyu91/cecjy/issues/533#issue-618747092)
-
-[纪实小小说：历经大难得洪福](https://github.com/Hongyu91/cecjy/issues/534#issue-618748842)
-
-[【庆祝513】快乐的“临时工”](https://github.com/Hongyu91/cecjy/issues/535#issue-618750319)
-
 ### 固定选文
+
+[法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
+[大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
+[科学家们也在祈求造物主 ](https://github.com/Hongyu91/cecjy/issues/545#issue-619642439)
 
 [【庆祝513】“眼见为实”的母亲亲历神迹](https://github.com/Hongyu91/cecjy/issues/528#issue-617262043) |
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
