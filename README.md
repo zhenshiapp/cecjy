@@ -12,6 +12,12 @@
 
 ### 热点动态文章
 
+[1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840)
+
+[三言两语：武汉肺炎与开卷考试](https://github.com/Hongyu91/cecjy/issues/547#issue-619979299)
+
+[要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
+
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721)
 
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625)
@@ -24,13 +30,11 @@
 
 [【庆祝513】捷克学员：大法给我们一家人幸福](https://github.com/Hongyu91/cecjy/issues/541#issue-619408264)
 
-[夫妻俩被枉判七年　四川邻水县罗学放被迫害致死 ](https://github.com/Hongyu91/cecjy/issues/542#issue-619408733)
+### 主页选文
 
-[天灭中共是真的 ](https://github.com/Hongyu91/cecjy/issues/538#issue-618831363)
-
-[湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242)
-
-### 固定选文
+[1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840) |
+[湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242) |
+[【庆祝513】捷克学员：大法给我们一家人幸福](https://github.com/Hongyu91/cecjy/issues/541#issue-619408264)
 
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
