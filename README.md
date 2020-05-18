@@ -12,6 +12,8 @@
 
 ### 热点动态文章
 
+[【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
+
 [1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840)
 
 [三言两语：武汉肺炎与开卷考试](https://github.com/Hongyu91/cecjy/issues/547#issue-619979299)
@@ -28,13 +30,11 @@
 
 [【庆祝513】收银员的故事](https://github.com/Hongyu91/cecjy/issues/540#issue-619407665)
 
-[【庆祝513】捷克学员：大法给我们一家人幸福](https://github.com/Hongyu91/cecjy/issues/541#issue-619408264)
-
 ### 主页选文
 
 [1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840) |
 [湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242) |
-[【庆祝513】捷克学员：大法给我们一家人幸福](https://github.com/Hongyu91/cecjy/issues/541#issue-619408264)
+[【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
 
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
