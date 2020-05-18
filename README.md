@@ -46,7 +46,8 @@
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
-[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
+[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815) |
+[要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
