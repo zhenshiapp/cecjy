@@ -2,6 +2,8 @@
 
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
+点击阅读:[惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
+
 #### 本站免翻墙，为你提供真实信息。
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
