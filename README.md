@@ -12,6 +12,12 @@
 
 ### 热点动态文章
 
+[【庆祝513】患者信任的眼科医生](https://github.com/Hongyu91/cecjy/issues/550#issue-620725663)
+
+[河北保定蠡县乡村女教师遭非法网上庭审](https://github.com/Hongyu91/cecjy/issues/551#issue-620727795)
+
+[新疆昌吉自治州白家五人在迫害中离世](https://github.com/Hongyu91/cecjy/issues/552#issue-620730037)
+
 [【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
 
 [1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840)
@@ -23,12 +29,6 @@
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721)
 
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625)
-
-[科学家们也在祈求造物主 ](https://github.com/Hongyu91/cecjy/issues/545#issue-619642439)
-
-[美国国会飘扬国旗　向李洪志先生致敬](https://github.com/Hongyu91/cecjy/issues/539#issue-619407008)
-
-[【庆祝513】收银员的故事](https://github.com/Hongyu91/cecjy/issues/540#issue-619407665)
 
 ### 主页选文
 
