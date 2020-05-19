@@ -12,6 +12,8 @@
 
 ### 热点动态文章
 
+[丈夫念“法轮大法好”化险为夷 ](https://github.com/Hongyu91/cecjy/issues/553#issue-620734677)
+
 [【庆祝513】患者信任的眼科医生](https://github.com/Hongyu91/cecjy/issues/550#issue-620725663)
 
 [河北保定蠡县乡村女教师遭非法网上庭审](https://github.com/Hongyu91/cecjy/issues/551#issue-620727795)
@@ -27,8 +29,6 @@
 [要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
 
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721)
-
-[大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625)
 
 ### 主页选文
 
