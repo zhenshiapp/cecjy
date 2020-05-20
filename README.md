@@ -57,11 +57,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[電影《歸途》](https://web.ptbi.gq/watch?v=ZGetTLbAGms&feature=youtu.be)
+点文字播放：[中国东三省持续爆发疫情 隔离上千万人【中国禁闻】](https://web.ptbi.gq/watch?v=NPEDXimfioY)
 
-![sptu0](https://user-images.githubusercontent.com/61768866/80303111-bf4add00-87e0-11ea-9683-33cbc165e54e.png)
-
-電影《歸途》根据真实事件改编｜明星身患絕症重獲新生（新世纪影视 多语言字幕)
+![sptu0](https://user-images.githubusercontent.com/61768866/82400982-2760ac00-9a8b-11ea-9081-91658aec0acb.png)
 
 # 明慧周报：中国版（第七九七期）
 
