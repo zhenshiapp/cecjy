@@ -14,6 +14,12 @@
 
 ### 热点动态文章
 
+[河南法轮功学员张志温被警察入室绑架三天致死](https://github.com/Hongyu91/cecjy/issues/555#issue-621516565)
+
+[吉林省松原市法轮功学员王国珍含冤离世](https://github.com/Hongyu91/cecjy/issues/556#issue-621518018)
+
+[南昌一家：儿被迫害致死　父含冤离世、母遭关押](https://github.com/Hongyu91/cecjy/issues/557#issue-621521487)
+
 [丈夫念“法轮大法好”化险为夷 ](https://github.com/Hongyu91/cecjy/issues/553#issue-620734677)
 
 [【庆祝513】患者信任的眼科医生](https://github.com/Hongyu91/cecjy/issues/550#issue-620725663)
@@ -25,12 +31,6 @@
 [【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
 
 [1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840)
-
-[三言两语：武汉肺炎与开卷考试](https://github.com/Hongyu91/cecjy/issues/547#issue-619979299)
-
-[要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
-
-[法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721)
 
 ### 主页选文
 
