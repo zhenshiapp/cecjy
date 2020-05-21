@@ -57,9 +57,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[中国东三省持续爆发疫情 隔离上千万人【中国禁闻】](https://web.ptbi.gq/watch?v=NPEDXimfioY)
+点文字播放：[「武統」就開打?!💥中共渤海軍演虛張聲勢，盧比奧亮底線，蓬佩奧賀蔡英文「總統」；吉林舒蘭進入戰時狀態😱，得病的當官的多，公安局長染病，市委書記下台！【新聞看點 李沐陽 05.20】](https://web.ptbi.gq/watch?v=cgKXb_cix5M)
 
-![sptu0](https://user-images.githubusercontent.com/61768866/82400982-2760ac00-9a8b-11ea-9081-91658aec0acb.png)
+![sptu0](https://user-images.githubusercontent.com/61768866/82518377-d8317e80-9b51-11ea-9ae9-182b5d030b85.png)
 
 # 明慧周报：中国版（第七九七期）
 
