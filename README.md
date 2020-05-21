@@ -14,6 +14,14 @@
 
 ### 热点动态文章
 
+[从儿子活埋老母谈“干涉内政”](https://github.com/Hongyu91/cecjy/issues/561#issue-622304930)
+
+[血腥迫害何时了？](https://github.com/Hongyu91/cecjy/issues/558#issue-622299481)
+
+[社区警察：我们是来向李大师祝寿的](https://github.com/Hongyu91/cecjy/issues/559#issue-622301445)
+
+[为什么说“眼见为实”不可靠？](https://github.com/Hongyu91/cecjy/issues/560#issue-622302416)
+
 [河南法轮功学员张志温被警察入室绑架三天致死](https://github.com/Hongyu91/cecjy/issues/555#issue-621516565)
 
 [吉林省松原市法轮功学员王国珍含冤离世](https://github.com/Hongyu91/cecjy/issues/556#issue-621518018)
@@ -23,14 +31,6 @@
 [丈夫念“法轮大法好”化险为夷 ](https://github.com/Hongyu91/cecjy/issues/553#issue-620734677)
 
 [【庆祝513】患者信任的眼科医生](https://github.com/Hongyu91/cecjy/issues/550#issue-620725663)
-
-[河北保定蠡县乡村女教师遭非法网上庭审](https://github.com/Hongyu91/cecjy/issues/551#issue-620727795)
-
-[新疆昌吉自治州白家五人在迫害中离世](https://github.com/Hongyu91/cecjy/issues/552#issue-620730037)
-
-[【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
-
-[1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840)
 
 ### 主页选文
 
