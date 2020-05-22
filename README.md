@@ -14,6 +14,8 @@
 
 ### 热点动态文章
 
+[不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) 
+
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215)
 
 [法国DAFOH电视会议：抵制强摘器官 拒绝中共 ](https://github.com/Hongyu91/cecjy/issues/563#issue-623015105)
@@ -21,8 +23,6 @@
 [黑龙江牡丹江农垦分局原政法委副书记高福东被举报](https://github.com/Hongyu91/cecjy/issues/564#issue-623016623)
 
 [从儿子活埋老母谈“干涉内政”](https://github.com/Hongyu91/cecjy/issues/561#issue-622304930)
-
-[血腥迫害何时了？](https://github.com/Hongyu91/cecjy/issues/558#issue-622299481)
 
 [社区警察：我们是来向李大师祝寿的](https://github.com/Hongyu91/cecjy/issues/559#issue-622301445)
 
@@ -34,7 +34,7 @@
 
 ### 主页选文
 
-[1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840) |
+[不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) |
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
 [【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
 
