@@ -14,6 +14,12 @@
 
 ### 热点动态文章
 
+[从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215)
+
+[法国DAFOH电视会议：抵制强摘器官 拒绝中共 ](https://github.com/Hongyu91/cecjy/issues/563#issue-623015105)
+
+[黑龙江牡丹江农垦分局原政法委副书记高福东被举报](https://github.com/Hongyu91/cecjy/issues/564#issue-623016623)
+
 [从儿子活埋老母谈“干涉内政”](https://github.com/Hongyu91/cecjy/issues/561#issue-622304930)
 
 [血腥迫害何时了？](https://github.com/Hongyu91/cecjy/issues/558#issue-622299481)
@@ -26,16 +32,10 @@
 
 [吉林省松原市法轮功学员王国珍含冤离世](https://github.com/Hongyu91/cecjy/issues/556#issue-621518018)
 
-[南昌一家：儿被迫害致死　父含冤离世、母遭关押](https://github.com/Hongyu91/cecjy/issues/557#issue-621521487)
-
-[丈夫念“法轮大法好”化险为夷 ](https://github.com/Hongyu91/cecjy/issues/553#issue-620734677)
-
-[【庆祝513】患者信任的眼科医生](https://github.com/Hongyu91/cecjy/issues/550#issue-620725663)
-
 ### 主页选文
 
 [1178名法轮功学员四月被非法抓捕骚扰](https://github.com/Hongyu91/cecjy/issues/546#issue-619970840) |
-[湖北赤壁市九岁半女孩贴真相被骚扰](https://github.com/Hongyu91/cecjy/issues/537#issue-618780242) |
+[从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
 [【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
 
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
