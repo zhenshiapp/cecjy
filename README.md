@@ -57,9 +57,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[「武統」就開打?!💥中共渤海軍演虛張聲勢，盧比奧亮底線，蓬佩奧賀蔡英文「總統」；吉林舒蘭進入戰時狀態😱，得病的當官的多，公安局長染病，市委書記下台！【新聞看點 李沐陽 05.20】](https://web.ptbi.gq/watch?v=cgKXb_cix5M)
+点文字播放：[世界法轮大法日 洛法轮功学员表达感恩【2020世界法轮大法日】](https://www.youtube.com/watch?v=KxqKahsYHtE)
 
-![sptu0](https://user-images.githubusercontent.com/61768866/82518377-d8317e80-9b51-11ea-9ae9-182b5d030b85.png)
+![sptu1](https://user-images.githubusercontent.com/61768866/82623170-1bebbd00-9c12-11ea-9a91-ec07f296369a.png)
 
 # 明慧周报：中国版（第七九七期）
 
