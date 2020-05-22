@@ -57,7 +57,7 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[世界法轮大法日 洛法轮功学员表达感恩【2020世界法轮大法日】](https://www.youtube.com/watch?v=KxqKahsYHtE)
+点文字播放：[世界法轮大法日 洛法轮功学员表达感恩【2020世界法轮大法日】](https://web.ptbi.gq/watch?v=KxqKahsYHtE)
 
 ![sptu1](https://user-images.githubusercontent.com/61768866/82623170-1bebbd00-9c12-11ea-9a91-ec07f296369a.png)
 
