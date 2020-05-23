@@ -14,6 +14,12 @@
 
 ### 热点动态文章
 
+[地理巨变—五月份黄河突然变清 ](https://github.com/Hongyu91/cecjy/issues/567#issue-623599455)
+
+[疫情象最后通牒　让世界远离中共](https://github.com/Hongyu91/cecjy/issues/568#issue-623600476)
+
+[天津教师高丽娟被非法判刑九年　勒索三万](https://github.com/Hongyu91/cecjy/issues/569#issue-623601189)
+
 [不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) 
 
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215)
@@ -25,12 +31,6 @@
 [从儿子活埋老母谈“干涉内政”](https://github.com/Hongyu91/cecjy/issues/561#issue-622304930)
 
 [社区警察：我们是来向李大师祝寿的](https://github.com/Hongyu91/cecjy/issues/559#issue-622301445)
-
-[为什么说“眼见为实”不可靠？](https://github.com/Hongyu91/cecjy/issues/560#issue-622302416)
-
-[河南法轮功学员张志温被警察入室绑架三天致死](https://github.com/Hongyu91/cecjy/issues/555#issue-621516565)
-
-[吉林省松原市法轮功学员王国珍含冤离世](https://github.com/Hongyu91/cecjy/issues/556#issue-621518018)
 
 ### 主页选文
 
