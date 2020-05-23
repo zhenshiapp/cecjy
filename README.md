@@ -57,13 +57,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[世界法轮大法日 洛法轮功学员表达感恩【2020世界法轮大法日】](https://web.ptbi.gq/watch?v=KxqKahsYHtE)
+点文字播放：[林鄭月娥當市長？「香港已經完蛋了」😢港人籲5.24大遊行，5.27全港大三罷；廣州「超級誇張」暴雨🌊，沖走汽車🚙，牆壁噴水；吉林疫控再升級，病毒😈潛伏期更長，康復更難【新聞看點 李沐陽 05.22】](https://web.ptbi.gq/watch?v=rgpxpnBKu1A)
 
-![sptu1](https://user-images.githubusercontent.com/61768866/82623170-1bebbd00-9c12-11ea-9a91-ec07f296369a.png)
-
-点文字播放：[👉北京白晝變黑夜！陰風閃電怪雨冰雹，與兩會同時開幕；人大常委要定香港國安法，9月前完成，港人立爆示威；新冷戰揭幕！白宮推美中對抗策略；美售台先進魚雷；哈爾濱一醫院超90人確診 | 新聞拍案驚奇 大宇](https://web.ptbi.gq/watch?v=zBrRVXcA65A)
-
-![sptu7](https://user-images.githubusercontent.com/61768866/82628527-a4248f00-9c1f-11ea-913b-9170111e4420.png)
+![sptu0](https://user-images.githubusercontent.com/61768866/82724014-7ade2e80-9d05-11ea-89ac-6a3680c8feab.png)
 
 # 明慧周报：中国版（第七九八期）
 
