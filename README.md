@@ -14,6 +14,12 @@
 
 ### 每日真相文章（不定时更新）
 
+[纽约珠宝商染肺炎　念九字真言痊愈](https://github.com/Hongyu91/cecjy/issues/570#issue-623810595)
+
+[美国国务卿：中共给世界带来巨大伤害](https://github.com/Hongyu91/cecjy/issues/571#issue-623810960)
+
+[“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
+
 [地理巨变—五月份黄河突然变清 ](https://github.com/Hongyu91/cecjy/issues/567#issue-623599455)
 
 [疫情象最后通牒　让世界远离中共](https://github.com/Hongyu91/cecjy/issues/568#issue-623600476)
@@ -26,17 +32,11 @@
 
 [法国DAFOH电视会议：抵制强摘器官 拒绝中共 ](https://github.com/Hongyu91/cecjy/issues/563#issue-623015105)
 
-[黑龙江牡丹江农垦分局原政法委副书记高福东被举报](https://github.com/Hongyu91/cecjy/issues/564#issue-623016623)
-
-[从儿子活埋老母谈“干涉内政”](https://github.com/Hongyu91/cecjy/issues/561#issue-622304930)
-
-[社区警察：我们是来向李大师祝寿的](https://github.com/Hongyu91/cecjy/issues/559#issue-622301445)
-
 ### 主页选文(不经常更新）
 
 [不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) |
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
-[【庆祝513】人生如逆旅　归程师导航](https://github.com/Hongyu91/cecjy/issues/549#issue-620010938)
+[纽约珠宝商染肺炎　念九字真言痊愈](https://github.com/Hongyu91/cecjy/issues/570#issue-623810595)
 
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
