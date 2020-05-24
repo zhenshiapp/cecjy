@@ -22,11 +22,11 @@
 
 [地理巨变—五月份黄河突然变清 ](https://github.com/Hongyu91/cecjy/issues/567#issue-623599455)
 
+[藏头诗：天灭中共](https://github.com/Hongyu91/cecjy/issues/573#issue-623826330) 
+
 [疫情象最后通牒　让世界远离中共](https://github.com/Hongyu91/cecjy/issues/568#issue-623600476)
 
 [天津教师高丽娟被非法判刑九年　勒索三万](https://github.com/Hongyu91/cecjy/issues/569#issue-623601189)
-
-[不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) 
 
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215)
 
