@@ -40,7 +40,7 @@
 
 [法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
-[科学家们也在祈求造物主 ](https://github.com/Hongyu91/cecjy/issues/545#issue-619642439)
+[“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
 [【庆祝513】“眼见为实”的母亲亲历神迹](https://github.com/Hongyu91/cecjy/issues/528#issue-617262043) |
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
