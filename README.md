@@ -12,6 +12,8 @@
 
 点击观看: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
 
+点击观看: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=X0MJc4ypnn8)
+
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 ##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
