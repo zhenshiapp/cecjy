@@ -12,7 +12,7 @@
 
 ##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
-### 热点动态文章
+### 每日真相文章（不定时更新）
 
 [地理巨变—五月份黄河突然变清 ](https://github.com/Hongyu91/cecjy/issues/567#issue-623599455)
 
@@ -53,9 +53,17 @@
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-### 视频播放
+### 每日真相视频播放（不定时更新）
 
-### 新闻看点
+#### 《危難時刻》
+
+（如果视频打开处于加载状态，稍候刷新页面再播放）
+
+点文字播放：[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
+
+![sptu5](https://user-images.githubusercontent.com/61768866/82745809-0b2a7b00-9dbb-11ea-9ebe-eba88f5e0f56.png)
+
+#### 新闻看点
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
@@ -63,13 +71,21 @@
 
 ![sptu0](https://user-images.githubusercontent.com/61768866/82724014-7ade2e80-9d05-11ea-89ac-6a3680c8feab.png)
 
-### 深度追擊
+#### 深度追擊
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
 点文字播放：[香港一國兩制終結 💢 武漢篩查初評50萬人疑曾染疫 💢 車臣總統疑感染新冠肺炎 💢 巴基斯坦飛機墜落 💢潑墨女孩董瑤瓊再入精神病院 💢廣東罕見特大暴雨 【深度追擊 于溟 2020.5.23】](https://web.ptbi.gq/watch?v=uQMXZW266Yk)
 
 ![sptu9](https://user-images.githubusercontent.com/61768866/82745251-cac7fe80-9db4-11ea-96b9-29880350b531.png)
+
+#### 今日点击
+
+（如果视频打开处于加载状态，稍候刷新页面再播放）
+
+点文字播放：[【今日点击】中共强推国安法 港人无奈？](https://web.ptbi.gq/watch?v=4YCWZCtpaKE)
+
+![sptu2](https://user-images.githubusercontent.com/61768866/82745695-e1bd1f80-9db9-11ea-80fb-b30321867be3.png)
 
 # 明慧周报：中国版（第七九八期）
 
