@@ -16,7 +16,7 @@
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
+#### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
 ### 每日真相文章（不定时更新）
 
@@ -158,7 +158,7 @@
 [![tjp11](https://user-images.githubusercontent.com/61768866/76388286-bb373d00-63a3-11ea-9d08-d0616c87a5ee.png)](https://github.com/Hongyu91/cecjy/files/4316342/default.zip)
 [![tjp12](https://user-images.githubusercontent.com/61768866/76388709-b030dc80-63a4-11ea-8a52-683d9a546140.png)](https://github.com/Hongyu91/cecjy/files/4316363/default.zip)
 
-##### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
+#### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
