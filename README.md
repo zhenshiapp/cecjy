@@ -32,7 +32,7 @@
 
 [社区警察：我们是来向李大师祝寿的](https://github.com/Hongyu91/cecjy/issues/559#issue-622301445)
 
-### 主页选文
+### 主页选文(不经常更新）
 
 [不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) |
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
