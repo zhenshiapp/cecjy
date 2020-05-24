@@ -8,9 +8,9 @@
 
 点击阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
 
-点击箭头观看: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
+点击观看: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
 
-点击箭头观看: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
+点击观看: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
