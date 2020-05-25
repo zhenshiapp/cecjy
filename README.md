@@ -20,6 +20,12 @@
 
 ### 每日真相文章（不定时更新）
 
+[芬兰国家电视台曝光中共特务活动](https://github.com/Hongyu91/cecjy/issues/574#issue-624137540)
+
+[中国推广红色幼儿教育 ](https://github.com/Hongyu91/cecjy/issues/575#issue-624139100)
+
+[阴毒迫害法轮功学员　中共警察遭恶报](https://github.com/Hongyu91/cecjy/issues/576#issue-624140592)
+
 [纽约珠宝商染肺炎　念九字真言痊愈](https://github.com/Hongyu91/cecjy/issues/570#issue-623810595)
 
 [美国国务卿：中共给世界带来巨大伤害](https://github.com/Hongyu91/cecjy/issues/571#issue-623810960)
@@ -31,12 +37,6 @@
 [藏头诗：天灭中共](https://github.com/Hongyu91/cecjy/issues/573#issue-623826330) 
 
 [疫情象最后通牒　让世界远离中共](https://github.com/Hongyu91/cecjy/issues/568#issue-623600476)
-
-[天津教师高丽娟被非法判刑九年　勒索三万](https://github.com/Hongyu91/cecjy/issues/569#issue-623601189)
-
-[从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215)
-
-[法国DAFOH电视会议：抵制强摘器官 拒绝中共 ](https://github.com/Hongyu91/cecjy/issues/563#issue-623015105)
 
 ### 主页选文(不经常更新）
 
