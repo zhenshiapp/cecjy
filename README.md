@@ -67,9 +67,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
+点文字播放：[《密碼》| 企业核心技术人员失踪，揭示中共驚天秘密](https://web.ptbi.gq/watch?v=_zTKx6sfVUA)
 
-![sptu5](https://user-images.githubusercontent.com/61768866/82745809-0b2a7b00-9dbb-11ea-9ebe-eba88f5e0f56.png)
+![sptu9](https://user-images.githubusercontent.com/61768866/82855747-b9126280-9f3e-11ea-9371-4091b58ed353.png)
 
 # 明慧周报：中国版（第七九八期）
 
