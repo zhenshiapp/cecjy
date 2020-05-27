@@ -22,6 +22,14 @@
 
 ### 每日真相文章（不定时更新）
 
+[“法轮功好，从上面到下面谁都知道” ](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
+
+[天津法官枉法判决优秀教师九年重刑 ](https://github.com/Hongyu91/cecjy/issues/581#issue-625474405)
+
+[善待法轮功与法轮功学员能将功补过得福报](https://github.com/Hongyu91/cecjy/issues/582#issue-625476420)
+
+[“敛财”的假新闻是如何出炉的](https://github.com/Hongyu91/cecjy/issues/583#issue-625479258)
+
 [太原季家五子女蒙难　母亲遭恐吓离世 ](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545)
 
 [德国市民签名支持法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/577#issue-624653723)
@@ -31,14 +39,6 @@
 [发生在成都、重庆、河北涞水县的野蛮绑架 ](https://github.com/Hongyu91/cecjy/issues/579#issue-624656560)
 
 [芬兰国家电视台曝光中共特务活动](https://github.com/Hongyu91/cecjy/issues/574#issue-624137540)
-
-[中国推广红色幼儿教育 ](https://github.com/Hongyu91/cecjy/issues/575#issue-624139100)
-
-[阴毒迫害法轮功学员　中共警察遭恶报](https://github.com/Hongyu91/cecjy/issues/576#issue-624140592)
-
-[纽约珠宝商染肺炎　念九字真言痊愈](https://github.com/Hongyu91/cecjy/issues/570#issue-623810595)
-
-[美国国务卿：中共给世界带来巨大伤害](https://github.com/Hongyu91/cecjy/issues/571#issue-623810960)
 
 ### 主页选文(不经常更新）
 
