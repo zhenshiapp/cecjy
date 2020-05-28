@@ -22,6 +22,12 @@
 
 ### 每日真相文章（不定时更新）
 
+[企业主管得大法　实修心性登归途](https://github.com/Hongyu91/cecjy/issues/585#issue-626269185) 
+
+[人体器官移植背后的罪恶](https://github.com/Hongyu91/cecjy/issues/586#issue-626270815)
+
+[重庆73岁退伍军人被610人员入室抢劫并打落牙齿](https://github.com/Hongyu91/cecjy/issues/587#issue-626278776)
+
 [“法轮功好，从上面到下面谁都知道” ](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
 
 [天津法官枉法判决优秀教师九年重刑 ](https://github.com/Hongyu91/cecjy/issues/581#issue-625474405)
@@ -33,12 +39,6 @@
 [太原季家五子女蒙难　母亲遭恐吓离世 ](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545)
 
 [德国市民签名支持法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/577#issue-624653723)
-
-[老人：这是神又派使者再次来救我！](https://github.com/Hongyu91/cecjy/issues/578#issue-624655247) 
-
-[发生在成都、重庆、河北涞水县的野蛮绑架 ](https://github.com/Hongyu91/cecjy/issues/579#issue-624656560)
-
-[芬兰国家电视台曝光中共特务活动](https://github.com/Hongyu91/cecjy/issues/574#issue-624137540)
 
 ### 主页选文(不经常更新）
 
