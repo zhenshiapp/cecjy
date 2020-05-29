@@ -22,6 +22,12 @@
 
 ### 每日真相文章（不定时更新）
 
+[一至五月被中共迫害的部份社会精英](https://github.com/Hongyu91/cecjy/issues/588#issue-627061143)
+
+[加议员国会揭中共活摘法轮功学员器官](https://github.com/Hongyu91/cecjy/issues/589#issue-627063178)
+
+[湖北省江汉油田610头子徐文斗染中共病毒死亡 ](https://github.com/Hongyu91/cecjy/issues/590#issue-627063933)
+
 [企业主管得大法　实修心性登归途](https://github.com/Hongyu91/cecjy/issues/585#issue-626269185) 
 
 [人体器官移植背后的罪恶](https://github.com/Hongyu91/cecjy/issues/586#issue-626270815)
@@ -33,12 +39,6 @@
 [天津法官枉法判决优秀教师九年重刑 ](https://github.com/Hongyu91/cecjy/issues/581#issue-625474405)
 
 [善待法轮功与法轮功学员能将功补过得福报](https://github.com/Hongyu91/cecjy/issues/582#issue-625476420)
-
-[“敛财”的假新闻是如何出炉的](https://github.com/Hongyu91/cecjy/issues/583#issue-625479258)
-
-[太原季家五子女蒙难　母亲遭恐吓离世 ](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545)
-
-[德国市民签名支持法轮功学员反迫害](https://github.com/Hongyu91/cecjy/issues/577#issue-624653723)
 
 ### 主页选文(不经常更新）
 
