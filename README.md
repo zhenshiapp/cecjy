@@ -42,6 +42,11 @@
 
 ### 主页选文(不经常更新）
 
+[浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
+ [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
+[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815) |
+[要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
+
 [广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
 [太原季家五子女蒙难　母亲遭恐吓离世](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545) |
 [“法轮功好，从上面到下面谁都知道” ](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
@@ -57,11 +62,6 @@
 [【庆祝513】“眼见为实”的母亲亲历神迹](https://github.com/Hongyu91/cecjy/issues/528#issue-617262043) |
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
-
-[浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
- [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
-[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815) |
-[要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
