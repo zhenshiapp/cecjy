@@ -44,7 +44,7 @@
 
 [广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
 [重庆73岁退伍军人被610人员入室抢劫并打落牙齿](https://github.com/Hongyu91/cecjy/issues/587#issue-626278776) |
-[湖北省江汉油田610头子徐文斗染中共病毒死亡 ](https://github.com/Hongyu91/cecjy/issues/590#issue-627063933)
+[“法轮功好，从上面到下面谁都知道” ](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
 
 [不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) |
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
