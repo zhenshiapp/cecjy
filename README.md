@@ -22,6 +22,8 @@
 
 ### 每日真相文章（不定时更新）
 
+[广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921)
+
 [一至五月被中共迫害的部份社会精英](https://github.com/Hongyu91/cecjy/issues/588#issue-627061143)
 
 [加议员国会揭中共活摘法轮功学员器官](https://github.com/Hongyu91/cecjy/issues/589#issue-627063178)
@@ -38,9 +40,11 @@
 
 [天津法官枉法判决优秀教师九年重刑 ](https://github.com/Hongyu91/cecjy/issues/581#issue-625474405)
 
-[善待法轮功与法轮功学员能将功补过得福报](https://github.com/Hongyu91/cecjy/issues/582#issue-625476420)
-
 ### 主页选文(不经常更新）
+
+[广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
+[重庆73岁退伍军人被610人员入室抢劫并打落牙齿](https://github.com/Hongyu91/cecjy/issues/587#issue-626278776) |
+[湖北省江汉油田610头子徐文斗染中共病毒死亡 ](https://github.com/Hongyu91/cecjy/issues/590#issue-627063933)
 
 [不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) |
 [从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
