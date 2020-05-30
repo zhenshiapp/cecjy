@@ -24,6 +24,8 @@
 
 ### 每日真相文章（不定时更新）
 
+[长春周秀芝遭诬判　银行账户被强行冻结](https://github.com/Hongyu91/cecjy/issues/596#issue-627673799)
+
 [德国民众：我能做些什么 ](https://github.com/Hongyu91/cecjy/issues/593#issue-627667041)
 
 [我三姐一家受益了](https://github.com/Hongyu91/cecjy/issues/594#issue-627667381)
@@ -39,8 +41,6 @@
 [湖北省江汉油田610头子徐文斗染中共病毒死亡 ](https://github.com/Hongyu91/cecjy/issues/590#issue-627063933)
 
 [企业主管得大法　实修心性登归途](https://github.com/Hongyu91/cecjy/issues/585#issue-626269185) 
-
-[人体器官移植背后的罪恶](https://github.com/Hongyu91/cecjy/issues/586#issue-626270815)
 
 ### 主页选文(不经常更新）
 
