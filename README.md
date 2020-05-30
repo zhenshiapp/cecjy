@@ -8,6 +8,8 @@
 
 点击阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
 
+点击观看：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
+
 点击观看:[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
 
 点击观看: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
@@ -74,9 +76,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
+点文字播放：[《難忘的歲月》｜兩代人的經歷，揭開難以掩蓋的歷史真相](https://web.ptbi.gq/watch?v=Zj9okw4YlpA)
 
-![sptu1](https://user-images.githubusercontent.com/61768866/83317823-55e83f00-a262-11ea-82fb-bfd0c52f3c80.png)
+![sptu9](https://user-images.githubusercontent.com/61768866/83322119-b047c680-a287-11ea-8456-2a274ae22e4f.png)
 
 #### 新闻看点（5月30日已更新）
 
