@@ -42,8 +42,8 @@
 
 ### 主页选文(不经常更新）
 
-[十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)
-[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
+[十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
+[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
 [要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
