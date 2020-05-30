@@ -74,9 +74,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[《密碼》| 企业核心技术人员失踪，揭示中共驚天秘密](https://web.ptbi.gq/watch?v=_zTKx6sfVUA)
+点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
 
-![sptu9](https://user-images.githubusercontent.com/61768866/82855747-b9126280-9f3e-11ea-9371-4091b58ed353.png)
+![sptu1](https://user-images.githubusercontent.com/61768866/83317823-55e83f00-a262-11ea-82fb-bfd0c52f3c80.png)
 
 #### 新闻看点（5月30日已更新）
 
