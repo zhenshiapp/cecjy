@@ -22,6 +22,12 @@
 
 ### 每日真相文章（不定时更新）
 
+[德国民众：我能做些什么 ](https://github.com/Hongyu91/cecjy/issues/593#issue-627667041)
+
+[我三姐一家受益了](https://github.com/Hongyu91/cecjy/issues/594#issue-627667381)
+
+[古籍中关于瘟神的传说 ](https://github.com/Hongyu91/cecjy/issues/595#issue-627667719)
+
 [广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921)
 
 [一至五月被中共迫害的部份社会精英](https://github.com/Hongyu91/cecjy/issues/588#issue-627061143)
@@ -33,12 +39,6 @@
 [企业主管得大法　实修心性登归途](https://github.com/Hongyu91/cecjy/issues/585#issue-626269185) 
 
 [人体器官移植背后的罪恶](https://github.com/Hongyu91/cecjy/issues/586#issue-626270815)
-
-[重庆73岁退伍军人被610人员入室抢劫并打落牙齿](https://github.com/Hongyu91/cecjy/issues/587#issue-626278776)
-
-[“法轮功好，从上面到下面谁都知道” ](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
-
-[天津法官枉法判决优秀教师九年重刑 ](https://github.com/Hongyu91/cecjy/issues/581#issue-625474405)
 
 ### 主页选文(不经常更新）
 
