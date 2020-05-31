@@ -24,6 +24,12 @@
 
 ### 每日真相文章（不定时更新）
 
+[日料老板修大法　躲过生死劫 ](https://github.com/Hongyu91/cecjy/issues/597#issue-627910501)
+
+[学校再成党的洗脑前沿 亲子一网打尽](https://github.com/Hongyu91/cecjy/issues/598#issue-627911119)
+
+[赵乐际训斥地方官：“610”改头换面但依然存在](https://github.com/Hongyu91/cecjy/issues/599#issue-627911488) 
+
 [长春周秀芝遭诬判　银行账户被强行冻结](https://github.com/Hongyu91/cecjy/issues/596#issue-627673799)
 
 [德国民众：我能做些什么 ](https://github.com/Hongyu91/cecjy/issues/593#issue-627667041)
@@ -35,12 +41,6 @@
 [广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921)
 
 [一至五月被中共迫害的部份社会精英](https://github.com/Hongyu91/cecjy/issues/588#issue-627061143)
-
-[加议员国会揭中共活摘法轮功学员器官](https://github.com/Hongyu91/cecjy/issues/589#issue-627063178)
-
-[湖北省江汉油田610头子徐文斗染中共病毒死亡 ](https://github.com/Hongyu91/cecjy/issues/590#issue-627063933)
-
-[企业主管得大法　实修心性登归途](https://github.com/Hongyu91/cecjy/issues/585#issue-626269185) 
 
 ### 主页选文(不经常更新）
 
