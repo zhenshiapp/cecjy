@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[慕尼黑法轮功学员揭露中共迫害 ](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
+
+[河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392)
+
+[海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489)
+
 [日料老板修大法　躲过生死劫 ](https://github.com/Hongyu91/cecjy/issues/597#issue-627910501)
 
 [学校再成党的洗脑前沿 亲子一网打尽](https://github.com/Hongyu91/cecjy/issues/598#issue-627911119)
@@ -37,12 +43,6 @@
 [德国民众：我能做些什么 ](https://github.com/Hongyu91/cecjy/issues/593#issue-627667041)
 
 [我三姐一家受益了](https://github.com/Hongyu91/cecjy/issues/594#issue-627667381)
-
-[古籍中关于瘟神的传说 ](https://github.com/Hongyu91/cecjy/issues/595#issue-627667719)
-
-[广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921)
-
-[一至五月被中共迫害的部份社会精英](https://github.com/Hongyu91/cecjy/issues/588#issue-627061143)
 
 ### 主页选文（点文字阅读）
 
