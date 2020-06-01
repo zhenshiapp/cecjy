@@ -6,6 +6,8 @@
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
+### 了解真相
+
 点文字阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
 
 点文字观看：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
