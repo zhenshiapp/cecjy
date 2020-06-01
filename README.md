@@ -52,7 +52,10 @@
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
-[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815) |
+[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
+
+[河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392) |
+[海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489)
 
 [广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
 [太原季家五子女蒙难　母亲遭恐吓离世](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545) |
