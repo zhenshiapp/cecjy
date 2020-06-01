@@ -68,7 +68,7 @@
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
 
-### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
+### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)（点文字阅读）
 
 ### 动态真相视频
 
