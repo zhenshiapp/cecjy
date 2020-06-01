@@ -10,15 +10,15 @@
 
 点文字阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
 
-点文字观看：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
+点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
 
-点文字观看:[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
+点文字播放:[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
 
-点文字观看: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
+点文字播放: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
 
-点文字观看: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
+点文字播放: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
 
-点文字观看: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=ewFdPRm7PY8&pbjreload=10)
+点文字播放: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=ewFdPRm7PY8&pbjreload=10)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
