@@ -6,23 +6,23 @@
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
-点击阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
+点文字阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
 
-点击观看：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
+点文字观看：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
 
-点击观看:[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
+点文字观看:[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
 
-点击观看: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
+点文字观看: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
 
-点击观看: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
+点文字观看: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
 
-点击观看: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=ewFdPRm7PY8&pbjreload=10)
+点文字观看: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=ewFdPRm7PY8&pbjreload=10)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
-### 每日真相文章（不定时更新）
+### 每日真相文章（点文字阅读）
 
 [日料老板修大法　躲过生死劫 ](https://github.com/Hongyu91/cecjy/issues/597#issue-627910501)
 
@@ -42,7 +42,7 @@
 
 [一至五月被中共迫害的部份社会精英](https://github.com/Hongyu91/cecjy/issues/588#issue-627061143)
 
-### 主页选文(不经常更新）
+### 主页选文（点文字阅读）
 
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
@@ -70,7 +70,7 @@
 
 ### [阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-### 每日真相视频播放（不定时更新）
+### 真相视频
 
 #### 《難忘的歲月》（5月30日更新）
 
@@ -104,7 +104,7 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
-#### 推荐下载最新翻墙软件：
+#### 推荐下载最新翻墙软件：（点文字下载）
 
 [自由门7.81版电脑版](https://github.com/Hongyu91/cecjy/files/4672887/fg781r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
