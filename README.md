@@ -55,7 +55,8 @@
 [中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
 
 [河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392) |
-[海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489)
+[海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489) |
+[慕尼黑法轮功学员揭露中共迫害 ](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
 
 [广西电脑教师被害死　家人伸冤遭死亡威胁 ](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
 [太原季家五子女蒙难　母亲遭恐吓离世](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545) |
