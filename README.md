@@ -26,6 +26,8 @@
 
 ### 动态真相文章（点文字阅读）
 
+[广州法轮功学员罗织湘生前身后纪实](https://github.com/Hongyu91/cecjy/issues/606#issue-629016178) 
+
 [加拿大反对党领袖：全球宣告中共侵犯人权 ](https://github.com/Hongyu91/cecjy/issues/603#issue-628960532)
 
 [台湾女医生：迷途雁归救人急](https://github.com/Hongyu91/cecjy/issues/604#issue-628962645)
@@ -42,13 +44,11 @@
 
 [学校再成党的洗脑前沿 亲子一网打尽](https://github.com/Hongyu91/cecjy/issues/598#issue-627911119)
 
-[赵乐际训斥地方官：“610”改头换面但依然存在](https://github.com/Hongyu91/cecjy/issues/599#issue-627911488) 
-
 ### 主页选文（点文字阅读）
 
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
-[要中国　不要中共国](https://github.com/Hongyu91/cecjy/issues/548#issue-619980576)
+[广州法轮功学员罗织湘生前身后纪实](https://github.com/Hongyu91/cecjy/issues/606#issue-629016178) 
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
