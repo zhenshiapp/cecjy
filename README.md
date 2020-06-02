@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[加拿大反对党领袖：全球宣告中共侵犯人权 ](https://github.com/Hongyu91/cecjy/issues/603#issue-628960532)
+
+[台湾女医生：迷途雁归救人急](https://github.com/Hongyu91/cecjy/issues/604#issue-628962645)
+
+[深圳市法轮大法学员盛丽被绑架　至今下落不明](https://github.com/Hongyu91/cecjy/issues/605#issue-628963778)
+
 [慕尼黑法轮功学员揭露中共迫害 ](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
 
 [河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392)
@@ -37,12 +43,6 @@
 [学校再成党的洗脑前沿 亲子一网打尽](https://github.com/Hongyu91/cecjy/issues/598#issue-627911119)
 
 [赵乐际训斥地方官：“610”改头换面但依然存在](https://github.com/Hongyu91/cecjy/issues/599#issue-627911488) 
-
-[长春周秀芝遭诬判　银行账户被强行冻结](https://github.com/Hongyu91/cecjy/issues/596#issue-627673799)
-
-[德国民众：我能做些什么 ](https://github.com/Hongyu91/cecjy/issues/593#issue-627667041)
-
-[我三姐一家受益了](https://github.com/Hongyu91/cecjy/issues/594#issue-627667381)
 
 ### 主页选文（点文字阅读）
 
