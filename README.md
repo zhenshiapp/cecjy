@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共给全世界人民带来风险](https://github.com/Hongyu91/cecjy/issues/607#issue-629805179)
+
+[剥夺感恩的权利　四川泸县警察绑架多名法轮功学员](https://github.com/Hongyu91/cecjy/issues/608#issue-629806838)
+
+[给七旬弥留老人念九字真言　九十岁仍健朗](https://github.com/Hongyu91/cecjy/issues/609#issue-629807832)
+
 [广州法轮功学员罗织湘生前身后纪实](https://github.com/Hongyu91/cecjy/issues/606#issue-629016178) 
 
 [加拿大反对党领袖：全球宣告中共侵犯人权 ](https://github.com/Hongyu91/cecjy/issues/603#issue-628960532)
@@ -37,12 +43,6 @@
 [慕尼黑法轮功学员揭露中共迫害 ](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
 
 [河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392)
-
-[海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489)
-
-[日料老板修大法　躲过生死劫 ](https://github.com/Hongyu91/cecjy/issues/597#issue-627910501)
-
-[学校再成党的洗脑前沿 亲子一网打尽](https://github.com/Hongyu91/cecjy/issues/598#issue-627911119)
 
 ### 主页选文（点文字阅读）
 
