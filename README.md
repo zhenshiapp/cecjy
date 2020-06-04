@@ -82,9 +82,9 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[《難忘的歲月》｜兩代人的經歷，揭開難以掩蓋的歷史真相](https://web.ptbi.gq/watch?v=Zj9okw4YlpA)
+点文字播放：[電影《歸途》](https://web.ptbi.gq/watch?v=ZGetTLbAGms&feature=youtu.be)
 
-![sptu9](https://user-images.githubusercontent.com/61768866/83322119-b047c680-a287-11ea-8456-2a274ae22e4f.png)
+![sptu0](https://user-images.githubusercontent.com/61768866/80303111-bf4add00-87e0-11ea-9683-33cbc165e54e.png)
 
 #### 新闻看点
 
