@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[一至五月27名法轮功学员遭迫害离世](https://github.com/Hongyu91/cecjy/issues/612#issue-630592035)
+
+[六四纪念日话中共对社会精英的迫害](https://github.com/Hongyu91/cecjy/issues/610#issue-630584029)
+
+[“入错行”的警察真诚悔罪同样有美好未来 ](https://github.com/Hongyu91/cecjy/issues/611#issue-630585717)
+
 [中共给全世界人民带来风险](https://github.com/Hongyu91/cecjy/issues/607#issue-629805179)
 
 [剥夺感恩的权利　四川泸县警察绑架多名法轮功学员](https://github.com/Hongyu91/cecjy/issues/608#issue-629806838)
@@ -37,12 +43,6 @@
 [加拿大反对党领袖：全球宣告中共侵犯人权 ](https://github.com/Hongyu91/cecjy/issues/603#issue-628960532)
 
 [台湾女医生：迷途雁归救人急](https://github.com/Hongyu91/cecjy/issues/604#issue-628962645)
-
-[深圳市法轮大法学员盛丽被绑架　至今下落不明](https://github.com/Hongyu91/cecjy/issues/605#issue-628963778)
-
-[慕尼黑法轮功学员揭露中共迫害 ](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
-
-[河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392)
 
 ### 主页选文（点文字阅读）
 
