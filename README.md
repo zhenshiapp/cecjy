@@ -94,12 +94,12 @@
 
 ![sptu0](https://user-images.githubusercontent.com/61768866/82855962-65ecdf80-9f3f-11ea-968e-fdb1f8f75e9b.png)
 
-# 明慧周报：中国版（第七九九期）
+# 明慧周报：中国版（第八零零期）
 
-![image](https://user-images.githubusercontent.com/61768866/83234105-59c48480-a1c2-11ea-809e-b0f59a7c4540.png)
-![image](https://user-images.githubusercontent.com/61768866/83234157-6cd75480-a1c2-11ea-8dc3-d7a06f5b74c3.png)
-![image](https://user-images.githubusercontent.com/61768866/83234200-7eb8f780-a1c2-11ea-9534-0f80b1410b89.png)
-![image](https://user-images.githubusercontent.com/61768866/83234245-8d9faa00-a1c2-11ea-982a-47b9b321f6a8.png)
+![image](https://user-images.githubusercontent.com/61768866/83848897-22fde980-a741-11ea-8f97-2a76cb6dddfc.png)
+![image](https://user-images.githubusercontent.com/61768866/83848970-3f9a2180-a741-11ea-9438-19075149c54e.png)
+![image](https://user-images.githubusercontent.com/61768866/83849035-5e001d00-a741-11ea-91fd-9d06347d13f7.png)
+![image](https://user-images.githubusercontent.com/61768866/83849279-c0f1b400-a741-11ea-9785-eae7c8dcc360.png)
 
 #### 法轮功基本真相贴图
  
