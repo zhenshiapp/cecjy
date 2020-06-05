@@ -112,7 +112,7 @@
 
 #### 推荐下载最新翻墙软件：（点文字下载）
 
-[自由门7.81版电脑版](https://github.com/Hongyu91/cecjy/files/4672887/fg781r.zip) |
+[自由门7.83版电脑版](https://github.com/Hongyu91/cecjy/files/4734657/fg783r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
 [爱博电视 电脑版](https://github.com/Hongyu91/cecjy/files/4312292/iPPOTV.zip) |
 [自由门安卓版](https://github.com/Hongyu91/cecjy/files/4315538/fgma.zip) |
