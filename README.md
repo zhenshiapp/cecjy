@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[川普签署行政令　促进国际宗教自由](https://github.com/Hongyu91/cecjy/issues/613#issue-631365362) 
+
+[大陆留学生：原来被洗脑的是我呀](https://github.com/Hongyu91/cecjy/issues/614#issue-631368116)
+
+[从泥沼里被捞起的生命](https://github.com/Hongyu91/cecjy/issues/615#issue-631370886)
+
 [一至五月27名法轮功学员遭迫害离世](https://github.com/Hongyu91/cecjy/issues/612#issue-630592035)
 
 [六四纪念日话中共对社会精英的迫害](https://github.com/Hongyu91/cecjy/issues/610#issue-630584029)
@@ -37,12 +43,6 @@
 [剥夺感恩的权利　四川泸县警察绑架多名法轮功学员](https://github.com/Hongyu91/cecjy/issues/608#issue-629806838)
 
 [给七旬弥留老人念九字真言　九十岁仍健朗](https://github.com/Hongyu91/cecjy/issues/609#issue-629807832)
-
-[广州法轮功学员罗织湘生前身后纪实](https://github.com/Hongyu91/cecjy/issues/606#issue-629016178) 
-
-[加拿大反对党领袖：全球宣告中共侵犯人权 ](https://github.com/Hongyu91/cecjy/issues/603#issue-628960532)
-
-[台湾女医生：迷途雁归救人急](https://github.com/Hongyu91/cecjy/issues/604#issue-628962645)
 
 ### 主页选文（点文字阅读）
 
