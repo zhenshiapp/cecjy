@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[大法护身符能救人命](https://github.com/Hongyu91/cecjy/issues/617#issue-632270829)
+
+[被冤判十年　段小燕在甘肃女监遭迫害](https://github.com/Hongyu91/cecjy/issues/618#issue-632272504)
+
+[“小粉红”的转变](https://github.com/Hongyu91/cecjy/issues/619#issue-632274040)
+
 [川普签署行政令　促进国际宗教自由](https://github.com/Hongyu91/cecjy/issues/613#issue-631365362) 
 
 [大陆留学生：原来被洗脑的是我呀](https://github.com/Hongyu91/cecjy/issues/614#issue-631368116)
@@ -37,12 +43,6 @@
 [六四纪念日话中共对社会精英的迫害](https://github.com/Hongyu91/cecjy/issues/610#issue-630584029)
 
 [“入错行”的警察真诚悔罪同样有美好未来 ](https://github.com/Hongyu91/cecjy/issues/611#issue-630585717)
-
-[中共给全世界人民带来风险](https://github.com/Hongyu91/cecjy/issues/607#issue-629805179)
-
-[剥夺感恩的权利　四川泸县警察绑架多名法轮功学员](https://github.com/Hongyu91/cecjy/issues/608#issue-629806838)
-
-[给七旬弥留老人念九字真言　九十岁仍健朗](https://github.com/Hongyu91/cecjy/issues/609#issue-629807832)
 
 ### 主页选文（点文字阅读）
 
