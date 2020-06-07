@@ -26,23 +26,23 @@
 
 ### 动态真相文章（点文字阅读）
 
+[一句真话　成都两位女青年被非法关押一年多](https://github.com/Hongyu91/cecjy/issues/623#issue-633174286)
+
+[65岁的老太太李燕群被关入精神病医院](https://github.com/Hongyu91/cecjy/issues/624#issue-633176176) 
+
+[遭冤判五年　天津70岁姚士兰被劫入狱](https://github.com/Hongyu91/cecjy/issues/621#issue-633171070)
+
+[新罕布什尔联合导报：武汉肺炎撕掉了中共的面具](https://github.com/Hongyu91/cecjy/issues/622#issue-633172679)
+
 [大法护身符能救人命](https://github.com/Hongyu91/cecjy/issues/617#issue-632270829)
 
 [被冤判十年　段小燕在甘肃女监遭迫害](https://github.com/Hongyu91/cecjy/issues/618#issue-632272504)
 
 [“小粉红”的转变](https://github.com/Hongyu91/cecjy/issues/619#issue-632274040)
 
-[川普签署行政令　促进国际宗教自由](https://github.com/Hongyu91/cecjy/issues/613#issue-631365362) 
-
 [大陆留学生：原来被洗脑的是我呀](https://github.com/Hongyu91/cecjy/issues/614#issue-631368116)
 
 [从泥沼里被捞起的生命](https://github.com/Hongyu91/cecjy/issues/615#issue-631370886)
-
-[一至五月27名法轮功学员遭迫害离世](https://github.com/Hongyu91/cecjy/issues/612#issue-630592035)
-
-[六四纪念日话中共对社会精英的迫害](https://github.com/Hongyu91/cecjy/issues/610#issue-630584029)
-
-[“入错行”的警察真诚悔罪同样有美好未来 ](https://github.com/Hongyu91/cecjy/issues/611#issue-630585717)
 
 ### 主页选文（点文字阅读）
 
