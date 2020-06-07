@@ -78,13 +78,11 @@
 
 ### 动态真相视频
 
-#### 電影《歸途》
+#### 电影《永恒的五十分钟》
 
-（如果视频打开处于加载状态，稍候刷新页面再播放）
+点文字播放：[电影《永恒的五十分钟》](https://web.ptbi.gq/watch?v=SE_-OiSgHMI&feature=youtu.be)
 
-点文字播放：[電影《歸途》](https://web.ptbi.gq/watch?v=ZGetTLbAGms&feature=youtu.be)
-
-![sptu0](https://user-images.githubusercontent.com/61768866/80303111-bf4add00-87e0-11ea-9683-33cbc165e54e.png)
+![sptu1](https://user-images.githubusercontent.com/61768866/83963119-16f76080-a8d6-11ea-9422-68774dbbed17.png)
 
 #### 新闻看点
 
@@ -93,6 +91,10 @@
 点文字播放：[罷韓通過！有人歡呼有人哭，藍綠誰還親共？中共拉攏日本無效，習近平訪日泡湯；微信美國用戶被封，只因密碼有CCP？中共又服軟？與印度和平談判；捷克議長無懼中共將訪台【新聞看點 李沐陽 06.06】](https://web.ptbi.gq/watch?v=a85ekg3M0EM)
 
 ![sptu0](https://user-images.githubusercontent.com/61768866/82855962-65ecdf80-9f3f-11ea-968e-fdb1f8f75e9b.png)
+
+#### 主页精选视频（（点文字播放）
+
+[電影《歸途》](https://web.ptbi.gq/watch?v=ZGetTLbAGms&feature=youtu.be)
 
 # 明慧周报：中国版（第八零零期）
 
