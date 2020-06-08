@@ -21,7 +21,8 @@
 点文字播放: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=ewFdPRm7PY8&pbjreload=10)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
-#### 推荐使用ie，火狐，chrome等非国产浏览器访问可避免屏蔽！
+
+#### 推荐使用ie，火狐，chrome等非国产浏览器访问本站可避免屏蔽。
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
