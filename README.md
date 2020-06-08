@@ -26,6 +26,14 @@
 
 ### 动态真相文章（点文字阅读）
 
+[长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
+
+[河南张志温遭警察绑架三天致死　家人讨说法](https://github.com/Hongyu91/cecjy/issues/626#issue-634276869)
+
+[话说臭名昭著的“610” ](https://github.com/Hongyu91/cecjy/issues/627#issue-634278992)
+
+[法轮大法神奇故事（65）：我一人炼功　全家都受益](https://github.com/Hongyu91/cecjy/issues/625#issue-634272333)
+
 [一句真话　成都两位女青年被非法关押一年多](https://github.com/Hongyu91/cecjy/issues/623#issue-633174286)
 
 [65岁的老太太李燕群被关入精神病医院](https://github.com/Hongyu91/cecjy/issues/624#issue-633176176) 
@@ -36,14 +44,6 @@
 
 [大法护身符能救人命](https://github.com/Hongyu91/cecjy/issues/617#issue-632270829)
 
-[被冤判十年　段小燕在甘肃女监遭迫害](https://github.com/Hongyu91/cecjy/issues/618#issue-632272504)
-
-[“小粉红”的转变](https://github.com/Hongyu91/cecjy/issues/619#issue-632274040)
-
-[大陆留学生：原来被洗脑的是我呀](https://github.com/Hongyu91/cecjy/issues/614#issue-631368116)
-
-[从泥沼里被捞起的生命](https://github.com/Hongyu91/cecjy/issues/615#issue-631370886)
-
 ### 主页选文（点文字阅读）
 
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
@@ -52,7 +52,7 @@
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
-[中国大陆民众：没人相信共产党 ](https://github.com/Hongyu91/cecjy/issues/506#issue-615114815)
+[长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
 [河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392) |
 [海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489) |
