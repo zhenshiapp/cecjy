@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[三十年后中共变没变？](https://github.com/Hongyu91/cecjy/issues/629#issue-635169813)
+
+[江泽民迫害法轮功的十大罪恶](https://github.com/Hongyu91/cecjy/issues/630#issue-635171914)
+
+[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417)
+
 [长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
 [河南张志温遭警察绑架三天致死　家人讨说法](https://github.com/Hongyu91/cecjy/issues/626#issue-634276869)
@@ -39,12 +45,6 @@
 [一句真话　成都两位女青年被非法关押一年多](https://github.com/Hongyu91/cecjy/issues/623#issue-633174286)
 
 [65岁的老太太李燕群被关入精神病医院](https://github.com/Hongyu91/cecjy/issues/624#issue-633176176) 
-
-[遭冤判五年　天津70岁姚士兰被劫入狱](https://github.com/Hongyu91/cecjy/issues/621#issue-633171070)
-
-[新罕布什尔联合导报：武汉肺炎撕掉了中共的面具](https://github.com/Hongyu91/cecjy/issues/622#issue-633172679)
-
-[大法护身符能救人命](https://github.com/Hongyu91/cecjy/issues/617#issue-632270829)
 
 ### 主页选文（点文字阅读）
 
@@ -72,7 +72,7 @@
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
-[【庆祝513】“眼见为实”的母亲亲历神迹](https://github.com/Hongyu91/cecjy/issues/528#issue-617262043) |
+[[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417) |
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
 
