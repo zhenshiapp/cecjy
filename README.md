@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国务院：去年96位法轮功学员遭迫害死](https://github.com/Hongyu91/cecjy/issues/632#issue-637670850)
+
+[妻子被迫害致死　哈尔滨市万云龙含冤离世](https://github.com/Hongyu91/cecjy/issues/633#issue-637675287)
+
+[原安徽省政法委常务副书记许刚遭报落马 ](https://github.com/Hongyu91/cecjy/issues/634#issue-637676695) 
+
 [三十年后中共变没变？](https://github.com/Hongyu91/cecjy/issues/629#issue-635169813)
 
 [江泽民迫害法轮功的十大罪恶](https://github.com/Hongyu91/cecjy/issues/630#issue-635171914)
@@ -39,12 +45,6 @@
 [河南张志温遭警察绑架三天致死　家人讨说法](https://github.com/Hongyu91/cecjy/issues/626#issue-634276869)
 
 [话说臭名昭著的“610” ](https://github.com/Hongyu91/cecjy/issues/627#issue-634278992)
-
-[法轮大法神奇故事（65）：我一人炼功　全家都受益](https://github.com/Hongyu91/cecjy/issues/625#issue-634272333)
-
-[一句真话　成都两位女青年被非法关押一年多](https://github.com/Hongyu91/cecjy/issues/623#issue-633174286)
-
-[65岁的老太太李燕群被关入精神病医院](https://github.com/Hongyu91/cecjy/issues/624#issue-633176176) 
 
 ### 主页选文（点文字阅读）
 
