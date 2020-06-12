@@ -98,12 +98,12 @@
 
 [電影《歸途》](https://web.ptbi.gq/watch?v=ZGetTLbAGms&feature=youtu.be)
 
-# 明慧周报：中国版（第八零零期）
+# 明慧周报：中国版（第八零一期）
 
-![image](https://user-images.githubusercontent.com/61768866/83848897-22fde980-a741-11ea-8f97-2a76cb6dddfc.png)
-![image](https://user-images.githubusercontent.com/61768866/83848970-3f9a2180-a741-11ea-9438-19075149c54e.png)
-![image](https://user-images.githubusercontent.com/61768866/83849035-5e001d00-a741-11ea-91fd-9d06347d13f7.png)
-![image](https://user-images.githubusercontent.com/61768866/83849279-c0f1b400-a741-11ea-9785-eae7c8dcc360.png)
+![image](https://user-images.githubusercontent.com/61768866/84497282-0e8d9400-ace1-11ea-8933-2ac974360c5e.png)
+![image](https://user-images.githubusercontent.com/61768866/84497380-3f6dc900-ace1-11ea-9529-c058360ba5c7.png)
+![image](https://user-images.githubusercontent.com/61768866/84497437-5dd3c480-ace1-11ea-8b47-2a32cc8fad47.png)
+![image](https://user-images.githubusercontent.com/61768866/84497494-7cd25680-ace1-11ea-8d1f-244448fbacc4.png)
 
 #### 法轮功基本真相贴图
  
