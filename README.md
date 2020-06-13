@@ -8,7 +8,7 @@
 
 ### 了解真相
 
-点文字阅读: [惊心动魄的灾难面前 人们更加清醒](https://github.com/Hongyu91/cecjy/issues/554#issue-620799931)
+点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
 
 点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
 
@@ -28,6 +28,8 @@
 
 ### 动态真相文章（点文字阅读）
 
+[终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
+
 [我是修炼法轮大法的校长](https://github.com/Hongyu91/cecjy/issues/636#issue-638112250)
 
 [中共还会隐瞒下一次疫情吗？](https://github.com/Hongyu91/cecjy/issues/637#issue-638112686)
@@ -43,8 +45,6 @@
 [三十年后中共变没变？](https://github.com/Hongyu91/cecjy/issues/629#issue-635169813)
 
 [江泽民迫害法轮功的十大罪恶](https://github.com/Hongyu91/cecjy/issues/630#issue-635171914)
-
-[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417)
 
 ### 主页选文（点文字阅读）
 
