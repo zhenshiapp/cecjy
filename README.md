@@ -86,13 +86,13 @@
 
 ![sptu1](https://user-images.githubusercontent.com/61768866/83963119-16f76080-a8d6-11ea-9422-68774dbbed17.png)
 
-#### 新闻看点
+#### 【環球直擊】
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[高曉松評希特勒，寓意深刻？「新八國聯軍」來襲，官媒不忘扣帽子；川普不忍了，韓正危險了！澳洲強硬政策不下跪；遮天蔽日！數千億蝗蟲真的來了！南方洪災破紀錄，超過北京半年雨【新聞看點 李沐陽 06.11】](https://web.ptbi.gq/watch?v=9Z0RgTpdUiE)
+点文字播放：[【環球直擊】水庫無預警洩洪沖走很多人/失業寒冬與經濟困頓/疫情危機中提振經濟(6月12日完整版1）](https://web.ptbi.gq/watch?v=my1B5KU9x0s)
 
-![sptu0](https://user-images.githubusercontent.com/61768866/82855962-65ecdf80-9f3f-11ea-968e-fdb1f8f75e9b.png)
+![sptu1](https://user-images.githubusercontent.com/61768866/84554999-3581af80-ad4d-11ea-9772-060b434ef620.png)
 
 #### 主页精选视频（（点文字播放）
 
