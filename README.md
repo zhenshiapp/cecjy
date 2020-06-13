@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[我是修炼法轮大法的校长](https://github.com/Hongyu91/cecjy/issues/636#issue-638112250)
+
+[中共还会隐瞒下一次疫情吗？](https://github.com/Hongyu91/cecjy/issues/637#issue-638112686)
+
+[丈夫诚念“九字真言”绝处逢生](https://github.com/Hongyu91/cecjy/issues/638#issue-638113128)
+
 [美国务院：去年96位法轮功学员遭迫害死](https://github.com/Hongyu91/cecjy/issues/632#issue-637670850)
 
 [妻子被迫害致死　哈尔滨市万云龙含冤离世](https://github.com/Hongyu91/cecjy/issues/633#issue-637675287)
@@ -39,12 +45,6 @@
 [江泽民迫害法轮功的十大罪恶](https://github.com/Hongyu91/cecjy/issues/630#issue-635171914)
 
 [“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417)
-
-[长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
-
-[河南张志温遭警察绑架三天致死　家人讨说法](https://github.com/Hongyu91/cecjy/issues/626#issue-634276869)
-
-[话说臭名昭著的“610” ](https://github.com/Hongyu91/cecjy/issues/627#issue-634278992)
 
 ### 主页选文（点文字阅读）
 
