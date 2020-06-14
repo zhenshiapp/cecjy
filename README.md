@@ -90,7 +90,7 @@
 
 （如果视频打开处于加载状态，稍候刷新页面再播放）
 
-点文字播放：[【環球直擊】水庫無預警洩洪沖走很多人/失業寒冬與經濟困頓/疫情危機中提振經濟(6月12日完整版1）](https://web.ptbi.gq/watch?v=my1B5KU9x0s)
+点文字播放：[【環球直擊】北京疫情連環爆/香港青年護記者擋刀襲/港財經專家談港資退場（6月13日完整版）](https://web.ptbi.gq/watch?v=yMYdir0EGA8)
 
 ![sptu1](https://user-images.githubusercontent.com/61768866/84554999-3581af80-ad4d-11ea-9772-060b434ef620.png)
 
