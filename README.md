@@ -28,6 +28,8 @@
 
 ### 动态真相文章（点文字阅读）
 
+[人要能听的進修炼人的劝善之言](https://github.com/Hongyu91/cecjy/issues/644#issue-638319706) 
+
 [轮回纪事：看神韵知《寒窑》始末 见轮回中恩义与结缘](https://github.com/Hongyu91/cecjy/issues/643#issue-638319265)
 
 [“判刑10年罚10万”美关注法轮功受迫害](https://github.com/Hongyu91/cecjy/issues/640#issue-638299740)
@@ -43,8 +45,6 @@
 [丈夫诚念“九字真言”绝处逢生](https://github.com/Hongyu91/cecjy/issues/638#issue-638113128)
 
 [妻子被迫害致死　哈尔滨市万云龙含冤离世](https://github.com/Hongyu91/cecjy/issues/633#issue-637675287)
-
-[原安徽省政法委常务副书记许刚遭报落马 ](https://github.com/Hongyu91/cecjy/issues/634#issue-637676695) 
 
 ### 主页选文（点文字阅读）
 
