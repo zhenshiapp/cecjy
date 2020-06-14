@@ -28,6 +28,8 @@
 
 ### 动态真相文章（点文字阅读）
 
+[轮回纪事：看神韵知《寒窑》始末 见轮回中恩义与结缘](https://github.com/Hongyu91/cecjy/issues/643#issue-638319265)
+
 [“判刑10年罚10万”美关注法轮功受迫害](https://github.com/Hongyu91/cecjy/issues/640#issue-638299740)
 
 [他们身体温热时　被中共毁“尸”灭迹](https://github.com/Hongyu91/cecjy/issues/641#issue-638300629)
@@ -39,8 +41,6 @@
 [中共还会隐瞒下一次疫情吗？](https://github.com/Hongyu91/cecjy/issues/637#issue-638112686)
 
 [丈夫诚念“九字真言”绝处逢生](https://github.com/Hongyu91/cecjy/issues/638#issue-638113128)
-
-[美国务院：去年96位法轮功学员遭迫害死](https://github.com/Hongyu91/cecjy/issues/632#issue-637670850)
 
 [妻子被迫害致死　哈尔滨市万云龙含冤离世](https://github.com/Hongyu91/cecjy/issues/633#issue-637675287)
 
