@@ -28,7 +28,11 @@
 
 ### 动态真相文章（点文字阅读）
 
-[终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
+[“判刑10年罚10万”美关注法轮功受迫害](https://github.com/Hongyu91/cecjy/issues/640#issue-638299740)
+
+[他们身体温热时　被中共毁“尸”灭迹](https://github.com/Hongyu91/cecjy/issues/641#issue-638300629)
+
+[台湾医师：终于找到我的老师！](https://github.com/Hongyu91/cecjy/issues/642#issue-638301367)
 
 [我是修炼法轮大法的校长](https://github.com/Hongyu91/cecjy/issues/636#issue-638112250)
 
@@ -41,10 +45,6 @@
 [妻子被迫害致死　哈尔滨市万云龙含冤离世](https://github.com/Hongyu91/cecjy/issues/633#issue-637675287)
 
 [原安徽省政法委常务副书记许刚遭报落马 ](https://github.com/Hongyu91/cecjy/issues/634#issue-637676695) 
-
-[三十年后中共变没变？](https://github.com/Hongyu91/cecjy/issues/629#issue-635169813)
-
-[江泽民迫害法轮功的十大罪恶](https://github.com/Hongyu91/cecjy/issues/630#issue-635171914)
 
 ### 主页选文（点文字阅读）
 
