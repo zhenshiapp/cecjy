@@ -6,7 +6,7 @@
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
-### 提示：视频网站更新，暂时无法连接。
+### 提示：视频网站更新，暂时无法播放。
 
 ### 了解真相
 
