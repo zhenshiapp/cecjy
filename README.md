@@ -30,6 +30,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[从美、中两国对宗教自由的态度看信神与反神](https://github.com/Hongyu91/cecjy/issues/645#issue-638594324)
+
+[疫情中　同学真的觉醒了](https://github.com/Hongyu91/cecjy/issues/646#issue-638595767)
+
+[众生醒悟　传真相　喜三退](https://github.com/Hongyu91/cecjy/issues/647#issue-638596879)
+
 [人要能听的進修炼人的劝善之言](https://github.com/Hongyu91/cecjy/issues/644#issue-638319706) 
 
 [轮回纪事：看神韵知《寒窑》始末 见轮回中恩义与结缘](https://github.com/Hongyu91/cecjy/issues/643#issue-638319265)
@@ -41,12 +47,6 @@
 [台湾医师：终于找到我的老师！](https://github.com/Hongyu91/cecjy/issues/642#issue-638301367)
 
 [我是修炼法轮大法的校长](https://github.com/Hongyu91/cecjy/issues/636#issue-638112250)
-
-[中共还会隐瞒下一次疫情吗？](https://github.com/Hongyu91/cecjy/issues/637#issue-638112686)
-
-[丈夫诚念“九字真言”绝处逢生](https://github.com/Hongyu91/cecjy/issues/638#issue-638113128)
-
-[妻子被迫害致死　哈尔滨市万云龙含冤离世](https://github.com/Hongyu91/cecjy/issues/633#issue-637675287)
 
 ### 主页选文（点文字阅读）
 
