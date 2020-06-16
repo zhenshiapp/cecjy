@@ -10,6 +10,8 @@
 
 ### 了解真相
 
+点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
+
 点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
 
 点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
