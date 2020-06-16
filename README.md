@@ -30,6 +30,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[随时会被心脏病夺命的父亲彻底康复](https://github.com/Hongyu91/cecjy/issues/648#issue-639437997)
+
+[坚持信仰　河北涞水县孟庆莲屡遭中共酷刑折磨 ](https://github.com/Hongyu91/cecjy/issues/649#issue-639442909)
+
+[我无所求　真的为你好](https://github.com/Hongyu91/cecjy/issues/650#issue-639447831)
+
 [从美、中两国对宗教自由的态度看信神与反神](https://github.com/Hongyu91/cecjy/issues/645#issue-638594324)
 
 [疫情中　同学真的觉醒了](https://github.com/Hongyu91/cecjy/issues/646#issue-638595767)
@@ -41,12 +47,6 @@
 [轮回纪事：看神韵知《寒窑》始末 见轮回中恩义与结缘](https://github.com/Hongyu91/cecjy/issues/643#issue-638319265)
 
 [“判刑10年罚10万”美关注法轮功受迫害](https://github.com/Hongyu91/cecjy/issues/640#issue-638299740)
-
-[他们身体温热时　被中共毁“尸”灭迹](https://github.com/Hongyu91/cecjy/issues/641#issue-638300629)
-
-[台湾医师：终于找到我的老师！](https://github.com/Hongyu91/cecjy/issues/642#issue-638301367)
-
-[我是修炼法轮大法的校长](https://github.com/Hongyu91/cecjy/issues/636#issue-638112250)
 
 ### 主页选文（点文字阅读）
 
