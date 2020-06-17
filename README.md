@@ -6,8 +6,6 @@
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
-### 提示：视频网站更新，暂时无法播放。
-
 ### 了解真相
 
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
@@ -15,14 +13,6 @@
 点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
 
 点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
-
-点文字播放:[《危難時刻》【武漢肺炎症狀消失】還原武漢市民一家感染真實事件影片【新版】](https://web.ptbi.gq/watch?v=JfBhjBBZWnk)
-
-点文字播放: [【微電影】希望的聲音I](https://web.ptbi.gq/watch?v=s-ttELjUhyE&list=PLq6XKlDwv2R1NToyptLbWfcorxP4Ld1Ex)
-
-点文字播放: [【微電影】希望的聲音II](https://web.ptbi.gq/watch?v=a6VVqROOI3I&list=PLq6XKlDwv2R34PTNurZcXRx6m7R_QYX6i)
-
-点文字播放: [《約在春天相見》 謹以此歌獻給武漢人](https://web.ptbi.gq/watch?v=ewFdPRm7PY8&pbjreload=10)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
@@ -81,26 +71,6 @@
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
-
-### 动态真相视频
-
-#### 电影《永恒的五十分钟》
-
-点文字播放：[电影《永恒的五十分钟》](https://web.ptbi.gq/watch?v=SE_-OiSgHMI&feature=youtu.be)
-
-![sptu1](https://user-images.githubusercontent.com/61768866/83963119-16f76080-a8d6-11ea-9422-68774dbbed17.png)
-
-#### 【環球直擊】
-
-（如果视频打开处于加载状态，稍候刷新页面再播放）
-
-点文字播放：[【環球直擊】北京疫情連環爆/香港青年護記者擋刀襲/港財經專家談港資退場（6月13日完整版）](https://web.ptbi.gq/watch?v=yMYdir0EGA8)
-
-![sptu1](https://user-images.githubusercontent.com/61768866/84554999-3581af80-ad4d-11ea-9772-060b434ef620.png)
-
-#### 主页精选视频（（点文字播放）
-
-[電影《歸途》](https://web.ptbi.gq/watch?v=ZGetTLbAGms&feature=youtu.be)
 
 # 明慧周报：中国版（第八零一期）
 
