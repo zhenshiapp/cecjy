@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[历史本不应这样轮回](https://github.com/Hongyu91/cecjy/issues/652#issue-640263361) 
+
+[如何将自己的名字从黑色名册转入金色名册](https://github.com/Hongyu91/cecjy/issues/653#issue-640266310)
+
+[重庆市副市长、市公安局局长邓恢林遭恶报落马 ](https://github.com/Hongyu91/cecjy/issues/654#issue-640267582)
+
 [随时会被心脏病夺命的父亲彻底康复](https://github.com/Hongyu91/cecjy/issues/648#issue-639437997)
 
 [坚持信仰　河北涞水县孟庆莲屡遭中共酷刑折磨 ](https://github.com/Hongyu91/cecjy/issues/649#issue-639442909)
@@ -31,12 +37,6 @@
 [疫情中　同学真的觉醒了](https://github.com/Hongyu91/cecjy/issues/646#issue-638595767)
 
 [众生醒悟　传真相　喜三退](https://github.com/Hongyu91/cecjy/issues/647#issue-638596879)
-
-[人要能听的進修炼人的劝善之言](https://github.com/Hongyu91/cecjy/issues/644#issue-638319706) 
-
-[轮回纪事：看神韵知《寒窑》始末 见轮回中恩义与结缘](https://github.com/Hongyu91/cecjy/issues/643#issue-638319265)
-
-[“判刑10年罚10万”美关注法轮功受迫害](https://github.com/Hongyu91/cecjy/issues/640#issue-638299740)
 
 ### 主页选文（点文字阅读）
 
