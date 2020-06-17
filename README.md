@@ -12,8 +12,6 @@
 
 点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
 
-点文字播放：[请了解法轮功真相，你真的不能再错过了](https://web.ptbi.gq/watch?v=L38GopJPUO4)
-
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### 推荐使用ie，火狐，chrome等非国产浏览器访问本站可避免国内屏蔽。
