@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[明白真相的人越来越多](https://github.com/Hongyu91/cecjy/issues/655#issue-640988031)
+
+[从谭德赛、陈冯富珍看中共对世卫的渗透 ](https://github.com/Hongyu91/cecjy/issues/656#issue-640990955)
+
+[被中共残酷迫害的父亲们](https://github.com/Hongyu91/cecjy/issues/657#issue-640998470)
+
 [历史本不应这样轮回](https://github.com/Hongyu91/cecjy/issues/652#issue-640263361) 
 
 [如何将自己的名字从黑色名册转入金色名册](https://github.com/Hongyu91/cecjy/issues/653#issue-640266310)
@@ -31,12 +37,6 @@
 [坚持信仰　河北涞水县孟庆莲屡遭中共酷刑折磨 ](https://github.com/Hongyu91/cecjy/issues/649#issue-639442909)
 
 [我无所求　真的为你好](https://github.com/Hongyu91/cecjy/issues/650#issue-639447831)
-
-[从美、中两国对宗教自由的态度看信神与反神](https://github.com/Hongyu91/cecjy/issues/645#issue-638594324)
-
-[疫情中　同学真的觉醒了](https://github.com/Hongyu91/cecjy/issues/646#issue-638595767)
-
-[众生醒悟　传真相　喜三退](https://github.com/Hongyu91/cecjy/issues/647#issue-638596879)
 
 ### 主页选文（点文字阅读）
 
