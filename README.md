@@ -12,7 +12,7 @@
 
 点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
 
-点文字阅读:[苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
+点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
