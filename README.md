@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[蓬佩奥敦促在自由与暴政间做出抉择 ](https://github.com/Hongyu91/cecjy/issues/662#issue-642324511) 
+
+[香港学员无惧中共恶法　获美国务院邀请发言](https://github.com/Hongyu91/cecjy/issues/663#issue-642325033)
+
+[苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
+
 [东北小伙子：法轮功是在救人啊](https://github.com/Hongyu91/cecjy/issues/658#issue-641745662)
 
 [国际制裁中共　这一次打到“七寸”](https://github.com/Hongyu91/cecjy/issues/659#issue-641746928)
@@ -31,12 +37,6 @@
 [从谭德赛、陈冯富珍看中共对世卫的渗透 ](https://github.com/Hongyu91/cecjy/issues/656#issue-640990955)
 
 [被中共残酷迫害的父亲们](https://github.com/Hongyu91/cecjy/issues/657#issue-640998470)
-
-[历史本不应这样轮回](https://github.com/Hongyu91/cecjy/issues/652#issue-640263361) 
-
-[如何将自己的名字从黑色名册转入金色名册](https://github.com/Hongyu91/cecjy/issues/653#issue-640266310)
-
-[重庆市副市长、市公安局局长邓恢林遭恶报落马 ](https://github.com/Hongyu91/cecjy/issues/654#issue-640267582)
 
 ### 主页选文（点文字阅读）
 
