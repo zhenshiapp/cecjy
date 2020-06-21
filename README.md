@@ -22,6 +22,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[夫妻被迫害致死　女儿19岁遭关押毒打、枉判十年 ](https://github.com/Hongyu91/cecjy/issues/667#issue-642515689)
+
+[教育的目地在于培养至善的品德](https://github.com/Hongyu91/cecjy/issues/665#issue-642514040)
+
+[各国除垢史回顾](https://github.com/Hongyu91/cecjy/issues/666#issue-642514420)
+
 [蓬佩奥敦促在自由与暴政间做出抉择 ](https://github.com/Hongyu91/cecjy/issues/662#issue-642324511) 
 
 [香港学员无惧中共恶法　获美国务院邀请发言](https://github.com/Hongyu91/cecjy/issues/663#issue-642325033)
@@ -33,12 +39,6 @@
 [国际制裁中共　这一次打到“七寸”](https://github.com/Hongyu91/cecjy/issues/659#issue-641746928)
 
 [隔离和包夹](https://github.com/Hongyu91/cecjy/issues/660#issue-641748817)
-
-[明白真相的人越来越多](https://github.com/Hongyu91/cecjy/issues/655#issue-640988031)
-
-[从谭德赛、陈冯富珍看中共对世卫的渗透 ](https://github.com/Hongyu91/cecjy/issues/656#issue-640990955)
-
-[被中共残酷迫害的父亲们](https://github.com/Hongyu91/cecjy/issues/657#issue-640998470)
 
 ### 主页选文（点文字阅读）
 
