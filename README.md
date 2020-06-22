@@ -12,7 +12,7 @@
 
 点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
 
-点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
+点文字阅读: [北京疫情大爆发　当局宣布“半封城”](https://github.com/Hongyu91/cecjy/issues/668#issue-642827683)
 
 点文字阅读:[德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
