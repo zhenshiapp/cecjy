@@ -10,9 +10,11 @@
 
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
 
+点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
+
 点文字阅读: [终将醒来，或早或晚 ](https://github.com/Hongyu91/cecjy/issues/639#issue-638174674)
 
-点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
+点文字阅读:[德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
@@ -21,6 +23,12 @@
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
 ### 动态真相文章（点文字阅读）
+
+[北京疫情大爆发　当局宣布“半封城”](https://github.com/Hongyu91/cecjy/issues/668#issue-642827683)
+
+[从新冠疫情到经济疫情](https://github.com/Hongyu91/cecjy/issues/669#issue-642829604)
+
+[德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
 [夫妻被迫害致死　女儿19岁遭关押毒打、枉判十年 ](https://github.com/Hongyu91/cecjy/issues/667#issue-642515689)
 
@@ -33,12 +41,6 @@
 [香港学员无惧中共恶法　获美国务院邀请发言](https://github.com/Hongyu91/cecjy/issues/663#issue-642325033)
 
 [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
-
-[东北小伙子：法轮功是在救人啊](https://github.com/Hongyu91/cecjy/issues/658#issue-641745662)
-
-[国际制裁中共　这一次打到“七寸”](https://github.com/Hongyu91/cecjy/issues/659#issue-641746928)
-
-[隔离和包夹](https://github.com/Hongyu91/cecjy/issues/660#issue-641748817)
 
 ### 主页选文（点文字阅读）
 
