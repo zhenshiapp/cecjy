@@ -8,6 +8,8 @@
 
 ### 了解真相
 
+点文字阅读: [中共给武汉制造的伤亡今昔](https://github.com/Hongyu91/cecjy/issues/671#issue-643591291)
+
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
 
 点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
@@ -24,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[山东菏泽市单县孟庆梅在山东女子监狱被迫害致死](https://github.com/Hongyu91/cecjy/issues/672#issue-643593470) 
+
+[山东省寿光市公安局国保大队郭洪堂被举报](https://github.com/Hongyu91/cecjy/issues/673#issue-643595412)
+
+[大法让我遇事为别人考虑](https://github.com/Hongyu91/cecjy/issues/674#issue-643597066)
+
 [北京疫情大爆发　当局宣布“半封城”](https://github.com/Hongyu91/cecjy/issues/668#issue-642827683)
 
 [从新冠疫情到经济疫情](https://github.com/Hongyu91/cecjy/issues/669#issue-642829604)
@@ -35,12 +43,6 @@
 [教育的目地在于培养至善的品德](https://github.com/Hongyu91/cecjy/issues/665#issue-642514040)
 
 [各国除垢史回顾](https://github.com/Hongyu91/cecjy/issues/666#issue-642514420)
-
-[蓬佩奥敦促在自由与暴政间做出抉择 ](https://github.com/Hongyu91/cecjy/issues/662#issue-642324511) 
-
-[香港学员无惧中共恶法　获美国务院邀请发言](https://github.com/Hongyu91/cecjy/issues/663#issue-642325033)
-
-[苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
 
 ### 主页选文（点文字阅读）
 
