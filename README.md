@@ -8,6 +8,8 @@
 
 ### 了解真相
 
+点文字阅读: [看见瘟神（2）](https://github.com/Hongyu91/cecjy/issues/676#issue-644378995)
+
 点文字阅读: [中共给武汉制造的伤亡今昔](https://github.com/Hongyu91/cecjy/issues/671#issue-643591291)
 
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
@@ -26,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[唐山市丰润区30多法轮功学员被绑架 韩玉芹被迫害致死](https://github.com/Hongyu91/cecjy/issues/675#issue-644372921)
+
+[流离失所七年　锦州吴宝贵又被诬判三年 ](https://github.com/Hongyu91/cecjy/issues/677#issue-644381259)
+
+[大法化解了她与我的“劫数”](https://github.com/Hongyu91/cecjy/issues/678#issue-644384707)
+
 [山东菏泽市单县孟庆梅在山东女子监狱被迫害致死](https://github.com/Hongyu91/cecjy/issues/672#issue-643593470) 
 
 [山东省寿光市公安局国保大队郭洪堂被举报](https://github.com/Hongyu91/cecjy/issues/673#issue-643595412)
@@ -37,12 +45,6 @@
 [从新冠疫情到经济疫情](https://github.com/Hongyu91/cecjy/issues/669#issue-642829604)
 
 [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
-
-[夫妻被迫害致死　女儿19岁遭关押毒打、枉判十年 ](https://github.com/Hongyu91/cecjy/issues/667#issue-642515689)
-
-[教育的目地在于培养至善的品德](https://github.com/Hongyu91/cecjy/issues/665#issue-642514040)
-
-[各国除垢史回顾](https://github.com/Hongyu91/cecjy/issues/666#issue-642514420)
 
 ### 主页选文（点文字阅读）
 
