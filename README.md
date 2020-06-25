@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[丹东市政法委操控社区人员骚扰法轮功学员和家人 ](https://github.com/Hongyu91/cecjy/issues/680#issue-645249732)
+
+[重庆医生陈淑芳遭受洗脑、劳教等迫害的经历](https://github.com/Hongyu91/cecjy/issues/682#issue-645258805)
+
+[“念这九个字，我的腿不疼了” ](https://github.com/Hongyu91/cecjy/issues/683#issue-645263529)
+
 [唐山市丰润区30多法轮功学员被绑架 韩玉芹被迫害致死](https://github.com/Hongyu91/cecjy/issues/675#issue-644372921)
 
 [流离失所七年　锦州吴宝贵又被诬判三年 ](https://github.com/Hongyu91/cecjy/issues/677#issue-644381259)
@@ -39,12 +45,6 @@
 [山东省寿光市公安局国保大队郭洪堂被举报](https://github.com/Hongyu91/cecjy/issues/673#issue-643595412)
 
 [大法让我遇事为别人考虑](https://github.com/Hongyu91/cecjy/issues/674#issue-643597066)
-
-[北京疫情大爆发　当局宣布“半封城”](https://github.com/Hongyu91/cecjy/issues/668#issue-642827683)
-
-[从新冠疫情到经济疫情](https://github.com/Hongyu91/cecjy/issues/669#issue-642829604)
-
-[德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
 ### 主页选文（点文字阅读）
 
