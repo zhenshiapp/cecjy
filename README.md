@@ -48,8 +48,6 @@
 
 ### 主页选文（点文字阅读）
 
-[与司灾神的对话（一）](https://github.com/Hongyu91/cecjy/issues/679#issue-644466778) |
-
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
 [广州法轮功学员罗织湘生前身后纪实](https://github.com/Hongyu91/cecjy/issues/606#issue-629016178) 
