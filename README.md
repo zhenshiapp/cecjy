@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[修大法身心得健康　冤狱12载九死一生](https://github.com/Hongyu91/cecjy/issues/684#issue-646075225) 
+
+[控告办案人员违法　河北朱素荣家人遭国保报复](https://github.com/Hongyu91/cecjy/issues/685#issue-646077616)
+
+[舅舅的老来福](https://github.com/Hongyu91/cecjy/issues/686#issue-646079837)
+
 [丹东市政法委操控社区人员骚扰法轮功学员和家人 ](https://github.com/Hongyu91/cecjy/issues/680#issue-645249732)
 
 [重庆医生陈淑芳遭受洗脑、劳教等迫害的经历](https://github.com/Hongyu91/cecjy/issues/682#issue-645258805)
@@ -39,12 +45,6 @@
 [流离失所七年　锦州吴宝贵又被诬判三年 ](https://github.com/Hongyu91/cecjy/issues/677#issue-644381259)
 
 [大法化解了她与我的“劫数”](https://github.com/Hongyu91/cecjy/issues/678#issue-644384707)
-
-[山东菏泽市单县孟庆梅在山东女子监狱被迫害致死](https://github.com/Hongyu91/cecjy/issues/672#issue-643593470) 
-
-[山东省寿光市公安局国保大队郭洪堂被举报](https://github.com/Hongyu91/cecjy/issues/673#issue-643595412)
-
-[大法让我遇事为别人考虑](https://github.com/Hongyu91/cecjy/issues/674#issue-643597066)
 
 ### 主页选文（点文字阅读）
 
@@ -78,12 +78,12 @@
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-# 明慧周报：中国版（第八零二期）
+# 明慧周报：中国版（第八零三期）
 
-![image](https://user-images.githubusercontent.com/61768866/85105346-f36cd800-b23c-11ea-9219-67b24409bea9.png)
-![image](https://user-images.githubusercontent.com/61768866/85105443-1d25ff00-b23d-11ea-8d5b-973d742c11e7.png)
-![image](https://user-images.githubusercontent.com/61768866/85105580-48105300-b23d-11ea-9a26-7cf254817c36.png)
-![image](https://user-images.githubusercontent.com/61768866/85105670-68d8a880-b23d-11ea-9a49-344f1082c61d.png)
+![image](https://user-images.githubusercontent.com/61768866/85834557-2fb4b100-b7c6-11ea-9dc6-216ca90dff63.png)
+![image](https://user-images.githubusercontent.com/61768866/85834665-5a9f0500-b7c6-11ea-9e8f-33e25bb89d53.png)
+![image](https://user-images.githubusercontent.com/61768866/85834847-a6ea4500-b7c6-11ea-9f59-4bb8675e25b7.png)
+![image](https://user-images.githubusercontent.com/61768866/85835150-211ac980-b7c7-11ea-8c53-29ef32ba5b2e.png)
 
 #### 法轮功基本真相贴图
  
