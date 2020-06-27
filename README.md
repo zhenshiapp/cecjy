@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[一位司机的肺腑之言](https://github.com/Hongyu91/cecjy/issues/688#issue-646676737)
+
+[正义呼声　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/689#issue-646677248)
+
+[被众人羡慕的一家子](https://github.com/Hongyu91/cecjy/issues/690#issue-646678184)
+
 [修大法身心得健康　冤狱12载九死一生](https://github.com/Hongyu91/cecjy/issues/684#issue-646075225) 
 
 [控告办案人员违法　河北朱素荣家人遭国保报复](https://github.com/Hongyu91/cecjy/issues/685#issue-646077616)
@@ -39,12 +45,6 @@
 [重庆医生陈淑芳遭受洗脑、劳教等迫害的经历](https://github.com/Hongyu91/cecjy/issues/682#issue-645258805)
 
 [“念这九个字，我的腿不疼了” ](https://github.com/Hongyu91/cecjy/issues/683#issue-645263529)
-
-[唐山市丰润区30多法轮功学员被绑架 韩玉芹被迫害致死](https://github.com/Hongyu91/cecjy/issues/675#issue-644372921)
-
-[流离失所七年　锦州吴宝贵又被诬判三年 ](https://github.com/Hongyu91/cecjy/issues/677#issue-644381259)
-
-[大法化解了她与我的“劫数”](https://github.com/Hongyu91/cecjy/issues/678#issue-644384707)
 
 ### 主页选文（点文字阅读）
 
