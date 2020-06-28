@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[浙江丽水市林云娟被迫害致死已多年](https://github.com/Hongyu91/cecjy/issues/691#issue-646857356)
+
+[念出九字真言　老伴脑梗症状很快康复 ](https://github.com/Hongyu91/cecjy/issues/692#issue-646857849)
+
+[湖北咸宁市卷烟厂迫害法轮功而遭恶报实例](https://github.com/Hongyu91/cecjy/issues/693#issue-646858163)
+
 [一位司机的肺腑之言](https://github.com/Hongyu91/cecjy/issues/688#issue-646676737)
 
 [正义呼声　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/689#issue-646677248)
@@ -39,12 +45,6 @@
 [控告办案人员违法　河北朱素荣家人遭国保报复](https://github.com/Hongyu91/cecjy/issues/685#issue-646077616)
 
 [舅舅的老来福](https://github.com/Hongyu91/cecjy/issues/686#issue-646079837)
-
-[丹东市政法委操控社区人员骚扰法轮功学员和家人 ](https://github.com/Hongyu91/cecjy/issues/680#issue-645249732)
-
-[重庆医生陈淑芳遭受洗脑、劳教等迫害的经历](https://github.com/Hongyu91/cecjy/issues/682#issue-645258805)
-
-[“念这九个字，我的腿不疼了” ](https://github.com/Hongyu91/cecjy/issues/683#issue-645263529)
 
 ### 主页选文（点文字阅读）
 
