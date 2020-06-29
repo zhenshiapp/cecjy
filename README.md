@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国正在醒来：国家安全顾问奥布莱恩的演讲](https://github.com/Hongyu91/cecjy/issues/694#issue-647177887) 
+
+[藏在心里二十年的天安门广场见闻 ](https://github.com/Hongyu91/cecjy/issues/695#issue-647180317)
+
+[“九字真言”　谁念谁受益](https://github.com/Hongyu91/cecjy/issues/696#issue-647181927)
+
 [浙江丽水市林云娟被迫害致死已多年](https://github.com/Hongyu91/cecjy/issues/691#issue-646857356)
 
 [念出九字真言　老伴脑梗症状很快康复 ](https://github.com/Hongyu91/cecjy/issues/692#issue-646857849)
@@ -39,12 +45,6 @@
 [正义呼声　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/689#issue-646677248)
 
 [被众人羡慕的一家子](https://github.com/Hongyu91/cecjy/issues/690#issue-646678184)
-
-[修大法身心得健康　冤狱12载九死一生](https://github.com/Hongyu91/cecjy/issues/684#issue-646075225) 
-
-[控告办案人员违法　河北朱素荣家人遭国保报复](https://github.com/Hongyu91/cecjy/issues/685#issue-646077616)
-
-[舅舅的老来福](https://github.com/Hongyu91/cecjy/issues/686#issue-646079837)
 
 ### 主页选文（点文字阅读）
 
