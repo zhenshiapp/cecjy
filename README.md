@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共的招牌“人大代表”申纪兰病亡 ](https://github.com/Hongyu91/cecjy/issues/697#issue-647925409)
+
+[谎话说尽　真相难封 ](https://github.com/Hongyu91/cecjy/issues/698#issue-647928282)
+
+[郭玲娜诉昆明公安违法拘留案开庭](https://github.com/Hongyu91/cecjy/issues/699#issue-647930977)
+
 [美国正在醒来：国家安全顾问奥布莱恩的演讲](https://github.com/Hongyu91/cecjy/issues/694#issue-647177887) 
 
 [藏在心里二十年的天安门广场见闻 ](https://github.com/Hongyu91/cecjy/issues/695#issue-647180317)
@@ -39,12 +45,6 @@
 [念出九字真言　老伴脑梗症状很快康复 ](https://github.com/Hongyu91/cecjy/issues/692#issue-646857849)
 
 [湖北咸宁市卷烟厂迫害法轮功而遭恶报实例](https://github.com/Hongyu91/cecjy/issues/693#issue-646858163)
-
-[一位司机的肺腑之言](https://github.com/Hongyu91/cecjy/issues/688#issue-646676737)
-
-[正义呼声　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/689#issue-646677248)
-
-[被众人羡慕的一家子](https://github.com/Hongyu91/cecjy/issues/690#issue-646678184)
 
 ### 主页选文（点文字阅读）
 
