@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[传真相　得福报](https://github.com/Hongyu91/cecjy/issues/700#issue-648751828)
+
+[唐山法轮功学员韩玉芹被迫害致死情况](https://github.com/Hongyu91/cecjy/issues/701#issue-648754845)
+
+[癌症晚期病人的真实故事](https://github.com/Hongyu91/cecjy/issues/702#issue-648758133)
+
 [中共的招牌“人大代表”申纪兰病亡 ](https://github.com/Hongyu91/cecjy/issues/697#issue-647925409)
 
 [谎话说尽　真相难封 ](https://github.com/Hongyu91/cecjy/issues/698#issue-647928282)
@@ -39,12 +45,6 @@
 [藏在心里二十年的天安门广场见闻 ](https://github.com/Hongyu91/cecjy/issues/695#issue-647180317)
 
 [“九字真言”　谁念谁受益](https://github.com/Hongyu91/cecjy/issues/696#issue-647181927)
-
-[浙江丽水市林云娟被迫害致死已多年](https://github.com/Hongyu91/cecjy/issues/691#issue-646857356)
-
-[念出九字真言　老伴脑梗症状很快康复 ](https://github.com/Hongyu91/cecjy/issues/692#issue-646857849)
-
-[湖北咸宁市卷烟厂迫害法轮功而遭恶报实例](https://github.com/Hongyu91/cecjy/issues/693#issue-646858163)
 
 ### 主页选文（点文字阅读）
 
