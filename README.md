@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[颈椎伤残无药可医　修炼大法重获新生](https://github.com/Hongyu91/cecjy/issues/703#issue-649716231) 
+
+[疫情中明真相的人](https://github.com/Hongyu91/cecjy/issues/704#issue-649718717)
+
+[重庆老人活着被送火化　家人伸冤遭追捕 ](https://github.com/Hongyu91/cecjy/issues/705#issue-649723667)
+
 [传真相　得福报](https://github.com/Hongyu91/cecjy/issues/700#issue-648751828)
 
 [唐山法轮功学员韩玉芹被迫害致死情况](https://github.com/Hongyu91/cecjy/issues/701#issue-648754845)
@@ -39,12 +45,6 @@
 [谎话说尽　真相难封 ](https://github.com/Hongyu91/cecjy/issues/698#issue-647928282)
 
 [郭玲娜诉昆明公安违法拘留案开庭](https://github.com/Hongyu91/cecjy/issues/699#issue-647930977)
-
-[美国正在醒来：国家安全顾问奥布莱恩的演讲](https://github.com/Hongyu91/cecjy/issues/694#issue-647177887) 
-
-[藏在心里二十年的天安门广场见闻 ](https://github.com/Hongyu91/cecjy/issues/695#issue-647180317)
-
-[“九字真言”　谁念谁受益](https://github.com/Hongyu91/cecjy/issues/696#issue-647181927)
 
 ### 主页选文（点文字阅读）
 
