@@ -20,7 +20,7 @@
 
 点文字阅读: [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
-点文字阅读:[重庆老人活着被送火化　家人伸冤遭追捕 ](https://github.com/Hongyu91/cecjy/issues/705#issue-649723667)
+点文字阅读: [重庆老人活着被送火化　家人伸冤遭追捕 ](https://github.com/Hongyu91/cecjy/issues/705#issue-649723667)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
