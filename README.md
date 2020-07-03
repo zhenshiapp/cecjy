@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[加拿大前司法部长：中共是政治病毒](https://github.com/Hongyu91/cecjy/issues/706#issue-650394876)
+
+[善化人心的力量](https://github.com/Hongyu91/cecjy/issues/707#issue-650396542)
+
+[中共邪党骚扰　尽显败象](https://github.com/Hongyu91/cecjy/issues/708#issue-650399202)
+
 [颈椎伤残无药可医　修炼大法重获新生](https://github.com/Hongyu91/cecjy/issues/703#issue-649716231) 
 
 [疫情中明真相的人](https://github.com/Hongyu91/cecjy/issues/704#issue-649718717)
@@ -39,12 +45,6 @@
 [唐山法轮功学员韩玉芹被迫害致死情况](https://github.com/Hongyu91/cecjy/issues/701#issue-648754845)
 
 [癌症晚期病人的真实故事](https://github.com/Hongyu91/cecjy/issues/702#issue-648758133)
-
-[中共的招牌“人大代表”申纪兰病亡 ](https://github.com/Hongyu91/cecjy/issues/697#issue-647925409)
-
-[谎话说尽　真相难封 ](https://github.com/Hongyu91/cecjy/issues/698#issue-647928282)
-
-[郭玲娜诉昆明公安违法拘留案开庭](https://github.com/Hongyu91/cecjy/issues/699#issue-647930977)
 
 ### 主页选文（点文字阅读）
 
