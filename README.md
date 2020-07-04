@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[百姓对法轮功学员如是说……](https://github.com/Hongyu91/cecjy/issues/710#issue-650841679)
+
+[疫情不是抗洪乏力的借口](https://github.com/Hongyu91/cecjy/issues/711#issue-650842012)
+
+[退休医生：从抵触到赞叹](https://github.com/Hongyu91/cecjy/issues/712#issue-650842206)
+
 [加拿大前司法部长：中共是政治病毒](https://github.com/Hongyu91/cecjy/issues/706#issue-650394876)
 
 [善化人心的力量](https://github.com/Hongyu91/cecjy/issues/707#issue-650396542)
@@ -39,12 +45,6 @@
 [疫情中明真相的人](https://github.com/Hongyu91/cecjy/issues/704#issue-649718717)
 
 [重庆老人活着被送火化　家人伸冤遭追捕 ](https://github.com/Hongyu91/cecjy/issues/705#issue-649723667)
-
-[传真相　得福报](https://github.com/Hongyu91/cecjy/issues/700#issue-648751828)
-
-[唐山法轮功学员韩玉芹被迫害致死情况](https://github.com/Hongyu91/cecjy/issues/701#issue-648754845)
-
-[癌症晚期病人的真实故事](https://github.com/Hongyu91/cecjy/issues/702#issue-648758133)
 
 ### 主页选文（点文字阅读）
 
