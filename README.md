@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[三峡工程的出笼与中共的祸国](https://github.com/Hongyu91/cecjy/issues/713#issue-651018395) 
+
+[广东汕头市法轮功学员李荣丰被迫害离世](https://github.com/Hongyu91/cecjy/issues/714#issue-651018940)
+
+[甘肃省庆阳市宁县公安局三恶警察遭到恶报](https://github.com/Hongyu91/cecjy/issues/715#issue-651019329)
+
 [百姓对法轮功学员如是说……](https://github.com/Hongyu91/cecjy/issues/710#issue-650841679)
 
 [疫情不是抗洪乏力的借口](https://github.com/Hongyu91/cecjy/issues/711#issue-650842012)
@@ -39,12 +45,6 @@
 [善化人心的力量](https://github.com/Hongyu91/cecjy/issues/707#issue-650396542)
 
 [中共邪党骚扰　尽显败象](https://github.com/Hongyu91/cecjy/issues/708#issue-650399202)
-
-[颈椎伤残无药可医　修炼大法重获新生](https://github.com/Hongyu91/cecjy/issues/703#issue-649716231) 
-
-[疫情中明真相的人](https://github.com/Hongyu91/cecjy/issues/704#issue-649718717)
-
-[重庆老人活着被送火化　家人伸冤遭追捕 ](https://github.com/Hongyu91/cecjy/issues/705#issue-649723667)
 
 ### 主页选文（点文字阅读）
 
