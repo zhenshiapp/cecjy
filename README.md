@@ -8,6 +8,8 @@
 
 ### 了解真相
 
+点文字阅读: [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
+
 点文字阅读: [中共给武汉制造的伤亡今昔](https://github.com/Hongyu91/cecjy/issues/671#issue-643591291)
 
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
@@ -15,8 +17,6 @@
 点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
 
 点文字阅读: [北京疫情大爆发　当局宣布“半封城”](https://github.com/Hongyu91/cecjy/issues/668#issue-642827683)
-
-点文字阅读: [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
