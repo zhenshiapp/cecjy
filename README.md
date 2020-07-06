@@ -8,8 +8,6 @@
 
 ### 了解真相
 
-点文字阅读: [看见瘟神（2）](https://github.com/Hongyu91/cecjy/issues/676#issue-644378995)
-
 点文字阅读: [中共给武汉制造的伤亡今昔](https://github.com/Hongyu91/cecjy/issues/671#issue-643591291)
 
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
@@ -28,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“真善忍好！”冲散了疫情中的恐惧与烦恼](https://github.com/Hongyu91/cecjy/issues/716#issue-651310917)
+
+[妻子被强制失踪十多年　徐启田一家天南海北遭迫害 ](https://github.com/Hongyu91/cecjy/issues/717#issue-651314633)
+
+[大法救了我先生](https://github.com/Hongyu91/cecjy/issues/718#issue-651316113)
+
 [三峡工程的出笼与中共的祸国](https://github.com/Hongyu91/cecjy/issues/713#issue-651018395) 
 
 [广东汕头市法轮功学员李荣丰被迫害离世](https://github.com/Hongyu91/cecjy/issues/714#issue-651018940)
@@ -39,12 +43,6 @@
 [疫情不是抗洪乏力的借口](https://github.com/Hongyu91/cecjy/issues/711#issue-650842012)
 
 [退休医生：从抵触到赞叹](https://github.com/Hongyu91/cecjy/issues/712#issue-650842206)
-
-[加拿大前司法部长：中共是政治病毒](https://github.com/Hongyu91/cecjy/issues/706#issue-650394876)
-
-[善化人心的力量](https://github.com/Hongyu91/cecjy/issues/707#issue-650396542)
-
-[中共邪党骚扰　尽显败象](https://github.com/Hongyu91/cecjy/issues/708#issue-650399202)
 
 ### 主页选文（点文字阅读）
 
