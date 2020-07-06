@@ -16,7 +16,9 @@
 
 点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
 
-点文字阅读: [北京疫情大爆发　当局宣布“半封城”](https://github.com/Hongyu91/cecjy/issues/668#issue-642827683)
+点文字阅读: [三峡工程的出笼与中共的祸国](https://github.com/Hongyu91/cecjy/issues/713#issue-651018395) 
+
+点文字阅读: [妻子被强制失踪十多年　徐启田一家天南海北遭迫害 ](https://github.com/Hongyu91/cecjy/issues/717#issue-651314633)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
