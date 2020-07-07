@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“庚子之灾”迭加“日食带周期”带来的警示 ](https://github.com/Hongyu91/cecjy/issues/719#issue-652313090)
+
+[赵乐际把中纪委打造成了政法委 ](https://github.com/Hongyu91/cecjy/issues/720#issue-652314798)
+
+[中共基层人员执行迫害政策在各省市搅扰民众](https://github.com/Hongyu91/cecjy/issues/721#issue-652316805)
+
 [“真善忍好！”冲散了疫情中的恐惧与烦恼](https://github.com/Hongyu91/cecjy/issues/716#issue-651310917)
 
 [妻子被强制失踪十多年　徐启田一家天南海北遭迫害 ](https://github.com/Hongyu91/cecjy/issues/717#issue-651314633)
@@ -39,12 +45,6 @@
 [广东汕头市法轮功学员李荣丰被迫害离世](https://github.com/Hongyu91/cecjy/issues/714#issue-651018940)
 
 [甘肃省庆阳市宁县公安局三恶警察遭到恶报](https://github.com/Hongyu91/cecjy/issues/715#issue-651019329)
-
-[百姓对法轮功学员如是说……](https://github.com/Hongyu91/cecjy/issues/710#issue-650841679)
-
-[疫情不是抗洪乏力的借口](https://github.com/Hongyu91/cecjy/issues/711#issue-650842012)
-
-[退休医生：从抵触到赞叹](https://github.com/Hongyu91/cecjy/issues/712#issue-650842206)
 
 ### 主页选文（点文字阅读）
 
