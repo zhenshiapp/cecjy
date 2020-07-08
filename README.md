@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[感染中共病毒　诚念九字真言获救](https://github.com/Hongyu91/cecjy/issues/722#issue-653067840) 
+
+[加国前司法部长：孙茜被重判是中共将无辜定有罪](https://github.com/Hongyu91/cecjy/issues/723#issue-653070068)
+
+[黑龙江牡丹江市海林市王淑坤被毒打胁迫致死](https://github.com/Hongyu91/cecjy/issues/724#issue-653075820)
+
 [“庚子之灾”迭加“日食带周期”带来的警示 ](https://github.com/Hongyu91/cecjy/issues/719#issue-652313090)
 
 [赵乐际把中纪委打造成了政法委 ](https://github.com/Hongyu91/cecjy/issues/720#issue-652314798)
@@ -39,12 +45,6 @@
 [妻子被强制失踪十多年　徐启田一家天南海北遭迫害 ](https://github.com/Hongyu91/cecjy/issues/717#issue-651314633)
 
 [大法救了我先生](https://github.com/Hongyu91/cecjy/issues/718#issue-651316113)
-
-[三峡工程的出笼与中共的祸国](https://github.com/Hongyu91/cecjy/issues/713#issue-651018395) 
-
-[广东汕头市法轮功学员李荣丰被迫害离世](https://github.com/Hongyu91/cecjy/issues/714#issue-651018940)
-
-[甘肃省庆阳市宁县公安局三恶警察遭到恶报](https://github.com/Hongyu91/cecjy/issues/715#issue-651019329)
 
 ### 主页选文（点文字阅读）
 
