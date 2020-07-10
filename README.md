@@ -80,10 +80,10 @@
 
 # 明慧周报：中国版（第八零四期）
 
-![image](https://user-images.githubusercontent.com/61768866/86443164-74e65f00-bd41-11ea-813f-986f825d4f8a.png)
-![image](https://user-images.githubusercontent.com/61768866/86443218-8def1000-bd41-11ea-8f02-b98122f1115f.png)
-![image](https://user-images.githubusercontent.com/61768866/86443279-a101e000-bd41-11ea-8557-52e00af21549.png)
-![image](https://user-images.githubusercontent.com/61768866/86443329-b37c1980-bd41-11ea-9046-8a67726696ab.png)
+![image](https://user-images.githubusercontent.com/61768866/87128997-33b2f980-c2c3-11ea-9cdc-f44818553ff9.png)
+![image](https://user-images.githubusercontent.com/61768866/87129062-5218f500-c2c3-11ea-8cda-7d41caebed54.png)
+![image](https://user-images.githubusercontent.com/61768866/87129126-6ceb6980-c2c3-11ea-81a2-c733b293cfed.png)
+![image](https://user-images.githubusercontent.com/61768866/87129200-87254780-c2c3-11ea-91b2-84eb580afe15.png)
 
 #### 法轮功基本真相贴图
  
