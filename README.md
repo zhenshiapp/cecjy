@@ -10,7 +10,7 @@
 
 点文字阅读: [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
-点文字阅读: [中共给武汉制造的伤亡今昔](https://github.com/Hongyu91/cecjy/issues/671#issue-643591291)
+点文字阅读: [吉林两个孩子的母亲被上级“研究”决定灭口](https://github.com/Hongyu91/cecjy/issues/730#issue-654572922)
 
 点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
 
@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[六月飞雪的奇冤](https://github.com/Hongyu91/cecjy/issues/728#issue-654566165)
+
+[剥夺养老金违法面面观及应对策略](https://github.com/Hongyu91/cecjy/issues/729#issue-654569424)
+
+[念九字真言　肺癌晚期的婆婆精神焕发](https://github.com/Hongyu91/cecjy/issues/731#issue-654575295)
+
 [明真相　北京某刑侦处长带领五人三退](https://github.com/Hongyu91/cecjy/issues/725#issue-653819086)
 
 [别被中共给坑了](https://github.com/Hongyu91/cecjy/issues/726#issue-653820455)
@@ -39,12 +45,6 @@
 [加国前司法部长：孙茜被重判是中共将无辜定有罪](https://github.com/Hongyu91/cecjy/issues/723#issue-653070068)
 
 [黑龙江牡丹江市海林市王淑坤被毒打胁迫致死](https://github.com/Hongyu91/cecjy/issues/724#issue-653075820)
-
-[“庚子之灾”迭加“日食带周期”带来的警示 ](https://github.com/Hongyu91/cecjy/issues/719#issue-652313090)
-
-[赵乐际把中纪委打造成了政法委 ](https://github.com/Hongyu91/cecjy/issues/720#issue-652314798)
-
-[中共基层人员执行迫害政策在各省市搅扰民众](https://github.com/Hongyu91/cecjy/issues/721#issue-652316805)
 
 ### 主页选文（点文字阅读）
 
