@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[如此巧合！这些骇人的天灾都是对中共的警示和惩罚吗？](https://github.com/Hongyu91/cecjy/issues/733#issue-655150852) 
+
+[大连任海飞被绑架　心肾衰竭在抢救中 ](https://github.com/Hongyu91/cecjy/issues/734#issue-655151816)
+
+[香港女科学家逃往美国　曝中共早知病毒人传人](https://github.com/Hongyu91/cecjy/issues/735#issue-655152124)
+
 [六月飞雪的奇冤](https://github.com/Hongyu91/cecjy/issues/728#issue-654566165)
 
 [剥夺养老金违法面面观及应对策略](https://github.com/Hongyu91/cecjy/issues/729#issue-654569424)
@@ -39,12 +45,6 @@
 [别被中共给坑了](https://github.com/Hongyu91/cecjy/issues/726#issue-653820455)
 
 [遭诬判11年　辽宁李国俊女士被迫害离世](https://github.com/Hongyu91/cecjy/issues/727#issue-653823626)
-
-[感染中共病毒　诚念九字真言获救](https://github.com/Hongyu91/cecjy/issues/722#issue-653067840) 
-
-[加国前司法部长：孙茜被重判是中共将无辜定有罪](https://github.com/Hongyu91/cecjy/issues/723#issue-653070068)
-
-[黑龙江牡丹江市海林市王淑坤被毒打胁迫致死](https://github.com/Hongyu91/cecjy/issues/724#issue-653075820)
 
 ### 主页选文（点文字阅读）
 
