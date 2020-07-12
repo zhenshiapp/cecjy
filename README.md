@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[辽宁义县阚志晰家四人被中共害死](https://github.com/Hongyu91/cecjy/issues/736#issue-655348291)
+
+[武汉病毒已出现明显变异　英免疫学家称“非常非常可怕”](https://github.com/Hongyu91/cecjy/issues/737#issue-655348740)
+
+[母亲的脑梗塞就这样彻底好了](https://github.com/Hongyu91/cecjy/issues/738#issue-655349274)
+
 [如此巧合！这些骇人的天灾都是对中共的警示和惩罚吗？](https://github.com/Hongyu91/cecjy/issues/733#issue-655150852) 
 
 [大连任海飞被绑架　心肾衰竭在抢救中 ](https://github.com/Hongyu91/cecjy/issues/734#issue-655151816)
@@ -39,12 +45,6 @@
 [剥夺养老金违法面面观及应对策略](https://github.com/Hongyu91/cecjy/issues/729#issue-654569424)
 
 [念九字真言　肺癌晚期的婆婆精神焕发](https://github.com/Hongyu91/cecjy/issues/731#issue-654575295)
-
-[明真相　北京某刑侦处长带领五人三退](https://github.com/Hongyu91/cecjy/issues/725#issue-653819086)
-
-[别被中共给坑了](https://github.com/Hongyu91/cecjy/issues/726#issue-653820455)
-
-[遭诬判11年　辽宁李国俊女士被迫害离世](https://github.com/Hongyu91/cecjy/issues/727#issue-653823626)
 
 ### 主页选文（点文字阅读）
 
