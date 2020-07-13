@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[高考：中共套在国人脖子上的精神绞架 ](https://github.com/Hongyu91/cecjy/issues/739#issue-655654685)
+
+[美国种族冲突背后的共产主义因素 ](https://github.com/Hongyu91/cecjy/issues/740#issue-655656505)
+
+[广西桂林市妇女王湘林被六一零绑架　下落不明](https://github.com/Hongyu91/cecjy/issues/741#issue-655658470)
+
 [辽宁义县阚志晰家四人被中共害死](https://github.com/Hongyu91/cecjy/issues/736#issue-655348291)
 
 [武汉病毒已出现明显变异　英免疫学家称“非常非常可怕”](https://github.com/Hongyu91/cecjy/issues/737#issue-655348740)
@@ -39,12 +45,6 @@
 [大连任海飞被绑架　心肾衰竭在抢救中 ](https://github.com/Hongyu91/cecjy/issues/734#issue-655151816)
 
 [香港女科学家逃往美国　曝中共早知病毒人传人](https://github.com/Hongyu91/cecjy/issues/735#issue-655152124)
-
-[六月飞雪的奇冤](https://github.com/Hongyu91/cecjy/issues/728#issue-654566165)
-
-[剥夺养老金违法面面观及应对策略](https://github.com/Hongyu91/cecjy/issues/729#issue-654569424)
-
-[念九字真言　肺癌晚期的婆婆精神焕发](https://github.com/Hongyu91/cecjy/issues/731#issue-654575295)
 
 ### 主页选文（点文字阅读）
 
