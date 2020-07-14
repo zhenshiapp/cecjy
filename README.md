@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[选择充当“替罪羊”的下场](https://github.com/Hongyu91/cecjy/issues/742#issue-656369461) 
+
+[迫害法轮功的新疆中共书记陈全国被美国制裁](https://github.com/Hongyu91/cecjy/issues/743#issue-656373536)
+
+[反迫害21周年　温哥华法轮功学员集会](https://github.com/Hongyu91/cecjy/issues/744#issue-656376762)
+
 [高考：中共套在国人脖子上的精神绞架 ](https://github.com/Hongyu91/cecjy/issues/739#issue-655654685)
 
 [美国种族冲突背后的共产主义因素 ](https://github.com/Hongyu91/cecjy/issues/740#issue-655656505)
@@ -39,12 +45,6 @@
 [武汉病毒已出现明显变异　英免疫学家称“非常非常可怕”](https://github.com/Hongyu91/cecjy/issues/737#issue-655348740)
 
 [母亲的脑梗塞就这样彻底好了](https://github.com/Hongyu91/cecjy/issues/738#issue-655349274)
-
-[如此巧合！这些骇人的天灾都是对中共的警示和惩罚吗？](https://github.com/Hongyu91/cecjy/issues/733#issue-655150852) 
-
-[大连任海飞被绑架　心肾衰竭在抢救中 ](https://github.com/Hongyu91/cecjy/issues/734#issue-655151816)
-
-[香港女科学家逃往美国　曝中共早知病毒人传人](https://github.com/Hongyu91/cecjy/issues/735#issue-655152124)
 
 ### 主页选文（点文字阅读）
 
