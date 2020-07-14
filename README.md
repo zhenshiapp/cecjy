@@ -72,7 +72,7 @@
 [大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
-[[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417) |
+[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417) |
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
 
