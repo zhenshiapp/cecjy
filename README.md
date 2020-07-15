@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“七二零”前中共制造的悲剧](https://github.com/Hongyu91/cecjy/issues/745#issue-657115831)
+
+[中共不预警才是常态](https://github.com/Hongyu91/cecjy/issues/746#issue-657118099)
+
+[修炼大法的好处说不完 ](https://github.com/Hongyu91/cecjy/issues/747#issue-657119349)
+
 [选择充当“替罪羊”的下场](https://github.com/Hongyu91/cecjy/issues/742#issue-656369461) 
 
 [迫害法轮功的新疆中共书记陈全国被美国制裁](https://github.com/Hongyu91/cecjy/issues/743#issue-656373536)
@@ -39,12 +45,6 @@
 [美国种族冲突背后的共产主义因素 ](https://github.com/Hongyu91/cecjy/issues/740#issue-655656505)
 
 [广西桂林市妇女王湘林被六一零绑架　下落不明](https://github.com/Hongyu91/cecjy/issues/741#issue-655658470)
-
-[辽宁义县阚志晰家四人被中共害死](https://github.com/Hongyu91/cecjy/issues/736#issue-655348291)
-
-[武汉病毒已出现明显变异　英免疫学家称“非常非常可怕”](https://github.com/Hongyu91/cecjy/issues/737#issue-655348740)
-
-[母亲的脑梗塞就这样彻底好了](https://github.com/Hongyu91/cecjy/issues/738#issue-655349274)
 
 ### 主页选文（点文字阅读）
 
