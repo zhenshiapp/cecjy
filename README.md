@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共恶人名单提交给加国外长　多议员吁惩治](https://github.com/Hongyu91/cecjy/issues/748#issue-657954064)
+
+[结束迫害　恢复人类应有的尊严 ](https://github.com/Hongyu91/cecjy/issues/749#issue-657955907)
+
+[声援法轮功　二百政要签署反迫害](https://github.com/Hongyu91/cecjy/issues/750#issue-657957267)
+
 [“七二零”前中共制造的悲剧](https://github.com/Hongyu91/cecjy/issues/745#issue-657115831)
 
 [中共不预警才是常态](https://github.com/Hongyu91/cecjy/issues/746#issue-657118099)
@@ -39,12 +45,6 @@
 [迫害法轮功的新疆中共书记陈全国被美国制裁](https://github.com/Hongyu91/cecjy/issues/743#issue-656373536)
 
 [反迫害21周年　温哥华法轮功学员集会](https://github.com/Hongyu91/cecjy/issues/744#issue-656376762)
-
-[高考：中共套在国人脖子上的精神绞架 ](https://github.com/Hongyu91/cecjy/issues/739#issue-655654685)
-
-[美国种族冲突背后的共产主义因素 ](https://github.com/Hongyu91/cecjy/issues/740#issue-655656505)
-
-[广西桂林市妇女王湘林被六一零绑架　下落不明](https://github.com/Hongyu91/cecjy/issues/741#issue-655658470)
 
 ### 主页选文（点文字阅读）
 
