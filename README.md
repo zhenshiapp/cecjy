@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[法律硕士：在大法中找到心灵的依靠 ](https://github.com/Hongyu91/cecjy/issues/751#issue-659056257) 
+
+[从三峡大坝会不会溃坝看政府的可信度](https://github.com/Hongyu91/cecjy/issues/752#issue-659059456)
+
+[姑妈、亲家被迫害致死　四川何正琼被迫害精神失常](https://github.com/Hongyu91/cecjy/issues/753#issue-659063895)
+
 [中共恶人名单提交给加国外长　多议员吁惩治](https://github.com/Hongyu91/cecjy/issues/748#issue-657954064)
 
 [结束迫害　恢复人类应有的尊严 ](https://github.com/Hongyu91/cecjy/issues/749#issue-657955907)
@@ -39,12 +45,6 @@
 [中共不预警才是常态](https://github.com/Hongyu91/cecjy/issues/746#issue-657118099)
 
 [修炼大法的好处说不完 ](https://github.com/Hongyu91/cecjy/issues/747#issue-657119349)
-
-[选择充当“替罪羊”的下场](https://github.com/Hongyu91/cecjy/issues/742#issue-656369461) 
-
-[迫害法轮功的新疆中共书记陈全国被美国制裁](https://github.com/Hongyu91/cecjy/issues/743#issue-656373536)
-
-[反迫害21周年　温哥华法轮功学员集会](https://github.com/Hongyu91/cecjy/issues/744#issue-656376762)
 
 ### 主页选文（点文字阅读）
 
