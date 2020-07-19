@@ -6,22 +6,6 @@
 
 ![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
 
-### 了解真相
-
-点文字阅读: [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
-
-点文字阅读: [无惧国安法　议员赞佩香港学员坚持讲真相 ](https://github.com/Hongyu91/cecjy/issues/756#issue-659980458)
-
-点文字阅读: [吉林两个孩子的母亲被上级“研究”决定灭口](https://github.com/Hongyu91/cecjy/issues/730#issue-654572922)
-
-点文字阅读: [此时不退党 更待何时](https://github.com/Hongyu91/cecjy/issues/755#issue-659975391)
-
-点文字阅读: [镇政法书记组团参观“藏字石”　声明退党](https://github.com/Hongyu91/cecjy/issues/651#issue-639502994)
-
-点文字阅读: [苏共与中共：相似的谎言](https://github.com/Hongyu91/cecjy/issues/664#issue-642325532)
-
-点文字阅读: [三峡工程的出笼与中共的祸国](https://github.com/Hongyu91/cecjy/issues/713#issue-651018395) 
-
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### 推荐使用ie，火狐，chrome等非国产浏览器访问本站可避免国内屏蔽。
@@ -29,6 +13,12 @@
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
 ### 动态真相文章（点文字阅读）
+
+[台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) 
+
+[反迫害21年　华府学员中使馆前烛光守夜](https://github.com/Hongyu91/cecjy/issues/759#issue-660672265)
+
+[“中共罪恶　必被追究”](https://github.com/Hongyu91/cecjy/issues/760#issue-660674765)
 
 [此时不退党 更待何时](https://github.com/Hongyu91/cecjy/issues/755#issue-659975391)
 
@@ -42,13 +32,11 @@
 
 [姑妈、亲家被迫害致死　四川何正琼被迫害精神失常](https://github.com/Hongyu91/cecjy/issues/753#issue-659063895)
 
-[中共恶人名单提交给加国外长　多议员吁惩治](https://github.com/Hongyu91/cecjy/issues/748#issue-657954064)
-
-[结束迫害　恢复人类应有的尊严 ](https://github.com/Hongyu91/cecjy/issues/749#issue-657955907)
-
-[声援法轮功　二百政要签署反迫害](https://github.com/Hongyu91/cecjy/issues/750#issue-657957267)
-
 ### 主页选文（点文字阅读）
+
+[台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
+[无惧国安法　议员赞佩香港学员坚持讲真相 ](https://github.com/Hongyu91/cecjy/issues/756#issue-659980458) |
+[德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
