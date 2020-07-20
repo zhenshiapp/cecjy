@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美加英澳新五国学员要求政府制裁 迫害法轮功的责任人](https://github.com/Hongyu91/cecjy/issues/761#issue-661468408) 
+
+[迫害法轮功持续21年　天灭中共全面展开 ](https://github.com/Hongyu91/cecjy/issues/762#issue-661472923)
+
+[“法不责众” 这一次没可能](https://github.com/Hongyu91/cecjy/issues/763#issue-661475407)
+
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) 
 
 [反迫害21年　华府学员中使馆前烛光守夜](https://github.com/Hongyu91/cecjy/issues/759#issue-660672265)
@@ -25,12 +31,6 @@
 [无惧国安法　议员赞佩香港学员坚持讲真相 ](https://github.com/Hongyu91/cecjy/issues/756#issue-659980458)
 
 [旧金山学员反迫害廿一周年　唤醒世人本性一面](https://github.com/Hongyu91/cecjy/issues/757#issue-659985024)
-
-[法律硕士：在大法中找到心灵的依靠 ](https://github.com/Hongyu91/cecjy/issues/751#issue-659056257) 
-
-[从三峡大坝会不会溃坝看政府的可信度](https://github.com/Hongyu91/cecjy/issues/752#issue-659059456)
-
-[姑妈、亲家被迫害致死　四川何正琼被迫害精神失常](https://github.com/Hongyu91/cecjy/issues/753#issue-659063895)
 
 ### 主页选文（点文字阅读）
 
