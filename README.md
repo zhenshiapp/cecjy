@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国国务院：中共必须停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/764#issue-662689673)
+
+[30国逾600议员联署　支持法轮功反迫害](https://github.com/Hongyu91/cecjy/issues/765#issue-662696810)
+
+[司法女警察崔会芳被迫害的经历](https://github.com/Hongyu91/cecjy/issues/766#issue-662699371)
+
 [美加英澳新五国学员要求政府制裁 迫害法轮功的责任人](https://github.com/Hongyu91/cecjy/issues/761#issue-661468408) 
 
 [迫害法轮功持续21年　天灭中共全面展开 ](https://github.com/Hongyu91/cecjy/issues/762#issue-661472923)
@@ -25,12 +31,6 @@
 [反迫害21年　华府学员中使馆前烛光守夜](https://github.com/Hongyu91/cecjy/issues/759#issue-660672265)
 
 [“中共罪恶　必被追究”](https://github.com/Hongyu91/cecjy/issues/760#issue-660674765)
-
-[此时不退党 更待何时](https://github.com/Hongyu91/cecjy/issues/755#issue-659975391)
-
-[无惧国安法　议员赞佩香港学员坚持讲真相 ](https://github.com/Hongyu91/cecjy/issues/756#issue-659980458)
-
-[旧金山学员反迫害廿一周年　唤醒世人本性一面](https://github.com/Hongyu91/cecjy/issues/757#issue-659985024)
 
 ### 主页选文（点文字阅读）
 
