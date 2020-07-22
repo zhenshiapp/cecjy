@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“世界需要法轮功”](https://github.com/Hongyu91/cecjy/issues/767#issue-663543335) 
+
+[中国贫富差距真的比美国低吗？](https://github.com/Hongyu91/cecjy/issues/768#issue-663545866)
+
+[中共对法轮功的迫害给千千万万个家庭带来无尽痛苦](https://github.com/Hongyu91/cecjy/issues/769#issue-663547162)
+
 [美国国务院：中共必须停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/764#issue-662689673)
 
 [30国逾600议员联署　支持法轮功反迫害](https://github.com/Hongyu91/cecjy/issues/765#issue-662696810)
@@ -25,12 +31,6 @@
 [迫害法轮功持续21年　天灭中共全面展开 ](https://github.com/Hongyu91/cecjy/issues/762#issue-661472923)
 
 [“法不责众” 这一次没可能](https://github.com/Hongyu91/cecjy/issues/763#issue-661475407)
-
-[台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) 
-
-[反迫害21年　华府学员中使馆前烛光守夜](https://github.com/Hongyu91/cecjy/issues/759#issue-660672265)
-
-[“中共罪恶　必被追究”](https://github.com/Hongyu91/cecjy/issues/760#issue-660674765)
 
 ### 主页选文（点文字阅读）
 
