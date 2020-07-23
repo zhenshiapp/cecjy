@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[加拿大律师：制裁14名参与迫害的中共官员](https://github.com/Hongyu91/cecjy/issues/770#issue-664248336) 
+
+[恶人列榜　难逃追诉 ](https://github.com/Hongyu91/cecjy/issues/771#issue-664249259)
+
+[善待法轮功学员　村官得福报 ](https://github.com/Hongyu91/cecjy/issues/772#issue-664251061)
+
 [“世界需要法轮功”](https://github.com/Hongyu91/cecjy/issues/767#issue-663543335) 
 
 [中国贫富差距真的比美国低吗？](https://github.com/Hongyu91/cecjy/issues/768#issue-663545866)
@@ -25,12 +31,6 @@
 [30国逾600议员联署　支持法轮功反迫害](https://github.com/Hongyu91/cecjy/issues/765#issue-662696810)
 
 [司法女警察崔会芳被迫害的经历](https://github.com/Hongyu91/cecjy/issues/766#issue-662699371)
-
-[美加英澳新五国学员要求政府制裁 迫害法轮功的责任人](https://github.com/Hongyu91/cecjy/issues/761#issue-661468408) 
-
-[迫害法轮功持续21年　天灭中共全面展开 ](https://github.com/Hongyu91/cecjy/issues/762#issue-661472923)
-
-[“法不责众” 这一次没可能](https://github.com/Hongyu91/cecjy/issues/763#issue-661475407)
 
 ### 主页选文（点文字阅读）
 
