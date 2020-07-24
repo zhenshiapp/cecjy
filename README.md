@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[对美国“禁共令”和退党活动的三点思考](https://github.com/Hongyu91/cecjy/issues/773#issue-664957297)
+
+[好人为什么也一定要退党？](https://github.com/Hongyu91/cecjy/issues/774#issue-664958431)
+
+[“九字真言”救活了我弟弟](https://github.com/Hongyu91/cecjy/issues/775#issue-664960639)
+
 [加拿大律师：制裁14名参与迫害的中共官员](https://github.com/Hongyu91/cecjy/issues/770#issue-664248336) 
 
 [恶人列榜　难逃追诉 ](https://github.com/Hongyu91/cecjy/issues/771#issue-664249259)
@@ -25,12 +31,6 @@
 [中国贫富差距真的比美国低吗？](https://github.com/Hongyu91/cecjy/issues/768#issue-663545866)
 
 [中共对法轮功的迫害给千千万万个家庭带来无尽痛苦](https://github.com/Hongyu91/cecjy/issues/769#issue-663547162)
-
-[美国国务院：中共必须停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/764#issue-662689673)
-
-[30国逾600议员联署　支持法轮功反迫害](https://github.com/Hongyu91/cecjy/issues/765#issue-662696810)
-
-[司法女警察崔会芳被迫害的经历](https://github.com/Hongyu91/cecjy/issues/766#issue-662699371)
 
 ### 主页选文（点文字阅读）
 
