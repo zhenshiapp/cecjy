@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“共产党领袖”们为什么抛弃了共产党？](https://github.com/Hongyu91/cecjy/issues/777#issue-665539581) 
+
+[政法委操纵迫害　78岁工程师被非法关押逾一年 ](https://github.com/Hongyu91/cecjy/issues/778#issue-665540042)
+
+[老板高喊“打倒共产党”](https://github.com/Hongyu91/cecjy/issues/779#issue-665540399)
+
 [对美国“禁共令”和退党活动的三点思考](https://github.com/Hongyu91/cecjy/issues/773#issue-664957297)
 
 [好人为什么也一定要退党？](https://github.com/Hongyu91/cecjy/issues/774#issue-664958431)
@@ -25,12 +31,6 @@
 [恶人列榜　难逃追诉 ](https://github.com/Hongyu91/cecjy/issues/771#issue-664249259)
 
 [善待法轮功学员　村官得福报 ](https://github.com/Hongyu91/cecjy/issues/772#issue-664251061)
-
-[“世界需要法轮功”](https://github.com/Hongyu91/cecjy/issues/767#issue-663543335) 
-
-[中国贫富差距真的比美国低吗？](https://github.com/Hongyu91/cecjy/issues/768#issue-663545866)
-
-[中共对法轮功的迫害给千千万万个家庭带来无尽痛苦](https://github.com/Hongyu91/cecjy/issues/769#issue-663547162)
 
 ### 主页选文（点文字阅读）
 
