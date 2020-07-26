@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[希特勒好不好](https://github.com/Hongyu91/cecjy/issues/780#issue-665723333) 
+
+[大连公安警察作恶殃及市民](https://github.com/Hongyu91/cecjy/issues/781#issue-665723673)
+
+[在微信群发九字真言　翟子慧在北京被绑架、构陷](https://github.com/Hongyu91/cecjy/issues/782#issue-665723998)
+
 [“共产党领袖”们为什么抛弃了共产党？](https://github.com/Hongyu91/cecjy/issues/777#issue-665539581) 
 
 [政法委操纵迫害　78岁工程师被非法关押逾一年 ](https://github.com/Hongyu91/cecjy/issues/778#issue-665540042)
@@ -25,12 +31,6 @@
 [好人为什么也一定要退党？](https://github.com/Hongyu91/cecjy/issues/774#issue-664958431)
 
 [“九字真言”救活了我弟弟](https://github.com/Hongyu91/cecjy/issues/775#issue-664960639)
-
-[加拿大律师：制裁14名参与迫害的中共官员](https://github.com/Hongyu91/cecjy/issues/770#issue-664248336) 
-
-[恶人列榜　难逃追诉 ](https://github.com/Hongyu91/cecjy/issues/771#issue-664249259)
-
-[善待法轮功学员　村官得福报 ](https://github.com/Hongyu91/cecjy/issues/772#issue-664251061)
 
 ### 主页选文（点文字阅读）
 
