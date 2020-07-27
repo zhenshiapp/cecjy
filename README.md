@@ -47,7 +47,7 @@
 [长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
 [河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392) |
-[海南孤儿寡母的悲惨遭遇 ](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489) |
+[海南孤儿寡母的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489) |
 [慕尼黑法轮功学员揭露中共迫害](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
 
 [广西电脑教师被害死 家人伸冤遭死亡威胁](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
