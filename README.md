@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[同胞快醒醒！中共所做的一切都是在毁灭人](https://github.com/Hongyu91/cecjy/issues/783#issue-666044601)
+
+[退出邪党组织　商户店里开圣花](https://github.com/Hongyu91/cecjy/issues/784#issue-666050851)
+
+[秦皇岛大学退休实验教师十次被迫害经历](https://github.com/Hongyu91/cecjy/issues/785#issue-666059171)
+
 [希特勒好不好](https://github.com/Hongyu91/cecjy/issues/780#issue-665723333) 
 
 [大连公安警察作恶殃及市民](https://github.com/Hongyu91/cecjy/issues/781#issue-665723673)
@@ -25,12 +31,6 @@
 [政法委操纵迫害　78岁工程师被非法关押逾一年 ](https://github.com/Hongyu91/cecjy/issues/778#issue-665540042)
 
 [老板高喊“打倒共产党”](https://github.com/Hongyu91/cecjy/issues/779#issue-665540399)
-
-[对美国“禁共令”和退党活动的三点思考](https://github.com/Hongyu91/cecjy/issues/773#issue-664957297)
-
-[好人为什么也一定要退党？](https://github.com/Hongyu91/cecjy/issues/774#issue-664958431)
-
-[“九字真言”救活了我弟弟](https://github.com/Hongyu91/cecjy/issues/775#issue-664960639)
 
 ### 主页选文（点文字阅读）
 
