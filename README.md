@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[加国政要：为法轮功争取自由炼功权利](https://github.com/Hongyu91/cecjy/issues/786#issue-666816534) 
+
+[张家口市公安警察马占富遭恶报丧命](https://github.com/Hongyu91/cecjy/issues/787#issue-666817863)
+
+[高考前家长向我要护身符](https://github.com/Hongyu91/cecjy/issues/788#issue-666818610)
+
 [同胞快醒醒！中共所做的一切都是在毁灭人](https://github.com/Hongyu91/cecjy/issues/783#issue-666044601)
 
 [退出邪党组织　商户店里开圣花](https://github.com/Hongyu91/cecjy/issues/784#issue-666050851)
@@ -25,12 +31,6 @@
 [大连公安警察作恶殃及市民](https://github.com/Hongyu91/cecjy/issues/781#issue-665723673)
 
 [在微信群发九字真言　翟子慧在北京被绑架、构陷](https://github.com/Hongyu91/cecjy/issues/782#issue-665723998)
-
-[“共产党领袖”们为什么抛弃了共产党？](https://github.com/Hongyu91/cecjy/issues/777#issue-665539581) 
-
-[政法委操纵迫害　78岁工程师被非法关押逾一年 ](https://github.com/Hongyu91/cecjy/issues/778#issue-665540042)
-
-[老板高喊“打倒共产党”](https://github.com/Hongyu91/cecjy/issues/779#issue-665540399)
 
 ### 主页选文（点文字阅读）
 
