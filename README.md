@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[洪涝丰收与中共造假](https://github.com/Hongyu91/cecjy/issues/789#issue-667602989) 
+
+[中共政权为什么要面临全面解体](https://github.com/Hongyu91/cecjy/issues/790#issue-667604101)
+
+[李慧文被太原新店劳教所迫害致死的更多详情](https://github.com/Hongyu91/cecjy/issues/791#issue-667606288)
+
 [加国政要：为法轮功争取自由炼功权利](https://github.com/Hongyu91/cecjy/issues/786#issue-666816534) 
 
 [张家口市公安警察马占富遭恶报丧命](https://github.com/Hongyu91/cecjy/issues/787#issue-666817863)
@@ -25,12 +31,6 @@
 [退出邪党组织　商户店里开圣花](https://github.com/Hongyu91/cecjy/issues/784#issue-666050851)
 
 [秦皇岛大学退休实验教师十次被迫害经历](https://github.com/Hongyu91/cecjy/issues/785#issue-666059171)
-
-[希特勒好不好](https://github.com/Hongyu91/cecjy/issues/780#issue-665723333) 
-
-[大连公安警察作恶殃及市民](https://github.com/Hongyu91/cecjy/issues/781#issue-665723673)
-
-[在微信群发九字真言　翟子慧在北京被绑架、构陷](https://github.com/Hongyu91/cecjy/issues/782#issue-665723998)
 
 ### 主页选文（点文字阅读）
 
