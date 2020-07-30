@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[请不要在无知中成为被告，从法律层面略谈退党的必要性](https://github.com/Hongyu91/cecjy/issues/792#issue-668440290)
+
+[加拿大议员致信外长　促惩治迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/793#issue-668442548)
+
+[揭阳市医生遭诬判　在广东女监重病一度昏迷](https://github.com/Hongyu91/cecjy/issues/794#issue-668443580)
+
 [洪涝丰收与中共造假](https://github.com/Hongyu91/cecjy/issues/789#issue-667602989) 
 
 [中共政权为什么要面临全面解体](https://github.com/Hongyu91/cecjy/issues/790#issue-667604101)
@@ -25,12 +31,6 @@
 [张家口市公安警察马占富遭恶报丧命](https://github.com/Hongyu91/cecjy/issues/787#issue-666817863)
 
 [高考前家长向我要护身符](https://github.com/Hongyu91/cecjy/issues/788#issue-666818610)
-
-[同胞快醒醒！中共所做的一切都是在毁灭人](https://github.com/Hongyu91/cecjy/issues/783#issue-666044601)
-
-[退出邪党组织　商户店里开圣花](https://github.com/Hongyu91/cecjy/issues/784#issue-666050851)
-
-[秦皇岛大学退休实验教师十次被迫害经历](https://github.com/Hongyu91/cecjy/issues/785#issue-666059171)
 
 ### 主页选文（点文字阅读）
 
