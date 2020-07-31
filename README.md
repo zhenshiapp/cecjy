@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[医生说最多活两三个月　师父给我第二次生命](https://github.com/Hongyu91/cecjy/issues/795#issue-669511563) 
+
+[智者审时度势　愚人颟顸不灵](https://github.com/Hongyu91/cecjy/issues/796#issue-669513418)
+
+[广东茂名28岁吴朝棋被秘密劫入监狱迫害](https://github.com/Hongyu91/cecjy/issues/797#issue-669515785)
+
 [请不要在无知中成为被告，从法律层面略谈退党的必要性](https://github.com/Hongyu91/cecjy/issues/792#issue-668440290)
 
 [加拿大议员致信外长　促惩治迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/793#issue-668442548)
@@ -25,12 +31,6 @@
 [中共政权为什么要面临全面解体](https://github.com/Hongyu91/cecjy/issues/790#issue-667604101)
 
 [李慧文被太原新店劳教所迫害致死的更多详情](https://github.com/Hongyu91/cecjy/issues/791#issue-667606288)
-
-[加国政要：为法轮功争取自由炼功权利](https://github.com/Hongyu91/cecjy/issues/786#issue-666816534) 
-
-[张家口市公安警察马占富遭恶报丧命](https://github.com/Hongyu91/cecjy/issues/787#issue-666817863)
-
-[高考前家长向我要护身符](https://github.com/Hongyu91/cecjy/issues/788#issue-666818610)
 
 ### 主页选文（点文字阅读）
 
