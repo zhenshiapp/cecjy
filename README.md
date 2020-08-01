@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共党员走向新生的第一步](https://github.com/Hongyu91/cecjy/issues/799#issue-670613462) 
+
+[人在做 神在看](https://github.com/Hongyu91/cecjy/issues/800#issue-670615457)
+
+[年轻人、警察、特务都在看明慧网](https://github.com/Hongyu91/cecjy/issues/801#issue-670617876)
+
 [医生说最多活两三个月　师父给我第二次生命](https://github.com/Hongyu91/cecjy/issues/795#issue-669511563) 
 
 [智者审时度势　愚人颟顸不灵](https://github.com/Hongyu91/cecjy/issues/796#issue-669513418)
@@ -25,12 +31,6 @@
 [加拿大议员致信外长　促惩治迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/793#issue-668442548)
 
 [揭阳市医生遭诬判　在广东女监重病一度昏迷](https://github.com/Hongyu91/cecjy/issues/794#issue-668443580)
-
-[洪涝丰收与中共造假](https://github.com/Hongyu91/cecjy/issues/789#issue-667602989) 
-
-[中共政权为什么要面临全面解体](https://github.com/Hongyu91/cecjy/issues/790#issue-667604101)
-
-[李慧文被太原新店劳教所迫害致死的更多详情](https://github.com/Hongyu91/cecjy/issues/791#issue-667606288)
 
 ### 主页选文（点文字阅读）
 
