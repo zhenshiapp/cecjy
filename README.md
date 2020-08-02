@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[新西兰前市议员：结束在中国的迫害](https://github.com/Hongyu91/cecjy/issues/802#issue-671569462)
+
+[当轮船真的撞到冰山时 一切就晚了](https://github.com/Hongyu91/cecjy/issues/803#issue-671569975)
+
+[霸州“法官”：不管律师说啥　他说他的　咱办咱的](https://github.com/Hongyu91/cecjy/issues/804#issue-671570510)
+
 [中共党员走向新生的第一步](https://github.com/Hongyu91/cecjy/issues/799#issue-670613462) 
 
 [人在做 神在看](https://github.com/Hongyu91/cecjy/issues/800#issue-670615457)
@@ -25,12 +31,6 @@
 [智者审时度势　愚人颟顸不灵](https://github.com/Hongyu91/cecjy/issues/796#issue-669513418)
 
 [广东茂名28岁吴朝棋被秘密劫入监狱迫害](https://github.com/Hongyu91/cecjy/issues/797#issue-669515785)
-
-[请不要在无知中成为被告，从法律层面略谈退党的必要性](https://github.com/Hongyu91/cecjy/issues/792#issue-668440290)
-
-[加拿大议员致信外长　促惩治迫害法轮功的中共官员](https://github.com/Hongyu91/cecjy/issues/793#issue-668442548)
-
-[揭阳市医生遭诬判　在广东女监重病一度昏迷](https://github.com/Hongyu91/cecjy/issues/794#issue-668443580)
 
 ### 主页选文（点文字阅读）
 
