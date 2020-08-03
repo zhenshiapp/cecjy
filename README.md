@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[迫害大法修炼者　中共基层官员遭恶报](https://github.com/Hongyu91/cecjy/issues/805#issue-671849617) 
+
+[“刷脸”](https://github.com/Hongyu91/cecjy/issues/806#issue-671851522)
+
+[人心渐明　大家都三退](https://github.com/Hongyu91/cecjy/issues/807#issue-671853910)
+
 [新西兰前市议员：结束在中国的迫害](https://github.com/Hongyu91/cecjy/issues/802#issue-671569462)
 
 [当轮船真的撞到冰山时 一切就晚了](https://github.com/Hongyu91/cecjy/issues/803#issue-671569975)
@@ -25,12 +31,6 @@
 [人在做 神在看](https://github.com/Hongyu91/cecjy/issues/800#issue-670615457)
 
 [年轻人、警察、特务都在看明慧网](https://github.com/Hongyu91/cecjy/issues/801#issue-670617876)
-
-[医生说最多活两三个月　师父给我第二次生命](https://github.com/Hongyu91/cecjy/issues/795#issue-669511563) 
-
-[智者审时度势　愚人颟顸不灵](https://github.com/Hongyu91/cecjy/issues/796#issue-669513418)
-
-[广东茂名28岁吴朝棋被秘密劫入监狱迫害](https://github.com/Hongyu91/cecjy/issues/797#issue-669515785)
 
 ### 主页选文（点文字阅读）
 
