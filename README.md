@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[一日的罪恶](https://github.com/Hongyu91/cecjy/issues/808#issue-672556532) 
+
+[一位公安局长的转变](https://github.com/Hongyu91/cecjy/issues/809#issue-672560221)
+
+[昆明邱安在看守所绝食抗议被捆绑死人床多天](https://github.com/Hongyu91/cecjy/issues/811#issue-672564074)
+
 [迫害大法修炼者　中共基层官员遭恶报](https://github.com/Hongyu91/cecjy/issues/805#issue-671849617) 
 
 [“刷脸”](https://github.com/Hongyu91/cecjy/issues/806#issue-671851522)
@@ -25,12 +31,6 @@
 [当轮船真的撞到冰山时 一切就晚了](https://github.com/Hongyu91/cecjy/issues/803#issue-671569975)
 
 [霸州“法官”：不管律师说啥　他说他的　咱办咱的](https://github.com/Hongyu91/cecjy/issues/804#issue-671570510)
-
-[中共党员走向新生的第一步](https://github.com/Hongyu91/cecjy/issues/799#issue-670613462) 
-
-[人在做 神在看](https://github.com/Hongyu91/cecjy/issues/800#issue-670615457)
-
-[年轻人、警察、特务都在看明慧网](https://github.com/Hongyu91/cecjy/issues/801#issue-670617876)
 
 ### 主页选文（点文字阅读）
 
