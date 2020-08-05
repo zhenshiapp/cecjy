@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061)
+
+[疫情期间的一次奇遇](https://github.com/Hongyu91/cecjy/issues/812#issue-673307368)
+
+[两位总统与《九评共产党》](https://github.com/Hongyu91/cecjy/issues/813#issue-673310500)
+
 [一日的罪恶](https://github.com/Hongyu91/cecjy/issues/808#issue-672556532) 
 
 [一位公安局长的转变](https://github.com/Hongyu91/cecjy/issues/809#issue-672560221)
@@ -26,21 +32,16 @@
 
 [人心渐明　大家都三退](https://github.com/Hongyu91/cecjy/issues/807#issue-671853910)
 
-[新西兰前市议员：结束在中国的迫害](https://github.com/Hongyu91/cecjy/issues/802#issue-671569462)
-
-[当轮船真的撞到冰山时 一切就晚了](https://github.com/Hongyu91/cecjy/issues/803#issue-671569975)
-
-[霸州“法官”：不管律师说啥　他说他的　咱办咱的](https://github.com/Hongyu91/cecjy/issues/804#issue-671570510)
-
 ### 主页选文（点文字阅读）
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
 [无惧国安法　议员赞佩香港学员坚持讲真相 ](https://github.com/Hongyu91/cecjy/issues/756#issue-659980458) |
 [德国汉堡民众渴望了解法轮大法](https://github.com/Hongyu91/cecjy/issues/670#issue-642838184)
 
+[给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061) |
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
-[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500) |
-[广州法轮功学员罗织湘生前身后纪实](https://github.com/Hongyu91/cecjy/issues/606#issue-629016178) 
+[中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
+
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
