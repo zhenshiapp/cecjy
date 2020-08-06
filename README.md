@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[法轮大法神奇故事（84）去世父亲托梦：快找救命的宝书](https://github.com/Hongyu91/cecjy/issues/815#issue-674080829) 
+
+[48位美国弗州议员致信国务卿 要求制止中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/816#issue-674084032)
+
+[武肺病毒可感染神经细胞　美专家警告中国疫苗不可靠](https://github.com/Hongyu91/cecjy/issues/817#issue-674087748)
+
 [给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061)
 
 [疫情期间的一次奇遇](https://github.com/Hongyu91/cecjy/issues/812#issue-673307368)
@@ -25,12 +31,6 @@
 [一位公安局长的转变](https://github.com/Hongyu91/cecjy/issues/809#issue-672560221)
 
 [昆明邱安在看守所绝食抗议被捆绑死人床多天](https://github.com/Hongyu91/cecjy/issues/811#issue-672564074)
-
-[迫害大法修炼者　中共基层官员遭恶报](https://github.com/Hongyu91/cecjy/issues/805#issue-671849617) 
-
-[“刷脸”](https://github.com/Hongyu91/cecjy/issues/806#issue-671851522)
-
-[人心渐明　大家都三退](https://github.com/Hongyu91/cecjy/issues/807#issue-671853910)
 
 ### 主页选文（点文字阅读）
 
