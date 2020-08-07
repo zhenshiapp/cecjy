@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[吊挂、灌食　武汉张桂珍被非法关押九月余](https://github.com/Hongyu91/cecjy/issues/818#issue-674818259) 
+
+[古稀老人遭酷刑　凸显中共魔性](https://github.com/Hongyu91/cecjy/issues/819#issue-674819693)
+
+[修大法起死回生　辽宁林江月被绑架构陷](https://github.com/Hongyu91/cecjy/issues/820#issue-674821897)
+
 [法轮大法神奇故事（84）去世父亲托梦：快找救命的宝书](https://github.com/Hongyu91/cecjy/issues/815#issue-674080829) 
 
 [48位美国弗州议员致信国务卿 要求制止中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/816#issue-674084032)
@@ -25,12 +31,6 @@
 [疫情期间的一次奇遇](https://github.com/Hongyu91/cecjy/issues/812#issue-673307368)
 
 [两位总统与《九评共产党》](https://github.com/Hongyu91/cecjy/issues/813#issue-673310500)
-
-[一日的罪恶](https://github.com/Hongyu91/cecjy/issues/808#issue-672556532) 
-
-[一位公安局长的转变](https://github.com/Hongyu91/cecjy/issues/809#issue-672560221)
-
-[昆明邱安在看守所绝食抗议被捆绑死人床多天](https://github.com/Hongyu91/cecjy/issues/811#issue-672564074)
 
 ### 主页选文（点文字阅读）
 
