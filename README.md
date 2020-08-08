@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[法轮功“避疫良方” 惊现中共南方日报](https://github.com/Hongyu91/cecjy/issues/822#issue-675479379)
+
+[曾遭劳教所、洗脑班迫害　吉林范明兰再被诬判七年](https://github.com/Hongyu91/cecjy/issues/823#issue-675480176)
+
+[政法委金钱激励迫害　明真相世人明智选择](https://github.com/Hongyu91/cecjy/issues/824#issue-675480536)
+
 [吊挂、灌食　武汉张桂珍被非法关押九月余](https://github.com/Hongyu91/cecjy/issues/818#issue-674818259) 
 
 [古稀老人遭酷刑　凸显中共魔性](https://github.com/Hongyu91/cecjy/issues/819#issue-674819693)
@@ -25,12 +31,6 @@
 [48位美国弗州议员致信国务卿 要求制止中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/816#issue-674084032)
 
 [武肺病毒可感染神经细胞　美专家警告中国疫苗不可靠](https://github.com/Hongyu91/cecjy/issues/817#issue-674087748)
-
-[给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061)
-
-[疫情期间的一次奇遇](https://github.com/Hongyu91/cecjy/issues/812#issue-673307368)
-
-[两位总统与《九评共产党》](https://github.com/Hongyu91/cecjy/issues/813#issue-673310500)
 
 ### 主页选文（点文字阅读）
 
