@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共利诱民众参与迫害 智者慎辨](https://github.com/Hongyu91/cecjy/issues/825#issue-675651708) 
+
+[为什么全世界都在停用抖音、微信?](https://github.com/Hongyu91/cecjy/issues/826#issue-675652368)
+
+[财富要避险 人生更应该避险](https://github.com/Hongyu91/cecjy/issues/827#issue-675652861)
+
 [法轮功“避疫良方” 惊现中共南方日报](https://github.com/Hongyu91/cecjy/issues/822#issue-675479379)
 
 [曾遭劳教所、洗脑班迫害　吉林范明兰再被诬判七年](https://github.com/Hongyu91/cecjy/issues/823#issue-675480176)
@@ -25,12 +31,6 @@
 [古稀老人遭酷刑　凸显中共魔性](https://github.com/Hongyu91/cecjy/issues/819#issue-674819693)
 
 [修大法起死回生　辽宁林江月被绑架构陷](https://github.com/Hongyu91/cecjy/issues/820#issue-674821897)
-
-[法轮大法神奇故事（84）去世父亲托梦：快找救命的宝书](https://github.com/Hongyu91/cecjy/issues/815#issue-674080829) 
-
-[48位美国弗州议员致信国务卿 要求制止中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/816#issue-674084032)
-
-[武肺病毒可感染神经细胞　美专家警告中国疫苗不可靠](https://github.com/Hongyu91/cecjy/issues/817#issue-674087748)
 
 ### 主页选文（点文字阅读）
 
