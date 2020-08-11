@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[三退可免地狱刑](https://github.com/Hongyu91/cecjy/issues/833#issue-676632840)
+
+[危难时刻的“党”与“民”](https://github.com/Hongyu91/cecjy/issues/834#issue-676634322)
+
+[美国“干净网络行动”斩了谁的长臂？](https://github.com/Hongyu91/cecjy/issues/835#issue-676636815)
+
 [加拿大退党中心集会游行 声援3.6亿人三退](https://github.com/Hongyu91/cecjy/issues/828#issue-675935447) 
 
 [“你们是带着风险在黑夜点灯的人”](https://github.com/Hongyu91/cecjy/issues/831#issue-675945138)
@@ -25,12 +31,6 @@
 [为什么全世界都在停用抖音、微信?](https://github.com/Hongyu91/cecjy/issues/826#issue-675652368)
 
 [财富要避险 人生更应该避险](https://github.com/Hongyu91/cecjy/issues/827#issue-675652861)
-
-[法轮功“避疫良方” 惊现中共南方日报](https://github.com/Hongyu91/cecjy/issues/822#issue-675479379)
-
-[曾遭劳教所、洗脑班迫害　吉林范明兰再被诬判七年](https://github.com/Hongyu91/cecjy/issues/823#issue-675480176)
-
-[政法委金钱激励迫害　明真相世人明智选择](https://github.com/Hongyu91/cecjy/issues/824#issue-675480536)
 
 ### 主页选文（点文字阅读）
 
@@ -66,12 +66,6 @@
 [“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417) |
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
-
-### 新思维（点文字阅读）
-
-[二龙戏珠（一）](https://github.com/Hongyu91/cecjy/issues/829#issue-675938612)
-
-[觉醒（一）：物质的运动 ](https://github.com/Hongyu91/cecjy/issues/830#issue-675939996)
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
