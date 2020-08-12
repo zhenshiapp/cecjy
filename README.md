@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[古武当山下奇闻](https://github.com/Hongyu91/cecjy/issues/836#issue-677456600) 
+
+[打错算盘的是中共](https://github.com/Hongyu91/cecjy/issues/837#issue-677459442)
+
+[1根麻绳26年冤狱](https://github.com/Hongyu91/cecjy/issues/838#issue-677462658)
+
 [三退可免地狱刑](https://github.com/Hongyu91/cecjy/issues/833#issue-676632840)
 
 [危难时刻的“党”与“民”](https://github.com/Hongyu91/cecjy/issues/834#issue-676634322)
@@ -25,12 +31,6 @@
 [“你们是带着风险在黑夜点灯的人”](https://github.com/Hongyu91/cecjy/issues/831#issue-675945138)
 
 [你真与共产党“血肉相连”吗？](https://github.com/Hongyu91/cecjy/issues/832#issue-675947419)
-
-[中共利诱民众参与迫害 智者慎辨](https://github.com/Hongyu91/cecjy/issues/825#issue-675651708) 
-
-[为什么全世界都在停用抖音、微信?](https://github.com/Hongyu91/cecjy/issues/826#issue-675652368)
-
-[财富要避险 人生更应该避险](https://github.com/Hongyu91/cecjy/issues/827#issue-675652861)
 
 ### 主页选文（点文字阅读）
 
