@@ -67,6 +67,12 @@
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [末劫时, 谁来救度, 《五公经》中有预言](https://github.com/Hongyu91/cecjy/issues/524#issue-617204202)
 
+### 我的海外博客（国内访问需翻墙）
+
+推特：[梅花迎春歸](https://twitter.com/wgmeihua) |
+脸书：[Chu Wy](https://www.facebook.com/chueyi.37892167) |
+视频：[梅花迎春](https://www.facebook.com/pg/chuwy51/videos/?ref=page_internal)
+
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
 # 明慧周报：中国版（第八零九期）
