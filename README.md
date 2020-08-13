@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[冤怨相报 “真、善、忍”可解](https://github.com/Hongyu91/cecjy/issues/839#issue-678202184) 
+
+[美司法部副部长：反击中共间谍活动](https://github.com/Hongyu91/cecjy/issues/840#issue-678206526)
+
+[陕西西安市十多名法轮功学员被绑架的情况](https://github.com/Hongyu91/cecjy/issues/841#issue-678208100)
+
 [古武当山下奇闻](https://github.com/Hongyu91/cecjy/issues/836#issue-677456600) 
 
 [打错算盘的是中共](https://github.com/Hongyu91/cecjy/issues/837#issue-677459442)
@@ -25,12 +31,6 @@
 [危难时刻的“党”与“民”](https://github.com/Hongyu91/cecjy/issues/834#issue-676634322)
 
 [美国“干净网络行动”斩了谁的长臂？](https://github.com/Hongyu91/cecjy/issues/835#issue-676636815)
-
-[加拿大退党中心集会游行 声援3.6亿人三退](https://github.com/Hongyu91/cecjy/issues/828#issue-675935447) 
-
-[“你们是带着风险在黑夜点灯的人”](https://github.com/Hongyu91/cecjy/issues/831#issue-675945138)
-
-[你真与共产党“血肉相连”吗？](https://github.com/Hongyu91/cecjy/issues/832#issue-675947419)
 
 ### 主页选文（点文字阅读）
 
