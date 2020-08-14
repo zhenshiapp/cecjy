@@ -85,7 +85,7 @@
 ![image](https://user-images.githubusercontent.com/61768866/75843491-40ec4300-5e0e-11ea-8eb5-54ba558b79a8.png)
 ![image](https://user-images.githubusercontent.com/61768866/75843547-5c574e00-5e0e-11ea-8552-45cee240c791.png)
 
-#### 推荐下载翻墙软件：（点文字下载）
+#### 推荐免翻墙下载翻墙软件：（点文字下载）
 
 [自由门7.87版电脑版](https://github.com/Hongyu91/cecjy/files/4906496/fg787r.zip) |
 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip) | 
@@ -99,7 +99,7 @@
 ![fqcy1](https://user-images.githubusercontent.com/61768866/76378242-f0359680-6387-11ea-9b4b-1523e516dc17.png) 
 ![fqcy12](https://user-images.githubusercontent.com/61768866/76378266-fb88c200-6387-11ea-908a-6a87a1f7d387.png)
 
-#### 推荐优质电子书下载
+#### 推荐免翻墙优质电子书下载
 
 ##### 点文字下载
 
@@ -117,7 +117,7 @@
 
 ##### 手机阅读器要找到下载文件的位置后才能打开它，就是从阅读器那儿操作去打开解压后的电子书文件。
 
-##### 点图片下载
+##### 点图片免翻墙下载
 
 [![tbj1](https://user-images.githubusercontent.com/61768866/76383943-722dbb80-6398-11ea-8a40-50443e8441ae.png)](https://github.com/Hongyu91/cecjy/files/4316018/default.zip)
 [![tbj2](https://user-images.githubusercontent.com/61768866/76384391-a9509c80-6399-11ea-96d4-188ebc58a8df.png)](https://github.com/Hongyu91/cecjy/files/4316120/default.zip)
