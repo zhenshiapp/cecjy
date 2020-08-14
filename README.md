@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[追查国际最新公告：追查中共常委赵乐际](https://github.com/Hongyu91/cecjy/issues/842#issue-678946565)
+
+[山东高密一日绑架46名法轮功学员 ](https://github.com/Hongyu91/cecjy/issues/843#issue-678949530)
+
+[张狂作恶者的下场 ](https://github.com/Hongyu91/cecjy/issues/844#issue-678951562)
+
 [冤怨相报 “真、善、忍”可解](https://github.com/Hongyu91/cecjy/issues/839#issue-678202184) 
 
 [美司法部副部长：反击中共间谍活动](https://github.com/Hongyu91/cecjy/issues/840#issue-678206526)
@@ -25,12 +31,6 @@
 [打错算盘的是中共](https://github.com/Hongyu91/cecjy/issues/837#issue-677459442)
 
 [1根麻绳26年冤狱](https://github.com/Hongyu91/cecjy/issues/838#issue-677462658)
-
-[三退可免地狱刑](https://github.com/Hongyu91/cecjy/issues/833#issue-676632840)
-
-[危难时刻的“党”与“民”](https://github.com/Hongyu91/cecjy/issues/834#issue-676634322)
-
-[美国“干净网络行动”斩了谁的长臂？](https://github.com/Hongyu91/cecjy/issues/835#issue-676636815)
 
 ### 主页选文（点文字阅读）
 
