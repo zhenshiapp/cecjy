@@ -117,7 +117,7 @@
 
 ##### 手机阅读器要找到下载文件的位置后才能打开它，就是从阅读器那儿操作去打开解压后的电子书文件。
 
-##### 点图片免翻墙下载
+##### 点图片下载
 
 [![tbj1](https://user-images.githubusercontent.com/61768866/76383943-722dbb80-6398-11ea-8a40-50443e8441ae.png)](https://github.com/Hongyu91/cecjy/files/4316018/default.zip)
 [![tbj2](https://user-images.githubusercontent.com/61768866/76384391-a9509c80-6399-11ea-96d4-188ebc58a8df.png)](https://github.com/Hongyu91/cecjy/files/4316120/default.zip)
