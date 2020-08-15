@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国务院发言人要求立即停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/848#issue-679519454) 
+
+[上海警察绑架72岁王志亮女士　强制采集个人信息](https://github.com/Hongyu91/cecjy/issues/849#issue-679520141)
+
+[参与迫害的政法系统七类人及其不同的人生结局](https://github.com/Hongyu91/cecjy/issues/850#issue-679520692)
+
 [追查国际最新公告：追查中共常委赵乐际](https://github.com/Hongyu91/cecjy/issues/842#issue-678946565)
 
 [山东高密一日绑架46名法轮功学员 ](https://github.com/Hongyu91/cecjy/issues/843#issue-678949530)
@@ -25,12 +31,6 @@
 [美司法部副部长：反击中共间谍活动](https://github.com/Hongyu91/cecjy/issues/840#issue-678206526)
 
 [陕西西安市十多名法轮功学员被绑架的情况](https://github.com/Hongyu91/cecjy/issues/841#issue-678208100)
-
-[古武当山下奇闻](https://github.com/Hongyu91/cecjy/issues/836#issue-677456600) 
-
-[打错算盘的是中共](https://github.com/Hongyu91/cecjy/issues/837#issue-677459442)
-
-[1根麻绳26年冤狱](https://github.com/Hongyu91/cecjy/issues/838#issue-677462658)
 
 ### 主页选文（点文字阅读）
 
