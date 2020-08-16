@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[天灭中共倒计时 大难自保别迟疑 ](https://github.com/Hongyu91/cecjy/issues/851#issue-679703726) 
+
+[迎来生命的柳暗花明](https://github.com/Hongyu91/cecjy/issues/852#issue-679705016)
+
+[广州法轮功学员叶小冰被构陷到检察院](https://github.com/Hongyu91/cecjy/issues/853#issue-679705545)
+
 [美国务院发言人要求立即停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/848#issue-679519454) 
 
 [上海警察绑架72岁王志亮女士　强制采集个人信息](https://github.com/Hongyu91/cecjy/issues/849#issue-679520141)
@@ -25,12 +31,6 @@
 [山东高密一日绑架46名法轮功学员 ](https://github.com/Hongyu91/cecjy/issues/843#issue-678949530)
 
 [张狂作恶者的下场 ](https://github.com/Hongyu91/cecjy/issues/844#issue-678951562)
-
-[冤怨相报 “真、善、忍”可解](https://github.com/Hongyu91/cecjy/issues/839#issue-678202184) 
-
-[美司法部副部长：反击中共间谍活动](https://github.com/Hongyu91/cecjy/issues/840#issue-678206526)
-
-[陕西西安市十多名法轮功学员被绑架的情况](https://github.com/Hongyu91/cecjy/issues/841#issue-678208100)
 
 ### 主页选文（点文字阅读）
 
