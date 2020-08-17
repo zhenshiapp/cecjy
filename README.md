@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[吉林市85岁法轮功学员郭余年被冤判六年入狱](https://github.com/Hongyu91/cecjy/issues/854#issue-679997987)
+
+[被枉判八年　褚贵岩遭吉林公主岭监狱“死人床”迫害](https://github.com/Hongyu91/cecjy/issues/855#issue-679999607)
+
+[大是大非面前　孰可中立？](https://github.com/Hongyu91/cecjy/issues/856#issue-680000928)
+
 [天灭中共倒计时 大难自保别迟疑 ](https://github.com/Hongyu91/cecjy/issues/851#issue-679703726) 
 
 [迎来生命的柳暗花明](https://github.com/Hongyu91/cecjy/issues/852#issue-679705016)
@@ -25,12 +31,6 @@
 [上海警察绑架72岁王志亮女士　强制采集个人信息](https://github.com/Hongyu91/cecjy/issues/849#issue-679520141)
 
 [参与迫害的政法系统七类人及其不同的人生结局](https://github.com/Hongyu91/cecjy/issues/850#issue-679520692)
-
-[追查国际最新公告：追查中共常委赵乐际](https://github.com/Hongyu91/cecjy/issues/842#issue-678946565)
-
-[山东高密一日绑架46名法轮功学员 ](https://github.com/Hongyu91/cecjy/issues/843#issue-678949530)
-
-[张狂作恶者的下场 ](https://github.com/Hongyu91/cecjy/issues/844#issue-678951562)
 
 ### 主页选文（点文字阅读）
 
