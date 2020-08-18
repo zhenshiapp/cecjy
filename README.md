@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[从山东省恶人遭报看迫害法轮功的悲惨下场](https://github.com/Hongyu91/cecjy/issues/857#issue-680752979) 
+
+[巴黎埃菲尔铁塔见证：善良人支持法轮功（图）](https://github.com/Hongyu91/cecjy/issues/858#issue-680757996)
+
+[反常的诱惑预示着什么？](https://github.com/Hongyu91/cecjy/issues/859#issue-680759728)
+
 [吉林市85岁法轮功学员郭余年被冤判六年入狱](https://github.com/Hongyu91/cecjy/issues/854#issue-679997987)
 
 [被枉判八年　褚贵岩遭吉林公主岭监狱“死人床”迫害](https://github.com/Hongyu91/cecjy/issues/855#issue-679999607)
@@ -25,12 +31,6 @@
 [迎来生命的柳暗花明](https://github.com/Hongyu91/cecjy/issues/852#issue-679705016)
 
 [广州法轮功学员叶小冰被构陷到检察院](https://github.com/Hongyu91/cecjy/issues/853#issue-679705545)
-
-[美国务院发言人要求立即停止迫害法轮功](https://github.com/Hongyu91/cecjy/issues/848#issue-679519454) 
-
-[上海警察绑架72岁王志亮女士　强制采集个人信息](https://github.com/Hongyu91/cecjy/issues/849#issue-679520141)
-
-[参与迫害的政法系统七类人及其不同的人生结局](https://github.com/Hongyu91/cecjy/issues/850#issue-679520692)
 
 ### 主页选文（点文字阅读）
 
