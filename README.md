@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[全球退党中心推出在线办理“退党证书”服务](https://github.com/Hongyu91/cecjy/issues/860#issue-681666190) 
+
+[边群连被唐山冀东监狱迫害致死（图）](https://github.com/Hongyu91/cecjy/issues/861#issue-681668624)
+
+[当警察不再为独裁者效力（图）](https://github.com/Hongyu91/cecjy/issues/862#issue-681671860)
+
 [从山东省恶人遭报看迫害法轮功的悲惨下场](https://github.com/Hongyu91/cecjy/issues/857#issue-680752979) 
 
 [巴黎埃菲尔铁塔见证：善良人支持法轮功（图）](https://github.com/Hongyu91/cecjy/issues/858#issue-680757996)
@@ -25,12 +31,6 @@
 [被枉判八年　褚贵岩遭吉林公主岭监狱“死人床”迫害](https://github.com/Hongyu91/cecjy/issues/855#issue-679999607)
 
 [大是大非面前　孰可中立？](https://github.com/Hongyu91/cecjy/issues/856#issue-680000928)
-
-[天灭中共倒计时 大难自保别迟疑 ](https://github.com/Hongyu91/cecjy/issues/851#issue-679703726) 
-
-[迎来生命的柳暗花明](https://github.com/Hongyu91/cecjy/issues/852#issue-679705016)
-
-[广州法轮功学员叶小冰被构陷到检察院](https://github.com/Hongyu91/cecjy/issues/853#issue-679705545)
 
 ### 主页选文（点文字阅读）
 
