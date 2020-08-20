@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“七·二零”期间法徒们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/863#issue-682489109)
+
+[九字真言对武汉肺炎疗效研究之启示](https://github.com/Hongyu91/cecjy/issues/864#issue-682491004)
+
+[“共产主义如同鸦片一样吸引着世界上许多人”](https://github.com/Hongyu91/cecjy/issues/865#issue-682493420)
+
 [全球退党中心推出在线办理“退党证书”服务](https://github.com/Hongyu91/cecjy/issues/860#issue-681666190) 
 
 [边群连被唐山冀东监狱迫害致死（图）](https://github.com/Hongyu91/cecjy/issues/861#issue-681668624)
@@ -25,12 +31,6 @@
 [巴黎埃菲尔铁塔见证：善良人支持法轮功（图）](https://github.com/Hongyu91/cecjy/issues/858#issue-680757996)
 
 [反常的诱惑预示着什么？](https://github.com/Hongyu91/cecjy/issues/859#issue-680759728)
-
-[吉林市85岁法轮功学员郭余年被冤判六年入狱](https://github.com/Hongyu91/cecjy/issues/854#issue-679997987)
-
-[被枉判八年　褚贵岩遭吉林公主岭监狱“死人床”迫害](https://github.com/Hongyu91/cecjy/issues/855#issue-679999607)
-
-[大是大非面前　孰可中立？](https://github.com/Hongyu91/cecjy/issues/856#issue-680000928)
 
 ### 主页选文（点文字阅读）
 
