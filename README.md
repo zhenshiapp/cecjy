@@ -14,6 +14,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“社会信用体系”是为了监控还是诚信？](https://github.com/Hongyu91/cecjy/issues/866#issue-683343408) 
+
+[法轮功创造的医学奇迹（7）](https://github.com/Hongyu91/cecjy/issues/867#issue-683346062)
+
+[长春市于爱丽被非法批捕　瘫痪丈夫失去照顾](https://github.com/Hongyu91/cecjy/issues/868#issue-683347476)
+
 [“七·二零”期间法徒们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/863#issue-682489109)
 
 [九字真言对武汉肺炎疗效研究之启示](https://github.com/Hongyu91/cecjy/issues/864#issue-682491004)
@@ -25,12 +31,6 @@
 [边群连被唐山冀东监狱迫害致死（图）](https://github.com/Hongyu91/cecjy/issues/861#issue-681668624)
 
 [当警察不再为独裁者效力（图）](https://github.com/Hongyu91/cecjy/issues/862#issue-681671860)
-
-[从山东省恶人遭报看迫害法轮功的悲惨下场](https://github.com/Hongyu91/cecjy/issues/857#issue-680752979) 
-
-[巴黎埃菲尔铁塔见证：善良人支持法轮功（图）](https://github.com/Hongyu91/cecjy/issues/858#issue-680757996)
-
-[反常的诱惑预示着什么？](https://github.com/Hongyu91/cecjy/issues/859#issue-680759728)
 
 ### 主页选文（点文字阅读）
 
