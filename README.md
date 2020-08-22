@@ -12,6 +12,8 @@
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
+#### 点击下载阅读：[《共产主义的终极目的》CHM格式电子书](https://github.com/Hongyu91/cecjy/files/5112143/default.zip)
+
 ### 动态真相文章（点文字阅读）
 
 [多省“610”大规模抓捕骚扰法轮功学员](https://github.com/Hongyu91/cecjy/issues/870#issue-683946726) 
