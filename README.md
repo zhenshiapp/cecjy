@@ -14,6 +14,12 @@
 
 #### 点击下载阅读：[《共产主义的终极目的》CHM格式电子书](https://github.com/Hongyu91/cecjy/files/5112143/default.zip)
 
+##### 提示：电脑用户下载解压后一般能直接阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
+
+##### 点击下载手机阅读器：[Chm Reader X_阅读器](https://github.com/Hongyu91/cecjy/files/4318231/Chm.Reader.X_.com.zip)
+
+##### 手机阅读器要找到下载文件的位置后才能打开它，就是从阅读器那儿操作去打开解压后的电子书文件。
+
 ### 动态真相文章（点文字阅读）
 
 [多省“610”大规模抓捕骚扰法轮功学员](https://github.com/Hongyu91/cecjy/issues/870#issue-683946726) 
