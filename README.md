@@ -111,7 +111,7 @@
 [解體黨文化](https://github.com/Hongyu91/cecjy/files/4318136/default.zip) |
 [驚天黑幕](https://github.com/Hongyu91/cecjy/files/4318143/default.zip) |
 [江泽民其人](https://github.com/Hongyu91/cecjy/files/4318148/default.zip) |
-[全球公審江澤民](https://github.com/Hongyu91/cecjy/files/4318152/default.zip)
+[《共产主义的终极目的》](https://github.com/Hongyu91/cecjy/files/5112143/default.zip)
 
 ##### 提示：电脑用户下载解压后一般能直接阅读电子书，手机用户要下载一个手机阅读器才能阅读电子书
 
