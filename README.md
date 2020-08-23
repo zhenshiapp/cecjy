@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[轮回纪实：秦俑古今](https://github.com/Hongyu91/cecjy/issues/874#issue-684133088)
+
+[真心修炼　乳腺纤维瘤消失](https://github.com/Hongyu91/cecjy/issues/875#issue-684133766)
+
+[黑龙江省肇东市前六一零头目马春生被举报](https://github.com/Hongyu91/cecjy/issues/876#issue-684134565)
+
 [多省“610”大规模抓捕骚扰法轮功学员](https://github.com/Hongyu91/cecjy/issues/870#issue-683946726) 
 
 [从强制采血看中共邪性](https://github.com/Hongyu91/cecjy/issues/871#issue-683947067)
@@ -27,12 +33,6 @@
 [法轮功创造的医学奇迹（7）](https://github.com/Hongyu91/cecjy/issues/867#issue-683346062)
 
 [长春市于爱丽被非法批捕　瘫痪丈夫失去照顾](https://github.com/Hongyu91/cecjy/issues/868#issue-683347476)
-
-[“七·二零”期间法徒们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/863#issue-682489109)
-
-[九字真言对武汉肺炎疗效研究之启示](https://github.com/Hongyu91/cecjy/issues/864#issue-682491004)
-
-[“共产主义如同鸦片一样吸引着世界上许多人”](https://github.com/Hongyu91/cecjy/issues/865#issue-682493420)
 
 ### 主页选文（点文字阅读）
 
