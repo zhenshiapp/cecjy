@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[被枉判三年　商兆香被劫入山东女子监狱迫害](https://github.com/Hongyu91/cecjy/issues/877#issue-684444136) 
+
+[孔律师：为法轮功学员无罪而辩（图）](https://github.com/Hongyu91/cecjy/issues/879#issue-684449969)
+
+[金庸们的故事寓意何在？（图）](https://github.com/Hongyu91/cecjy/issues/880#issue-684454194)
+
 [轮回纪实：秦俑古今](https://github.com/Hongyu91/cecjy/issues/874#issue-684133088)
 
 [真心修炼　乳腺纤维瘤消失](https://github.com/Hongyu91/cecjy/issues/875#issue-684133766)
@@ -27,12 +33,6 @@
 [从强制采血看中共邪性](https://github.com/Hongyu91/cecjy/issues/871#issue-683947067)
 
 [遭劳教迫害致疯　南昌女教师邓小敏多年下落不明](https://github.com/Hongyu91/cecjy/issues/872#issue-683947706)
-
-[“社会信用体系”是为了监控还是诚信？](https://github.com/Hongyu91/cecjy/issues/866#issue-683343408) 
-
-[法轮功创造的医学奇迹（7）](https://github.com/Hongyu91/cecjy/issues/867#issue-683346062)
-
-[长春市于爱丽被非法批捕　瘫痪丈夫失去照顾](https://github.com/Hongyu91/cecjy/issues/868#issue-683347476)
 
 ### 主页选文（点文字阅读）
 
