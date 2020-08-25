@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[听信谤佛谎言与邪说的报应 ](https://github.com/Hongyu91/cecjy/issues/881#issue-685244219) 
+
+[八月飞雪为何因](https://github.com/Hongyu91/cecjy/issues/882#issue-685245348)
+
+[社区人员骚扰　学员家人抵制](https://github.com/Hongyu91/cecjy/issues/883#issue-685247704)
+
 [被枉判三年　商兆香被劫入山东女子监狱迫害](https://github.com/Hongyu91/cecjy/issues/877#issue-684444136) 
 
 [孔律师：为法轮功学员无罪而辩（图）](https://github.com/Hongyu91/cecjy/issues/879#issue-684449969)
@@ -27,12 +33,6 @@
 [真心修炼　乳腺纤维瘤消失](https://github.com/Hongyu91/cecjy/issues/875#issue-684133766)
 
 [黑龙江省肇东市前六一零头目马春生被举报](https://github.com/Hongyu91/cecjy/issues/876#issue-684134565)
-
-[多省“610”大规模抓捕骚扰法轮功学员](https://github.com/Hongyu91/cecjy/issues/870#issue-683946726) 
-
-[从强制采血看中共邪性](https://github.com/Hongyu91/cecjy/issues/871#issue-683947067)
-
-[遭劳教迫害致疯　南昌女教师邓小敏多年下落不明](https://github.com/Hongyu91/cecjy/issues/872#issue-683947706)
 
 ### 主页选文（点文字阅读）
 
