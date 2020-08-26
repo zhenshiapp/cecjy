@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[德国记者：真善忍对当今世界非常重要 ](https://github.com/Hongyu91/cecjy/issues/886#issue-686076851)
+
+[历史的传说是我们今天面临选择的借鉴](https://github.com/Hongyu91/cecjy/issues/884#issue-686073051)
+
+[重判法轮功学员凸显中共的末日疯狂](https://github.com/Hongyu91/cecjy/issues/885#issue-686074262)
+
 [听信谤佛谎言与邪说的报应 ](https://github.com/Hongyu91/cecjy/issues/881#issue-685244219) 
 
 [八月飞雪为何因](https://github.com/Hongyu91/cecjy/issues/882#issue-685245348)
@@ -27,12 +33,6 @@
 [孔律师：为法轮功学员无罪而辩（图）](https://github.com/Hongyu91/cecjy/issues/879#issue-684449969)
 
 [金庸们的故事寓意何在？（图）](https://github.com/Hongyu91/cecjy/issues/880#issue-684454194)
-
-[轮回纪实：秦俑古今](https://github.com/Hongyu91/cecjy/issues/874#issue-684133088)
-
-[真心修炼　乳腺纤维瘤消失](https://github.com/Hongyu91/cecjy/issues/875#issue-684133766)
-
-[黑龙江省肇东市前六一零头目马春生被举报](https://github.com/Hongyu91/cecjy/issues/876#issue-684134565)
 
 ### 主页选文（点文字阅读）
 
