@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共巧立名目 难掩非法迫害](https://github.com/Hongyu91/cecjy/issues/887#issue-687010690) 
+
+[二十多年坚持做一个好人 ](https://github.com/Hongyu91/cecjy/issues/888#issue-687013280)
+
+[卢作孚们的前世今生（图）](https://github.com/Hongyu91/cecjy/issues/889#issue-687017017)
+
 [德国记者：真善忍对当今世界非常重要 ](https://github.com/Hongyu91/cecjy/issues/886#issue-686076851)
 
 [历史的传说是我们今天面临选择的借鉴](https://github.com/Hongyu91/cecjy/issues/884#issue-686073051)
@@ -28,12 +34,6 @@
 
 [社区人员骚扰　学员家人抵制](https://github.com/Hongyu91/cecjy/issues/883#issue-685247704)
 
-[被枉判三年　商兆香被劫入山东女子监狱迫害](https://github.com/Hongyu91/cecjy/issues/877#issue-684444136) 
-
-[孔律师：为法轮功学员无罪而辩（图）](https://github.com/Hongyu91/cecjy/issues/879#issue-684449969)
-
-[金庸们的故事寓意何在？（图）](https://github.com/Hongyu91/cecjy/issues/880#issue-684454194)
-
 ### 主页选文（点文字阅读）
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
@@ -43,7 +43,6 @@
 [给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061) |
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
-
 
 [浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
