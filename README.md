@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[从两位教授的遭遇说起 ](https://github.com/Hongyu91/cecjy/issues/890#issue-687850572) 
+
+[疫情中听闻避难信息 纽约女子感动而泣](https://github.com/Hongyu91/cecjy/issues/891#issue-687856727)
+
+[“你身后有尊金光闪闪的大佛”](https://github.com/Hongyu91/cecjy/issues/892#issue-687861538)
+
 [中共巧立名目 难掩非法迫害](https://github.com/Hongyu91/cecjy/issues/887#issue-687010690) 
 
 [二十多年坚持做一个好人 ](https://github.com/Hongyu91/cecjy/issues/888#issue-687013280)
@@ -27,12 +33,6 @@
 [历史的传说是我们今天面临选择的借鉴](https://github.com/Hongyu91/cecjy/issues/884#issue-686073051)
 
 [重判法轮功学员凸显中共的末日疯狂](https://github.com/Hongyu91/cecjy/issues/885#issue-686074262)
-
-[听信谤佛谎言与邪说的报应 ](https://github.com/Hongyu91/cecjy/issues/881#issue-685244219) 
-
-[八月飞雪为何因](https://github.com/Hongyu91/cecjy/issues/882#issue-685245348)
-
-[社区人员骚扰　学员家人抵制](https://github.com/Hongyu91/cecjy/issues/883#issue-685247704)
 
 ### 主页选文（点文字阅读）
 
