@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[瑞典政要揭露中共的恐吓威胁](https://github.com/Hongyu91/cecjy/issues/894#issue-688474940)
+
+[隐晦的迫害　阴毒的手段](https://github.com/Hongyu91/cecjy/issues/895#issue-688475424)
+
+[甘肃省高级检察院检察员任剑炜被举报](https://github.com/Hongyu91/cecjy/issues/896#issue-688475732)
+
 [从两位教授的遭遇说起 ](https://github.com/Hongyu91/cecjy/issues/890#issue-687850572) 
 
 [疫情中听闻避难信息 纽约女子感动而泣](https://github.com/Hongyu91/cecjy/issues/891#issue-687856727)
@@ -27,12 +33,6 @@
 [二十多年坚持做一个好人 ](https://github.com/Hongyu91/cecjy/issues/888#issue-687013280)
 
 [卢作孚们的前世今生（图）](https://github.com/Hongyu91/cecjy/issues/889#issue-687017017)
-
-[德国记者：真善忍对当今世界非常重要 ](https://github.com/Hongyu91/cecjy/issues/886#issue-686076851)
-
-[历史的传说是我们今天面临选择的借鉴](https://github.com/Hongyu91/cecjy/issues/884#issue-686073051)
-
-[重判法轮功学员凸显中共的末日疯狂](https://github.com/Hongyu91/cecjy/issues/885#issue-686074262)
 
 ### 主页选文（点文字阅读）
 
