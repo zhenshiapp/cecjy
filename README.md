@@ -10,6 +10,8 @@
 
 #### 推荐使用ie，火狐，chrome等非国产浏览器访问本站可避免国内屏蔽。
 
+#### 劝三退插图(https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
+
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
 #### 点击下载阅读：[《共产主义的终极目的》CHM格式电子书](https://github.com/Hongyu91/cecjy/files/5112143/default.zip)（电脑用户）
