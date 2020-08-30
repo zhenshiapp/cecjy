@@ -18,6 +18,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“大佛洗脚”的警示](https://github.com/Hongyu91/cecjy/issues/899#issue-688667915) 
+
+[我与养母的故事](https://github.com/Hongyu91/cecjy/issues/898#issue-688667392)
+
+[从十几种病到几天后的无病一身轻](https://github.com/Hongyu91/cecjy/issues/900#issue-688668833)
+
 [瑞典政要揭露中共的恐吓威胁](https://github.com/Hongyu91/cecjy/issues/894#issue-688474940)
 
 [隐晦的迫害　阴毒的手段](https://github.com/Hongyu91/cecjy/issues/895#issue-688475424)
@@ -29,12 +35,6 @@
 [疫情中听闻避难信息 纽约女子感动而泣](https://github.com/Hongyu91/cecjy/issues/891#issue-687856727)
 
 [“你身后有尊金光闪闪的大佛”](https://github.com/Hongyu91/cecjy/issues/892#issue-687861538)
-
-[中共巧立名目 难掩非法迫害](https://github.com/Hongyu91/cecjy/issues/887#issue-687010690) 
-
-[二十多年坚持做一个好人 ](https://github.com/Hongyu91/cecjy/issues/888#issue-687013280)
-
-[卢作孚们的前世今生（图）](https://github.com/Hongyu91/cecjy/issues/889#issue-687017017)
 
 ### 主页选文（点文字阅读）
 
