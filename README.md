@@ -18,6 +18,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[共产党“真理部”的那些“脏活儿” ](https://github.com/Hongyu91/cecjy/issues/903#issue-688969508)
+
+[香港法轮功真相点遭亲共者涂污 市民帮报警](https://github.com/Hongyu91/cecjy/issues/901#issue-688963450) 
+
+[中共外长访问意大利　法轮功学员要求停止迫害](https://github.com/Hongyu91/cecjy/issues/902#issue-688966559)
+
 [“大佛洗脚”的警示](https://github.com/Hongyu91/cecjy/issues/899#issue-688667915) 
 
 [我与养母的故事](https://github.com/Hongyu91/cecjy/issues/898#issue-688667392)
@@ -29,12 +35,6 @@
 [隐晦的迫害　阴毒的手段](https://github.com/Hongyu91/cecjy/issues/895#issue-688475424)
 
 [甘肃省高级检察院检察员任剑炜被举报](https://github.com/Hongyu91/cecjy/issues/896#issue-688475732)
-
-[从两位教授的遭遇说起 ](https://github.com/Hongyu91/cecjy/issues/890#issue-687850572) 
-
-[疫情中听闻避难信息 纽约女子感动而泣](https://github.com/Hongyu91/cecjy/issues/891#issue-687856727)
-
-[“你身后有尊金光闪闪的大佛”](https://github.com/Hongyu91/cecjy/issues/892#issue-687861538)
 
 ### 主页选文（点文字阅读）
 
