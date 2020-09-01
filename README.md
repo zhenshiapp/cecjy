@@ -18,6 +18,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[罪恶的“清零”行动](https://github.com/Hongyu91/cecjy/issues/904#issue-689871410)
+
+[“国际强迫失踪日”的省思](https://github.com/Hongyu91/cecjy/issues/905#issue-689873090)
+
+[大厦将倾如何逃](https://github.com/Hongyu91/cecjy/issues/906#issue-689875546)
+
 [共产党“真理部”的那些“脏活儿” ](https://github.com/Hongyu91/cecjy/issues/903#issue-688969508)
 
 [香港法轮功真相点遭亲共者涂污 市民帮报警](https://github.com/Hongyu91/cecjy/issues/901#issue-688963450) 
@@ -29,12 +35,6 @@
 [我与养母的故事](https://github.com/Hongyu91/cecjy/issues/898#issue-688667392)
 
 [从十几种病到几天后的无病一身轻](https://github.com/Hongyu91/cecjy/issues/900#issue-688668833)
-
-[瑞典政要揭露中共的恐吓威胁](https://github.com/Hongyu91/cecjy/issues/894#issue-688474940)
-
-[隐晦的迫害　阴毒的手段](https://github.com/Hongyu91/cecjy/issues/895#issue-688475424)
-
-[甘肃省高级检察院检察员任剑炜被举报](https://github.com/Hongyu91/cecjy/issues/896#issue-688475732)
 
 ### 主页选文（点文字阅读）
 
