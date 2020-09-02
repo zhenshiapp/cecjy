@@ -18,6 +18,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[恶有恶报无可置疑](https://github.com/Hongyu91/cecjy/issues/907#issue-690783460) 
+
+[当制裁落地之后…… ](https://github.com/Hongyu91/cecjy/issues/908#issue-690784702)
+
+[远离邪党　福相随](https://github.com/Hongyu91/cecjy/issues/909#issue-690786814)
+
 [罪恶的“清零”行动](https://github.com/Hongyu91/cecjy/issues/904#issue-689871410)
 
 [“国际强迫失踪日”的省思](https://github.com/Hongyu91/cecjy/issues/905#issue-689873090)
@@ -29,12 +35,6 @@
 [香港法轮功真相点遭亲共者涂污 市民帮报警](https://github.com/Hongyu91/cecjy/issues/901#issue-688963450) 
 
 [中共外长访问意大利　法轮功学员要求停止迫害](https://github.com/Hongyu91/cecjy/issues/902#issue-688966559)
-
-[“大佛洗脚”的警示](https://github.com/Hongyu91/cecjy/issues/899#issue-688667915) 
-
-[我与养母的故事](https://github.com/Hongyu91/cecjy/issues/898#issue-688667392)
-
-[从十几种病到几天后的无病一身轻](https://github.com/Hongyu91/cecjy/issues/900#issue-688668833)
 
 ### 主页选文（点文字阅读）
 
