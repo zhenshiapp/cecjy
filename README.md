@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[瑞典警察：“你们在炼功，这里就会安静”](https://github.com/Hongyu91/cecjy/issues/952#issue-691742982)
+
+[一场意外让生命重塑](https://github.com/Hongyu91/cecjy/issues/953#issue-691746275) 
+
+[觉悟的民众](https://github.com/Hongyu91/cecjy/issues/954#issue-691747970)
+
 [恶有恶报无可置疑](https://github.com/Hongyu91/cecjy/issues/907#issue-690783460) 
 
 [当制裁落地之后…… ](https://github.com/Hongyu91/cecjy/issues/908#issue-690784702)
@@ -31,12 +37,6 @@
 [“国际强迫失踪日”的省思](https://github.com/Hongyu91/cecjy/issues/905#issue-689873090)
 
 [大厦将倾如何逃](https://github.com/Hongyu91/cecjy/issues/906#issue-689875546)
-
-[共产党“真理部”的那些“脏活儿” ](https://github.com/Hongyu91/cecjy/issues/903#issue-688969508)
-
-[香港法轮功真相点遭亲共者涂污 市民帮报警](https://github.com/Hongyu91/cecjy/issues/901#issue-688963450) 
-
-[中共外长访问意大利　法轮功学员要求停止迫害](https://github.com/Hongyu91/cecjy/issues/902#issue-688966559)
 
 ### 主页选文（点文字阅读）
 
