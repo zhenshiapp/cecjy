@@ -20,6 +20,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
+
+[中共活摘器官　世界不能旁观](https://github.com/Hongyu91/cecjy/issues/956#issue-692832277)
+
+[店主感动：你咋这么好](https://github.com/Hongyu91/cecjy/issues/957#issue-692833919)
+
 [瑞典警察：“你们在炼功，这里就会安静”](https://github.com/Hongyu91/cecjy/issues/952#issue-691742982)
 
 [一场意外让生命重塑](https://github.com/Hongyu91/cecjy/issues/953#issue-691746275) 
@@ -31,12 +37,6 @@
 [当制裁落地之后…… ](https://github.com/Hongyu91/cecjy/issues/908#issue-690784702)
 
 [远离邪党　福相随](https://github.com/Hongyu91/cecjy/issues/909#issue-690786814)
-
-[罪恶的“清零”行动](https://github.com/Hongyu91/cecjy/issues/904#issue-689871410)
-
-[“国际强迫失踪日”的省思](https://github.com/Hongyu91/cecjy/issues/905#issue-689873090)
-
-[大厦将倾如何逃](https://github.com/Hongyu91/cecjy/issues/906#issue-689875546)
 
 ### 主页选文（点文字阅读）
 
