@@ -22,6 +22,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[现世现报案例三则](https://github.com/Hongyu91/cecjy/issues/959#issue-694024326) 
+
+[甘肃武威市八旬郭玉莲在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/960#issue-694024612)
+
+[老先生高呼：“法轮大法好！” ](https://github.com/Hongyu91/cecjy/issues/961#issue-694024917)
+
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
 
 [中共活摘器官　世界不能旁观](https://github.com/Hongyu91/cecjy/issues/956#issue-692832277)
@@ -33,12 +39,6 @@
 [一场意外让生命重塑](https://github.com/Hongyu91/cecjy/issues/953#issue-691746275) 
 
 [觉悟的民众](https://github.com/Hongyu91/cecjy/issues/954#issue-691747970)
-
-[恶有恶报无可置疑](https://github.com/Hongyu91/cecjy/issues/907#issue-690783460) 
-
-[当制裁落地之后…… ](https://github.com/Hongyu91/cecjy/issues/908#issue-690784702)
-
-[远离邪党　福相随](https://github.com/Hongyu91/cecjy/issues/909#issue-690786814)
 
 ### 主页选文（点文字阅读）
 
