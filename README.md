@@ -22,6 +22,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共是制造人间悲剧的恶魔](https://github.com/Hongyu91/cecjy/issues/962#issue-694278767)
+
+[信与不信大法，两个宝宝两个结局](https://github.com/Hongyu91/cecjy/issues/963#issue-694279338) 
+
+[辽宁法轮功学员刘春英被非法关押　生命危急](https://github.com/Hongyu91/cecjy/issues/964#issue-694279960)
+
 [现世现报案例三则](https://github.com/Hongyu91/cecjy/issues/959#issue-694024326) 
 
 [甘肃武威市八旬郭玉莲在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/960#issue-694024612)
@@ -33,12 +39,6 @@
 [中共活摘器官　世界不能旁观](https://github.com/Hongyu91/cecjy/issues/956#issue-692832277)
 
 [店主感动：你咋这么好](https://github.com/Hongyu91/cecjy/issues/957#issue-692833919)
-
-[瑞典警察：“你们在炼功，这里就会安静”](https://github.com/Hongyu91/cecjy/issues/952#issue-691742982)
-
-[一场意外让生命重塑](https://github.com/Hongyu91/cecjy/issues/953#issue-691746275) 
-
-[觉悟的民众](https://github.com/Hongyu91/cecjy/issues/954#issue-691747970)
 
 ### 主页选文（点文字阅读）
 
