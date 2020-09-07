@@ -22,6 +22,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[危险来临　她为啥迎了上去？](https://github.com/Hongyu91/cecjy/issues/965#issue-694784697)
+
+[伦敦华人：中共迫害完全违背公理 ](https://github.com/Hongyu91/cecjy/issues/966#issue-694788794)
+
+[中共末日疯狂　只为掩盖迫害](https://github.com/Hongyu91/cecjy/issues/967#issue-694792331)
+
 [中共是制造人间悲剧的恶魔](https://github.com/Hongyu91/cecjy/issues/962#issue-694278767)
 
 [信与不信大法，两个宝宝两个结局](https://github.com/Hongyu91/cecjy/issues/963#issue-694279338) 
@@ -33,12 +39,6 @@
 [甘肃武威市八旬郭玉莲在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/960#issue-694024612)
 
 [老先生高呼：“法轮大法好！” ](https://github.com/Hongyu91/cecjy/issues/961#issue-694024917)
-
-[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
-
-[中共活摘器官　世界不能旁观](https://github.com/Hongyu91/cecjy/issues/956#issue-692832277)
-
-[店主感动：你咋这么好](https://github.com/Hongyu91/cecjy/issues/957#issue-692833919)
 
 ### 主页选文（点文字阅读）
 
