@@ -22,6 +22,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[外媒：新疆法轮功学员被关押在集中营](https://github.com/Hongyu91/cecjy/issues/968#issue-695622787) 
+
+[周武帝地狱受审的启示：人间报应不算完](https://github.com/Hongyu91/cecjy/issues/969#issue-695628835)
+
+[新冠ADE初现　疫苗将成炸弹（下）](https://github.com/Hongyu91/cecjy/issues/970#issue-695634400)
+
 [危险来临　她为啥迎了上去？](https://github.com/Hongyu91/cecjy/issues/965#issue-694784697)
 
 [伦敦华人：中共迫害完全违背公理 ](https://github.com/Hongyu91/cecjy/issues/966#issue-694788794)
@@ -33,12 +39,6 @@
 [信与不信大法，两个宝宝两个结局](https://github.com/Hongyu91/cecjy/issues/963#issue-694279338) 
 
 [辽宁法轮功学员刘春英被非法关押　生命危急](https://github.com/Hongyu91/cecjy/issues/964#issue-694279960)
-
-[现世现报案例三则](https://github.com/Hongyu91/cecjy/issues/959#issue-694024326) 
-
-[甘肃武威市八旬郭玉莲在迫害中含冤离世](https://github.com/Hongyu91/cecjy/issues/960#issue-694024612)
-
-[老先生高呼：“法轮大法好！” ](https://github.com/Hongyu91/cecjy/issues/961#issue-694024917)
 
 ### 主页选文（点文字阅读）
 
