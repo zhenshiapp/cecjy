@@ -20,6 +20,12 @@
 
 #### 点击下载阅读：[《共产主义的终极目的》CHM格式电子书](https://github.com/Hongyu91/cecjy/files/5112143/default.zip)（电脑用户）
 
+### 关于新冠疫苗文章（点文字阅读）
+
+[新冠ADE初现　疫苗将成炸弹（上）](https://github.com/Hongyu91/cecjy/issues/971#issue-695642026) 
+
+[新冠ADE初现　疫苗将成炸弹（下）](https://github.com/Hongyu91/cecjy/issues/970#issue-695634400)
+
 ### 动态真相文章（点文字阅读）
 
 [外媒：新疆法轮功学员被关押在集中营](https://github.com/Hongyu91/cecjy/issues/968#issue-695622787) 
