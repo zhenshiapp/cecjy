@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[世界不再容忍中共活摘器官](https://github.com/Hongyu91/cecjy/issues/972#issue-696542481)
+
+[山东学员李玲被村支书带民兵毒打致死](https://github.com/Hongyu91/cecjy/issues/973#issue-696544743) 
+
+[诚念九字真言　化险为夷](https://github.com/Hongyu91/cecjy/issues/974#issue-696547666)
+
 [外媒：新疆法轮功学员被关押在集中营](https://github.com/Hongyu91/cecjy/issues/968#issue-695622787) 
 
 [周武帝地狱受审的启示：人间报应不算完](https://github.com/Hongyu91/cecjy/issues/969#issue-695628835)
@@ -39,12 +45,6 @@
 [伦敦华人：中共迫害完全违背公理 ](https://github.com/Hongyu91/cecjy/issues/966#issue-694788794)
 
 [中共末日疯狂　只为掩盖迫害](https://github.com/Hongyu91/cecjy/issues/967#issue-694792331)
-
-[中共是制造人间悲剧的恶魔](https://github.com/Hongyu91/cecjy/issues/962#issue-694278767)
-
-[信与不信大法，两个宝宝两个结局](https://github.com/Hongyu91/cecjy/issues/963#issue-694279338) 
-
-[辽宁法轮功学员刘春英被非法关押　生命危急](https://github.com/Hongyu91/cecjy/issues/964#issue-694279960)
 
 ### 主页选文（点文字阅读）
 
