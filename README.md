@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[能帮人解救危难的“救命良方”](https://github.com/Hongyu91/cecjy/issues/975#issue-697553871)
+
+[董事长夫人的真挚省思](https://github.com/Hongyu91/cecjy/issues/976#issue-697555829)
+
+[律师节与律师劫](https://github.com/Hongyu91/cecjy/issues/977#issue-697557500)
+
 [世界不再容忍中共活摘器官](https://github.com/Hongyu91/cecjy/issues/972#issue-696542481)
 
 [山东学员李玲被村支书带民兵毒打致死](https://github.com/Hongyu91/cecjy/issues/973#issue-696544743) 
@@ -39,12 +45,6 @@
 [周武帝地狱受审的启示：人间报应不算完](https://github.com/Hongyu91/cecjy/issues/969#issue-695628835)
 
 [新冠ADE初现　疫苗将成炸弹（下）](https://github.com/Hongyu91/cecjy/issues/970#issue-695634400)
-
-[危险来临　她为啥迎了上去？](https://github.com/Hongyu91/cecjy/issues/965#issue-694784697)
-
-[伦敦华人：中共迫害完全违背公理 ](https://github.com/Hongyu91/cecjy/issues/966#issue-694788794)
-
-[中共末日疯狂　只为掩盖迫害](https://github.com/Hongyu91/cecjy/issues/967#issue-694792331)
 
 ### 主页选文（点文字阅读）
 
