@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共法官的荒谬审判](https://github.com/Hongyu91/cecjy/issues/978#issue-698926340) 
+
+[云南石林县残疾人高翠莲一家四人同入冤狱（图](https://github.com/Hongyu91/cecjy/issues/979#issue-698936259)
+
+[中共恐慌正义之声　频用构陷伎俩](https://github.com/Hongyu91/cecjy/issues/980#issue-698944473)
+
 [能帮人解救危难的“救命良方”](https://github.com/Hongyu91/cecjy/issues/975#issue-697553871)
 
 [董事长夫人的真挚省思](https://github.com/Hongyu91/cecjy/issues/976#issue-697555829)
@@ -39,12 +45,6 @@
 [山东学员李玲被村支书带民兵毒打致死](https://github.com/Hongyu91/cecjy/issues/973#issue-696544743) 
 
 [诚念九字真言　化险为夷](https://github.com/Hongyu91/cecjy/issues/974#issue-696547666)
-
-[外媒：新疆法轮功学员被关押在集中营](https://github.com/Hongyu91/cecjy/issues/968#issue-695622787) 
-
-[周武帝地狱受审的启示：人间报应不算完](https://github.com/Hongyu91/cecjy/issues/969#issue-695628835)
-
-[新冠ADE初现　疫苗将成炸弹（下）](https://github.com/Hongyu91/cecjy/issues/970#issue-695634400)
 
 ### 主页选文（点文字阅读）
 
