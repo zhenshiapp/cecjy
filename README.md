@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[恐怖攻击与隐晦迫害](https://github.com/Hongyu91/cecjy/issues/982#issue-700132777)
+
+[历经11年冤狱摧残 长春姜全德含冤离世](https://github.com/Hongyu91/cecjy/issues/983#issue-700136501) 
+
+[感谢大法与内心的忏悔](https://github.com/Hongyu91/cecjy/issues/984#issue-700137124)
+
 [中共法官的荒谬审判](https://github.com/Hongyu91/cecjy/issues/978#issue-698926340) 
 
 [云南石林县残疾人高翠莲一家四人同入冤狱（图](https://github.com/Hongyu91/cecjy/issues/979#issue-698936259)
@@ -39,12 +45,6 @@
 [董事长夫人的真挚省思](https://github.com/Hongyu91/cecjy/issues/976#issue-697555829)
 
 [律师节与律师劫](https://github.com/Hongyu91/cecjy/issues/977#issue-697557500)
-
-[世界不再容忍中共活摘器官](https://github.com/Hongyu91/cecjy/issues/972#issue-696542481)
-
-[山东学员李玲被村支书带民兵毒打致死](https://github.com/Hongyu91/cecjy/issues/973#issue-696544743) 
-
-[诚念九字真言　化险为夷](https://github.com/Hongyu91/cecjy/issues/974#issue-696547666)
 
 ### 主页选文（点文字阅读）
 
