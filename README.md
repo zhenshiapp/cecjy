@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[江西女子监狱迫害法轮功学员的恶行](https://github.com/Hongyu91/cecjy/issues/985#issue-700517468)
+
+[台风暴雨席卷东北意味着什么（图）](https://github.com/Hongyu91/cecjy/issues/986#issue-700518649)
+
+[我家的救命良方](https://github.com/Hongyu91/cecjy/issues/987#issue-700519042)
+
 [恐怖攻击与隐晦迫害](https://github.com/Hongyu91/cecjy/issues/982#issue-700132777)
 
 [历经11年冤狱摧残 长春姜全德含冤离世](https://github.com/Hongyu91/cecjy/issues/983#issue-700136501) 
@@ -40,16 +46,10 @@
 
 [中共恐慌正义之声　频用构陷伎俩](https://github.com/Hongyu91/cecjy/issues/980#issue-698944473)
 
-[能帮人解救危难的“救命良方”](https://github.com/Hongyu91/cecjy/issues/975#issue-697553871)
-
-[董事长夫人的真挚省思](https://github.com/Hongyu91/cecjy/issues/976#issue-697555829)
-
-[律师节与律师劫](https://github.com/Hongyu91/cecjy/issues/977#issue-697557500)
-
 ### 主页选文（点文字阅读）
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
-[无惧国安法　议员赞佩香港学员坚持讲真相 ](https://github.com/Hongyu91/cecjy/issues/756#issue-659980458) |
+[台风暴雨席卷东北意味着什么（图）](https://github.com/Hongyu91/cecjy/issues/986#issue-700518649) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
 
 [给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061) |
