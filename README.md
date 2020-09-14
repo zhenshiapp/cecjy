@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[走入大法修炼　人生不再迷茫（图）](https://github.com/Hongyu91/cecjy/issues/988#issue-700849273) 
+
+[广州八旬法轮功学员林作英被非法判刑](https://github.com/Hongyu91/cecjy/issues/989#issue-700851301)
+
+[谎言骗人一时　真相终难掩盖](https://github.com/Hongyu91/cecjy/issues/990#issue-700853633)
+
 [江西女子监狱迫害法轮功学员的恶行](https://github.com/Hongyu91/cecjy/issues/985#issue-700517468)
 
 [台风暴雨席卷东北意味着什么（图）](https://github.com/Hongyu91/cecjy/issues/986#issue-700518649)
@@ -39,12 +45,6 @@
 [历经11年冤狱摧残 长春姜全德含冤离世](https://github.com/Hongyu91/cecjy/issues/983#issue-700136501) 
 
 [感谢大法与内心的忏悔](https://github.com/Hongyu91/cecjy/issues/984#issue-700137124)
-
-[中共法官的荒谬审判](https://github.com/Hongyu91/cecjy/issues/978#issue-698926340) 
-
-[云南石林县残疾人高翠莲一家四人同入冤狱（图](https://github.com/Hongyu91/cecjy/issues/979#issue-698936259)
-
-[中共恐慌正义之声　频用构陷伎俩](https://github.com/Hongyu91/cecjy/issues/980#issue-698944473)
 
 ### 主页选文（点文字阅读）
 
