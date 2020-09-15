@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[喊法轮大法好 念善迫害消](https://github.com/Hongyu91/cecjy/issues/991#issue-701693818)
+
+[回忆当年直接聆听师尊传功讲法的情景](https://github.com/Hongyu91/cecjy/issues/992#issue-701695815) 
+
+[吉林省长春市政法委书记马延峰被举报](https://github.com/Hongyu91/cecjy/issues/993#issue-701698713)
+
 [走入大法修炼　人生不再迷茫（图）](https://github.com/Hongyu91/cecjy/issues/988#issue-700849273) 
 
 [广州八旬法轮功学员林作英被非法判刑](https://github.com/Hongyu91/cecjy/issues/989#issue-700851301)
@@ -39,12 +45,6 @@
 [台风暴雨席卷东北意味着什么（图）](https://github.com/Hongyu91/cecjy/issues/986#issue-700518649)
 
 [我家的救命良方](https://github.com/Hongyu91/cecjy/issues/987#issue-700519042)
-
-[恐怖攻击与隐晦迫害](https://github.com/Hongyu91/cecjy/issues/982#issue-700132777)
-
-[历经11年冤狱摧残 长春姜全德含冤离世](https://github.com/Hongyu91/cecjy/issues/983#issue-700136501) 
-
-[感谢大法与内心的忏悔](https://github.com/Hongyu91/cecjy/issues/984#issue-700137124)
 
 ### 主页选文（点文字阅读）
 
