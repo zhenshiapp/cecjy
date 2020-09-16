@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[好人屡受酷刑冤死 迫害无法撼动正信](https://github.com/Hongyu91/cecjy/issues/994#issue-702543261)
+
+[人权问责法　恶徒将受惩](https://github.com/Hongyu91/cecjy/issues/995#issue-702545509)
+
+[抢救与毁坏：两地国宝的不同命运](https://github.com/Hongyu91/cecjy/issues/996#issue-702550223)
+
 [喊法轮大法好 念善迫害消](https://github.com/Hongyu91/cecjy/issues/991#issue-701693818)
 
 [回忆当年直接聆听师尊传功讲法的情景](https://github.com/Hongyu91/cecjy/issues/992#issue-701695815) 
@@ -39,12 +45,6 @@
 [广州八旬法轮功学员林作英被非法判刑](https://github.com/Hongyu91/cecjy/issues/989#issue-700851301)
 
 [谎言骗人一时　真相终难掩盖](https://github.com/Hongyu91/cecjy/issues/990#issue-700853633)
-
-[江西女子监狱迫害法轮功学员的恶行](https://github.com/Hongyu91/cecjy/issues/985#issue-700517468)
-
-[台风暴雨席卷东北意味着什么（图）](https://github.com/Hongyu91/cecjy/issues/986#issue-700518649)
-
-[我家的救命良方](https://github.com/Hongyu91/cecjy/issues/987#issue-700519042)
 
 ### 主页选文（点文字阅读）
 
