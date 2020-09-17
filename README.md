@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共败象显 天惩末日近](https://github.com/Hongyu91/cecjy/issues/998#issue-703341740) 
+
+[明白真相的世人帮助传真相](https://github.com/Hongyu91/cecjy/issues/999#issue-703343425)
+
+[四川法轮功学员杨世会遭20余警察骚扰　儿女受威胁](https://github.com/Hongyu91/cecjy/issues/1000#issue-703345035)
+
 [好人屡受酷刑冤死 迫害无法撼动正信](https://github.com/Hongyu91/cecjy/issues/994#issue-702543261)
 
 [人权问责法　恶徒将受惩](https://github.com/Hongyu91/cecjy/issues/995#issue-702545509)
@@ -39,12 +45,6 @@
 [回忆当年直接聆听师尊传功讲法的情景](https://github.com/Hongyu91/cecjy/issues/992#issue-701695815) 
 
 [吉林省长春市政法委书记马延峰被举报](https://github.com/Hongyu91/cecjy/issues/993#issue-701698713)
-
-[走入大法修炼　人生不再迷茫（图）](https://github.com/Hongyu91/cecjy/issues/988#issue-700849273) 
-
-[广州八旬法轮功学员林作英被非法判刑](https://github.com/Hongyu91/cecjy/issues/989#issue-700851301)
-
-[谎言骗人一时　真相终难掩盖](https://github.com/Hongyu91/cecjy/issues/990#issue-700853633)
 
 ### 主页选文（点文字阅读）
 
