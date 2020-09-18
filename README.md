@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[“孔子学院”对全世界的侵略](https://github.com/Hongyu91/cecjy/issues/1001#issue-704176179)
+
+[炼法轮功的人都会这样做的](https://github.com/Hongyu91/cecjy/issues/1002#issue-704177602) 
+
+[修大法　我的“搭背疮”好了](https://github.com/Hongyu91/cecjy/issues/1003#issue-704178968)
+
 [中共败象显 天惩末日近](https://github.com/Hongyu91/cecjy/issues/998#issue-703341740) 
 
 [明白真相的世人帮助传真相](https://github.com/Hongyu91/cecjy/issues/999#issue-703343425)
@@ -39,12 +45,6 @@
 [人权问责法　恶徒将受惩](https://github.com/Hongyu91/cecjy/issues/995#issue-702545509)
 
 [抢救与毁坏：两地国宝的不同命运](https://github.com/Hongyu91/cecjy/issues/996#issue-702550223)
-
-[喊法轮大法好 念善迫害消](https://github.com/Hongyu91/cecjy/issues/991#issue-701693818)
-
-[回忆当年直接聆听师尊传功讲法的情景](https://github.com/Hongyu91/cecjy/issues/992#issue-701695815) 
-
-[吉林省长春市政法委书记马延峰被举报](https://github.com/Hongyu91/cecjy/issues/993#issue-701698713)
 
 ### 主页选文（点文字阅读）
 
