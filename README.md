@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[天灭中共大潮猛　早办“三退”早平安](https://github.com/Hongyu91/cecjy/issues/1037#issue-705061724) 
+
+[上海74岁退休教师法正平被构陷到法院](https://github.com/Hongyu91/cecjy/issues/1038#issue-705062446)
+
+[历经中共摧残　吉林市法轮功学员朱艳被迫害离世](https://github.com/Hongyu91/cecjy/issues/1039#issue-705062959)
+
 [唐山市赖志强被冀东监狱迫害命危](https://github.com/Hongyu91/cecjy/issues/1034#issue-704826731)
 
 [亲戚见证大法神奇](https://github.com/Hongyu91/cecjy/issues/1035#issue-704827124)
@@ -40,17 +46,11 @@
 
 [修大法　我的“搭背疮”好了](https://github.com/Hongyu91/cecjy/issues/1003#issue-704178968)
 
-[中共败象显 天惩末日近](https://github.com/Hongyu91/cecjy/issues/998#issue-703341740) 
-
-[明白真相的世人帮助传真相](https://github.com/Hongyu91/cecjy/issues/999#issue-703343425)
-
-[四川法轮功学员杨世会遭20余警察骚扰　儿女受威胁](https://github.com/Hongyu91/cecjy/issues/1000#issue-703345035)
-
 ### 主页选文（点文字阅读）
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
-[台风暴雨席卷东北意味着什么（图）](https://github.com/Hongyu91/cecjy/issues/986#issue-700518649) |
-[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)
+[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
+[天灭中共大潮猛　早办“三退”早平安](https://github.com/Hongyu91/cecjy/issues/1037#issue-705061724)
 
 [给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061) |
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
