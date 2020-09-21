@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[九个月了　我们对疫情了解了多少？](https://github.com/Hongyu91/cecjy/issues/1040#issue-705375774)
+
+[锦州善良妇女景翠珍遭三年劳教、九年冤狱迫害](https://github.com/Hongyu91/cecjy/issues/1041#issue-705378078) 
+
+[诚念“法轮大法好”得福报的真实故事](https://github.com/Hongyu91/cecjy/issues/1042#issue-705379890)
+
 [天灭中共大潮猛　早办“三退”早平安](https://github.com/Hongyu91/cecjy/issues/1037#issue-705061724) 
 
 [上海74岁退休教师法正平被构陷到法院](https://github.com/Hongyu91/cecjy/issues/1038#issue-705062446)
@@ -39,12 +45,6 @@
 [亲戚见证大法神奇](https://github.com/Hongyu91/cecjy/issues/1035#issue-704827124)
 
 [别夸口自己“不怕报应”和“没遭报”](https://github.com/Hongyu91/cecjy/issues/1036#issue-704827414)
-
-[“孔子学院”对全世界的侵略](https://github.com/Hongyu91/cecjy/issues/1001#issue-704176179)
-
-[炼法轮功的人都会这样做的](https://github.com/Hongyu91/cecjy/issues/1002#issue-704177602) 
-
-[修大法　我的“搭背疮”好了](https://github.com/Hongyu91/cecjy/issues/1003#issue-704178968)
 
 ### 主页选文（点文字阅读）
 
