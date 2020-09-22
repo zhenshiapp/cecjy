@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共党员已难入境美国](https://github.com/Hongyu91/cecjy/issues/1043#issue-706147017)
+
+[中共是“迫害咱老百姓的党！”](https://github.com/Hongyu91/cecjy/issues/1044#issue-706149276)
+
+[明真相顽疾消](https://github.com/Hongyu91/cecjy/issues/1045#issue-706150358)
+
 [九个月了　我们对疫情了解了多少？](https://github.com/Hongyu91/cecjy/issues/1040#issue-705375774)
 
 [锦州善良妇女景翠珍遭三年劳教、九年冤狱迫害](https://github.com/Hongyu91/cecjy/issues/1041#issue-705378078) 
@@ -39,12 +45,6 @@
 [上海74岁退休教师法正平被构陷到法院](https://github.com/Hongyu91/cecjy/issues/1038#issue-705062446)
 
 [历经中共摧残　吉林市法轮功学员朱艳被迫害离世](https://github.com/Hongyu91/cecjy/issues/1039#issue-705062959)
-
-[唐山市赖志强被冀东监狱迫害命危](https://github.com/Hongyu91/cecjy/issues/1034#issue-704826731)
-
-[亲戚见证大法神奇](https://github.com/Hongyu91/cecjy/issues/1035#issue-704827124)
-
-[别夸口自己“不怕报应”和“没遭报”](https://github.com/Hongyu91/cecjy/issues/1036#issue-704827414)
 
 ### 主页选文（点文字阅读）
 
