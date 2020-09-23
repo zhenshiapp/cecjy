@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[天助自助者　善恶一念间](https://github.com/Hongyu91/cecjy/issues/1046#issue-707194820) 
+
+[邻家女儿诚念“法轮大法好”获救](https://github.com/Hongyu91/cecjy/issues/1047#issue-707196213)
+
+[河北省武安市现世现报事例四例](https://github.com/Hongyu91/cecjy/issues/1048#issue-707197413)
+
 [中共党员已难入境美国](https://github.com/Hongyu91/cecjy/issues/1043#issue-706147017)
 
 [中共是“迫害咱老百姓的党！”](https://github.com/Hongyu91/cecjy/issues/1044#issue-706149276)
@@ -39,12 +45,6 @@
 [锦州善良妇女景翠珍遭三年劳教、九年冤狱迫害](https://github.com/Hongyu91/cecjy/issues/1041#issue-705378078) 
 
 [诚念“法轮大法好”得福报的真实故事](https://github.com/Hongyu91/cecjy/issues/1042#issue-705379890)
-
-[天灭中共大潮猛　早办“三退”早平安](https://github.com/Hongyu91/cecjy/issues/1037#issue-705061724) 
-
-[上海74岁退休教师法正平被构陷到法院](https://github.com/Hongyu91/cecjy/issues/1038#issue-705062446)
-
-[历经中共摧残　吉林市法轮功学员朱艳被迫害离世](https://github.com/Hongyu91/cecjy/issues/1039#issue-705062959)
 
 ### 主页选文（点文字阅读）
 
