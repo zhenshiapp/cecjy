@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[以古为镜：不可轻看誓言](https://github.com/Hongyu91/cecjy/issues/1049#issue-707926828)
+
+[美术工作者：有缘在大法中修炼](https://github.com/Hongyu91/cecjy/issues/1050#issue-707928597) 
+
+[甘肃天水优秀教师李元庆遭中共不法人员骚扰、要挟](https://github.com/Hongyu91/cecjy/issues/1051#issue-707930463)
+
 [天助自助者　善恶一念间](https://github.com/Hongyu91/cecjy/issues/1046#issue-707194820) 
 
 [邻家女儿诚念“法轮大法好”获救](https://github.com/Hongyu91/cecjy/issues/1047#issue-707196213)
@@ -39,12 +45,6 @@
 [中共是“迫害咱老百姓的党！”](https://github.com/Hongyu91/cecjy/issues/1044#issue-706149276)
 
 [明真相顽疾消](https://github.com/Hongyu91/cecjy/issues/1045#issue-706150358)
-
-[九个月了　我们对疫情了解了多少？](https://github.com/Hongyu91/cecjy/issues/1040#issue-705375774)
-
-[锦州善良妇女景翠珍遭三年劳教、九年冤狱迫害](https://github.com/Hongyu91/cecjy/issues/1041#issue-705378078) 
-
-[诚念“法轮大法好”得福报的真实故事](https://github.com/Hongyu91/cecjy/issues/1042#issue-705379890)
 
 ### 主页选文（点文字阅读）
 
