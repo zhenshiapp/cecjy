@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[蓬佩奥斥中共渗透加州 法轮功学员曝内情](https://github.com/Hongyu91/cecjy/issues/1052#issue-708716415)
+
+[遭迫害已半身瘫痪　高满堂在陕西渭南监狱受迫害](https://github.com/Hongyu91/cecjy/issues/1053#issue-708718625)
+
+[中秋节的省思](https://github.com/Hongyu91/cecjy/issues/1054#issue-708719928)
+
 [以古为镜：不可轻看誓言](https://github.com/Hongyu91/cecjy/issues/1049#issue-707926828)
 
 [美术工作者：有缘在大法中修炼](https://github.com/Hongyu91/cecjy/issues/1050#issue-707928597) 
@@ -39,12 +45,6 @@
 [邻家女儿诚念“法轮大法好”获救](https://github.com/Hongyu91/cecjy/issues/1047#issue-707196213)
 
 [河北省武安市现世现报事例四例](https://github.com/Hongyu91/cecjy/issues/1048#issue-707197413)
-
-[中共党员已难入境美国](https://github.com/Hongyu91/cecjy/issues/1043#issue-706147017)
-
-[中共是“迫害咱老百姓的党！”](https://github.com/Hongyu91/cecjy/issues/1044#issue-706149276)
-
-[明真相顽疾消](https://github.com/Hongyu91/cecjy/issues/1045#issue-706150358)
 
 ### 主页选文（点文字阅读）
 
