@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[修炼法轮功的他“是我们学校最好的一个人”](https://github.com/Hongyu91/cecjy/issues/1057#issue-709448316) 
+
+[传播避疫秘诀　河北高九云遭关押迫害逾半年](https://github.com/Hongyu91/cecjy/issues/1058#issue-709448688)
+
+[重庆法轮功学员范德芳含冤离世　女儿于霞被秘密关押](https://github.com/Hongyu91/cecjy/issues/1059#issue-709448935)
+
 [蓬佩奥斥中共渗透加州 法轮功学员曝内情](https://github.com/Hongyu91/cecjy/issues/1052#issue-708716415)
 
 [遭迫害已半身瘫痪　高满堂在陕西渭南监狱受迫害](https://github.com/Hongyu91/cecjy/issues/1053#issue-708718625)
@@ -39,12 +45,6 @@
 [美术工作者：有缘在大法中修炼](https://github.com/Hongyu91/cecjy/issues/1050#issue-707928597) 
 
 [甘肃天水优秀教师李元庆遭中共不法人员骚扰、要挟](https://github.com/Hongyu91/cecjy/issues/1051#issue-707930463)
-
-[天助自助者　善恶一念间](https://github.com/Hongyu91/cecjy/issues/1046#issue-707194820) 
-
-[邻家女儿诚念“法轮大法好”获救](https://github.com/Hongyu91/cecjy/issues/1047#issue-707196213)
-
-[河北省武安市现世现报事例四例](https://github.com/Hongyu91/cecjy/issues/1048#issue-707197413)
 
 ### 主页选文（点文字阅读）
 
