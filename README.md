@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[见证九死一生的护身符](https://github.com/Hongyu91/cecjy/issues/1060#issue-709687737)
+
+[疫情中，我们用善良仰望光明](https://github.com/Hongyu91/cecjy/issues/1061#issue-709688907) 
+
+[迎中秋 旧金山学员传播大法美好谢师恩](https://github.com/Hongyu91/cecjy/issues/1062#issue-709689934)
+
 [修炼法轮功的他“是我们学校最好的一个人”](https://github.com/Hongyu91/cecjy/issues/1057#issue-709448316) 
 
 [传播避疫秘诀　河北高九云遭关押迫害逾半年](https://github.com/Hongyu91/cecjy/issues/1058#issue-709448688)
@@ -39,12 +45,6 @@
 [遭迫害已半身瘫痪　高满堂在陕西渭南监狱受迫害](https://github.com/Hongyu91/cecjy/issues/1053#issue-708718625)
 
 [中秋节的省思](https://github.com/Hongyu91/cecjy/issues/1054#issue-708719928)
-
-[以古为镜：不可轻看誓言](https://github.com/Hongyu91/cecjy/issues/1049#issue-707926828)
-
-[美术工作者：有缘在大法中修炼](https://github.com/Hongyu91/cecjy/issues/1050#issue-707928597) 
-
-[甘肃天水优秀教师李元庆遭中共不法人员骚扰、要挟](https://github.com/Hongyu91/cecjy/issues/1051#issue-707930463)
 
 ### 主页选文（点文字阅读）
 
