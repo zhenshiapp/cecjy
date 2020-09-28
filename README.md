@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[天上月儿圆 人间团圆难](https://github.com/Hongyu91/cecjy/issues/1063#issue-710000890)
+
+[香港市民声援正义　亲共者破坏真相点被捕](https://github.com/Hongyu91/cecjy/issues/1064#issue-710004631)
+
+[派出所里的善良女士](https://github.com/Hongyu91/cecjy/issues/1065#issue-710009078)
+
 [见证九死一生的护身符](https://github.com/Hongyu91/cecjy/issues/1060#issue-709687737)
 
 [疫情中，我们用善良仰望光明](https://github.com/Hongyu91/cecjy/issues/1061#issue-709688907) 
@@ -39,12 +45,6 @@
 [传播避疫秘诀　河北高九云遭关押迫害逾半年](https://github.com/Hongyu91/cecjy/issues/1058#issue-709448688)
 
 [重庆法轮功学员范德芳含冤离世　女儿于霞被秘密关押](https://github.com/Hongyu91/cecjy/issues/1059#issue-709448935)
-
-[蓬佩奥斥中共渗透加州 法轮功学员曝内情](https://github.com/Hongyu91/cecjy/issues/1052#issue-708716415)
-
-[遭迫害已半身瘫痪　高满堂在陕西渭南监狱受迫害](https://github.com/Hongyu91/cecjy/issues/1053#issue-708718625)
-
-[中秋节的省思](https://github.com/Hongyu91/cecjy/issues/1054#issue-708719928)
 
 ### 主页选文（点文字阅读）
 
