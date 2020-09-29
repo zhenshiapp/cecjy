@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[山东省潍坊市法轮功学员张朝被枉判四年](https://github.com/Hongyu91/cecjy/issues/1066#issue-710860182) 
+
+[四川成都76岁老年夫妻双双被冤判](https://github.com/Hongyu91/cecjy/issues/1067#issue-710861206)
+
+[不再躲避　我是来救人的 ](https://github.com/Hongyu91/cecjy/issues/1068#issue-710864092)
+
 [天上月儿圆 人间团圆难](https://github.com/Hongyu91/cecjy/issues/1063#issue-710000890)
 
 [香港市民声援正义　亲共者破坏真相点被捕](https://github.com/Hongyu91/cecjy/issues/1064#issue-710004631)
@@ -39,12 +45,6 @@
 [疫情中，我们用善良仰望光明](https://github.com/Hongyu91/cecjy/issues/1061#issue-709688907) 
 
 [迎中秋 旧金山学员传播大法美好谢师恩](https://github.com/Hongyu91/cecjy/issues/1062#issue-709689934)
-
-[修炼法轮功的他“是我们学校最好的一个人”](https://github.com/Hongyu91/cecjy/issues/1057#issue-709448316) 
-
-[传播避疫秘诀　河北高九云遭关押迫害逾半年](https://github.com/Hongyu91/cecjy/issues/1058#issue-709448688)
-
-[重庆法轮功学员范德芳含冤离世　女儿于霞被秘密关押](https://github.com/Hongyu91/cecjy/issues/1059#issue-709448935)
 
 ### 主页选文（点文字阅读）
 
