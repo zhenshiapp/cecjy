@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[迫害逞凶残 恶报在眼前](https://github.com/Hongyu91/cecjy/issues/1069#issue-711702469)
+
+[疫情凶猛救人急](https://github.com/Hongyu91/cecjy/issues/1070#issue-711704827) 
+
+[退党记](https://github.com/Hongyu91/cecjy/issues/1071#issue-711706486)
+
 [山东省潍坊市法轮功学员张朝被枉判四年](https://github.com/Hongyu91/cecjy/issues/1066#issue-710860182) 
 
 [四川成都76岁老年夫妻双双被冤判](https://github.com/Hongyu91/cecjy/issues/1067#issue-710861206)
@@ -39,12 +45,6 @@
 [香港市民声援正义　亲共者破坏真相点被捕](https://github.com/Hongyu91/cecjy/issues/1064#issue-710004631)
 
 [派出所里的善良女士](https://github.com/Hongyu91/cecjy/issues/1065#issue-710009078)
-
-[见证九死一生的护身符](https://github.com/Hongyu91/cecjy/issues/1060#issue-709687737)
-
-[疫情中，我们用善良仰望光明](https://github.com/Hongyu91/cecjy/issues/1061#issue-709688907) 
-
-[迎中秋 旧金山学员传播大法美好谢师恩](https://github.com/Hongyu91/cecjy/issues/1062#issue-709689934)
 
 ### 主页选文（点文字阅读）
 
