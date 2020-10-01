@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[城管听了真相拿着资料如获至宝](https://github.com/Hongyu91/cecjy/issues/1072#issue-712598039)
+
+[法轮大法神奇故事（100）濒死老人奇迹生还](https://github.com/Hongyu91/cecjy/issues/1073#issue-712600358)
+
+[知道“法轮大法好” 奶奶延寿五年](https://github.com/Hongyu91/cecjy/issues/1074#issue-712601801)
+
 [迫害逞凶残 恶报在眼前](https://github.com/Hongyu91/cecjy/issues/1069#issue-711702469)
 
 [疫情凶猛救人急](https://github.com/Hongyu91/cecjy/issues/1070#issue-711704827) 
@@ -40,12 +46,6 @@
 [四川成都76岁老年夫妻双双被冤判](https://github.com/Hongyu91/cecjy/issues/1067#issue-710861206)
 
 [不再躲避　我是来救人的 ](https://github.com/Hongyu91/cecjy/issues/1068#issue-710864092)
-
-[天上月儿圆 人间团圆难](https://github.com/Hongyu91/cecjy/issues/1063#issue-710000890)
-
-[香港市民声援正义　亲共者破坏真相点被捕](https://github.com/Hongyu91/cecjy/issues/1064#issue-710004631)
-
-[派出所里的善良女士](https://github.com/Hongyu91/cecjy/issues/1065#issue-710009078)
 
 ### 主页选文（点文字阅读）
 
