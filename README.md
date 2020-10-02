@@ -83,12 +83,12 @@
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-# 明慧周报：中国版（第八一六期）
+# 明慧周报：中国版（第八一七期）
 
-![image](https://user-images.githubusercontent.com/61768866/94240294-ac7e3500-ff45-11ea-9b15-e3434ebecffe.png)
-![image](https://user-images.githubusercontent.com/61768866/94240334-be5fd800-ff45-11ea-9adf-5e18019805ab.png)
-![image](https://user-images.githubusercontent.com/61768866/94240394-cf104e00-ff45-11ea-944c-81a2bd13685e.png)
-![image](https://user-images.githubusercontent.com/61768866/94240473-ed764980-ff45-11ea-95d6-c273ea1db9e5.png)
+![image](https://user-images.githubusercontent.com/61768866/94898081-83b8eb00-04c3-11eb-91ce-9e3fb20cb40f.png)
+![image](https://user-images.githubusercontent.com/61768866/94898118-93d0ca80-04c3-11eb-9383-03ea3cbece5a.png)
+![image](https://user-images.githubusercontent.com/61768866/94898147-a2b77d00-04c3-11eb-936c-c2ff69d60a04.png)
+![image](https://user-images.githubusercontent.com/61768866/94898176-b236c600-04c3-11eb-9b4c-a538af67af5d.png)
 
 #### 法轮功基本真相贴图
  
