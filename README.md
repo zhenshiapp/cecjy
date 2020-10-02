@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[发放媒体特刊 云游四海救众生](https://github.com/Hongyu91/cecjy/issues/1075#issue-713406945) 
+
+[历经13年冤狱　抚顺市许秀云再遭冤判6年](https://github.com/Hongyu91/cecjy/issues/1077#issue-713409381)
+
+[汇聚正义　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/1078#issue-713410867)
+
 [城管听了真相拿着资料如获至宝](https://github.com/Hongyu91/cecjy/issues/1072#issue-712598039)
 
 [法轮大法神奇故事（100）濒死老人奇迹生还](https://github.com/Hongyu91/cecjy/issues/1073#issue-712600358)
@@ -40,12 +46,6 @@
 [疫情凶猛救人急](https://github.com/Hongyu91/cecjy/issues/1070#issue-711704827) 
 
 [退党记](https://github.com/Hongyu91/cecjy/issues/1071#issue-711706486)
-
-[山东省潍坊市法轮功学员张朝被枉判四年](https://github.com/Hongyu91/cecjy/issues/1066#issue-710860182) 
-
-[四川成都76岁老年夫妻双双被冤判](https://github.com/Hongyu91/cecjy/issues/1067#issue-710861206)
-
-[不再躲避　我是来救人的 ](https://github.com/Hongyu91/cecjy/issues/1068#issue-710864092)
 
 ### 主页选文（点文字阅读）
 
