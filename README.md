@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[看不见不相信不是聪明之人](https://github.com/Hongyu91/cecjy/issues/1080#issue-714025558)
+
+[美国华府法轮功学员声援三退](https://github.com/Hongyu91/cecjy/issues/1081#issue-714026990) 
+
+[庚子话十一：墙倒众人推](https://github.com/Hongyu91/cecjy/issues/1082#issue-714027805)
+
 [发放媒体特刊 云游四海救众生](https://github.com/Hongyu91/cecjy/issues/1075#issue-713406945) 
 
 [历经13年冤狱　抚顺市许秀云再遭冤判6年](https://github.com/Hongyu91/cecjy/issues/1077#issue-713409381)
@@ -40,12 +46,6 @@
 [法轮大法神奇故事（100）濒死老人奇迹生还](https://github.com/Hongyu91/cecjy/issues/1073#issue-712600358)
 
 [知道“法轮大法好” 奶奶延寿五年](https://github.com/Hongyu91/cecjy/issues/1074#issue-712601801)
-
-[迫害逞凶残 恶报在眼前](https://github.com/Hongyu91/cecjy/issues/1069#issue-711702469)
-
-[疫情凶猛救人急](https://github.com/Hongyu91/cecjy/issues/1070#issue-711704827) 
-
-[退党记](https://github.com/Hongyu91/cecjy/issues/1071#issue-711706486)
 
 ### 主页选文（点文字阅读）
 
