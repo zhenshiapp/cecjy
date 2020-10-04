@@ -28,6 +28,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美禁止共产党员移民　“三退”需主动](https://github.com/Hongyu91/cecjy/issues/1083#issue-714256258)
+
+[蓬佩奥发表演讲　谴责中共迫害信仰自由 ](https://github.com/Hongyu91/cecjy/issues/1084#issue-714257437)
+
+[修大法肺癌痊愈　讲真相遭绑架关押](https://github.com/Hongyu91/cecjy/issues/1085#issue-714257695)
+
 [看不见不相信不是聪明之人](https://github.com/Hongyu91/cecjy/issues/1080#issue-714025558)
 
 [美国华府法轮功学员声援三退](https://github.com/Hongyu91/cecjy/issues/1081#issue-714026990) 
@@ -39,12 +45,6 @@
 [历经13年冤狱　抚顺市许秀云再遭冤判6年](https://github.com/Hongyu91/cecjy/issues/1077#issue-713409381)
 
 [汇聚正义　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/1078#issue-713410867)
-
-[城管听了真相拿着资料如获至宝](https://github.com/Hongyu91/cecjy/issues/1072#issue-712598039)
-
-[法轮大法神奇故事（100）濒死老人奇迹生还](https://github.com/Hongyu91/cecjy/issues/1073#issue-712600358)
-
-[知道“法轮大法好” 奶奶延寿五年](https://github.com/Hongyu91/cecjy/issues/1074#issue-712601801)
 
 ### 主页选文（点文字阅读）
 
