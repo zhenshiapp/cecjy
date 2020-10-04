@@ -1,6 +1,5 @@
 # 晓莲小站
 
-![image](https://user-images.githubusercontent.com/61768866/94656416-a5369d00-0332-11eb-9fb5-fee7c8a7066b.png)
 ![qw121](https://user-images.githubusercontent.com/61768866/76094515-ba965380-5ffd-11ea-942f-517e4300e7d1.png)
 
 #### 本站免翻墙，为你提供真实信息。
