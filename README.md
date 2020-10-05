@@ -8,23 +8,9 @@
 共产党的历史是用鲜血和谎言写就的，其连番不断的政治运动，导致了八千万同胞和平时期的非正常死亡，超过两次世界大战死亡人数的总和。九九年以来对千千万万法轮功学员灭绝性的酷刑迫害、虐杀更是令人发指。善恶到头终有报，共产党的罪恶天理难容，即将面临上天的清算。是它的成员就得承担它的罪业。退出它，就不受其牵连、免做其替罪羊。希望您也三退得神佑，平安长相伴。
 #### 三退方法：1党 2团 3少先队 ，请回复数字到邮箱帮您起吉利化名退，退过的不要重复退。回复邮箱：wgui8056@gmail.com
 
-![zxtu1](https://user-images.githubusercontent.com/61768866/79107578-3165ff80-7da7-11ea-8582-eaff2bfec9eb.jpg)
-
-#### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
-
-#### 推荐使用ie，火狐，chrome等非国产浏览器访问本站可避免国内屏蔽。
-
 #### 点击浏览图片：[劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
 
-#### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
-
-#### 点击下载阅读：[《共产主义的终极目的》CHM格式电子书](https://github.com/Hongyu91/cecjy/files/5112143/default.zip)（电脑用户）
-
-### 关于新冠疫苗文章（点文字阅读）
-
-[新冠ADE初现　疫苗将成炸弹（上）](https://github.com/Hongyu91/cecjy/issues/971#issue-695642026) 
-
-[新冠ADE初现　疫苗将成炸弹（下）](https://github.com/Hongyu91/cecjy/issues/970#issue-695634400)
+#### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 ### 动态真相文章（点文字阅读）
 
