@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[正在剥落的“新中国”画皮](https://github.com/Hongyu91/cecjy/issues/1086#issue-714605081) 
+
+[川普染疫：制度自信、人性测试](https://github.com/Hongyu91/cecjy/issues/1087#issue-714606750)
+
+[两个世界中的教师](https://github.com/Hongyu91/cecjy/issues/1088#issue-714607920)
+
 [美禁止共产党员移民　“三退”需主动](https://github.com/Hongyu91/cecjy/issues/1083#issue-714256258)
 
 [蓬佩奥发表演讲　谴责中共迫害信仰自由 ](https://github.com/Hongyu91/cecjy/issues/1084#issue-714257437)
@@ -27,12 +33,6 @@
 [美国华府法轮功学员声援三退](https://github.com/Hongyu91/cecjy/issues/1081#issue-714026990) 
 
 [庚子话十一：墙倒众人推](https://github.com/Hongyu91/cecjy/issues/1082#issue-714027805)
-
-[发放媒体特刊 云游四海救众生](https://github.com/Hongyu91/cecjy/issues/1075#issue-713406945) 
-
-[历经13年冤狱　抚顺市许秀云再遭冤判6年](https://github.com/Hongyu91/cecjy/issues/1077#issue-713409381)
-
-[汇聚正义　制止中共活摘器官](https://github.com/Hongyu91/cecjy/issues/1078#issue-713410867)
 
 ### 主页选文（点文字阅读）
 
