@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[风雨无阻　法轮功队伍撼动人心](https://github.com/Hongyu91/cecjy/issues/1091#issue-715431159)
+
+[中共为什么要把中国人变成具有狼性的人？](https://github.com/Hongyu91/cecjy/issues/1089#issue-715426937)
+
+[拒色者为贵人](https://github.com/Hongyu91/cecjy/issues/1090#issue-715428421) 
+
 [正在剥落的“新中国”画皮](https://github.com/Hongyu91/cecjy/issues/1086#issue-714605081) 
 
 [川普染疫：制度自信、人性测试](https://github.com/Hongyu91/cecjy/issues/1087#issue-714606750)
@@ -27,12 +33,6 @@
 [蓬佩奥发表演讲　谴责中共迫害信仰自由 ](https://github.com/Hongyu91/cecjy/issues/1084#issue-714257437)
 
 [修大法肺癌痊愈　讲真相遭绑架关押](https://github.com/Hongyu91/cecjy/issues/1085#issue-714257695)
-
-[看不见不相信不是聪明之人](https://github.com/Hongyu91/cecjy/issues/1080#issue-714025558)
-
-[美国华府法轮功学员声援三退](https://github.com/Hongyu91/cecjy/issues/1081#issue-714026990) 
-
-[庚子话十一：墙倒众人推](https://github.com/Hongyu91/cecjy/issues/1082#issue-714027805)
 
 ### 主页选文（点文字阅读）
 
