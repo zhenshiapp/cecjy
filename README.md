@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美移民新政剑指中共　近两亿党团员受影响](https://github.com/Hongyu91/cecjy/issues/1092#issue-716286529)
+
+[青少年漠视生命 根源何在？](https://github.com/Hongyu91/cecjy/issues/1093#issue-716289114)
+
+[丈夫被迫害致死　青海女教师遭11年牢狱](https://github.com/Hongyu91/cecjy/issues/1094#issue-716293049)
+
 [风雨无阻　法轮功队伍撼动人心](https://github.com/Hongyu91/cecjy/issues/1091#issue-715431159)
 
 [中共为什么要把中国人变成具有狼性的人？](https://github.com/Hongyu91/cecjy/issues/1089#issue-715426937)
@@ -27,12 +33,6 @@
 [川普染疫：制度自信、人性测试](https://github.com/Hongyu91/cecjy/issues/1087#issue-714606750)
 
 [两个世界中的教师](https://github.com/Hongyu91/cecjy/issues/1088#issue-714607920)
-
-[美禁止共产党员移民　“三退”需主动](https://github.com/Hongyu91/cecjy/issues/1083#issue-714256258)
-
-[蓬佩奥发表演讲　谴责中共迫害信仰自由 ](https://github.com/Hongyu91/cecjy/issues/1084#issue-714257437)
-
-[修大法肺癌痊愈　讲真相遭绑架关押](https://github.com/Hongyu91/cecjy/issues/1085#issue-714257695)
 
 ### 主页选文（点文字阅读）
 
