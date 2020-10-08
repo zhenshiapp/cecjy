@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共喉舌频造假　阴谋企图各不同 ](https://github.com/Hongyu91/cecjy/issues/1095#issue-717085794) 
+
+[共产党倒台后的“公务员们”](https://github.com/Hongyu91/cecjy/issues/1096#issue-717087965)
+
+[我和身边人受益于法轮大法](https://github.com/Hongyu91/cecjy/issues/1097#issue-717089577)
+
 [美移民新政剑指中共　近两亿党团员受影响](https://github.com/Hongyu91/cecjy/issues/1092#issue-716286529)
 
 [青少年漠视生命 根源何在？](https://github.com/Hongyu91/cecjy/issues/1093#issue-716289114)
@@ -27,12 +33,6 @@
 [中共为什么要把中国人变成具有狼性的人？](https://github.com/Hongyu91/cecjy/issues/1089#issue-715426937)
 
 [拒色者为贵人](https://github.com/Hongyu91/cecjy/issues/1090#issue-715428421) 
-
-[正在剥落的“新中国”画皮](https://github.com/Hongyu91/cecjy/issues/1086#issue-714605081) 
-
-[川普染疫：制度自信、人性测试](https://github.com/Hongyu91/cecjy/issues/1087#issue-714606750)
-
-[两个世界中的教师](https://github.com/Hongyu91/cecjy/issues/1088#issue-714607920)
 
 ### 主页选文（点文字阅读）
 
