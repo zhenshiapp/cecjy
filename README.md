@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[修炼大法甲状腺结节好了](https://github.com/Hongyu91/cecjy/issues/1099#issue-717952323)
+
+[退党：人心归正的起点　再造中国的希望](https://github.com/Hongyu91/cecjy/issues/1100#issue-717953940)
+
+[世界精神卫生日的省思](https://github.com/Hongyu91/cecjy/issues/1101#issue-717955232) 
+
 [中共喉舌频造假　阴谋企图各不同 ](https://github.com/Hongyu91/cecjy/issues/1095#issue-717085794) 
 
 [共产党倒台后的“公务员们”](https://github.com/Hongyu91/cecjy/issues/1096#issue-717087965)
@@ -27,12 +33,6 @@
 [青少年漠视生命 根源何在？](https://github.com/Hongyu91/cecjy/issues/1093#issue-716289114)
 
 [丈夫被迫害致死　青海女教师遭11年牢狱](https://github.com/Hongyu91/cecjy/issues/1094#issue-716293049)
-
-[风雨无阻　法轮功队伍撼动人心](https://github.com/Hongyu91/cecjy/issues/1091#issue-715431159)
-
-[中共为什么要把中国人变成具有狼性的人？](https://github.com/Hongyu91/cecjy/issues/1089#issue-715426937)
-
-[拒色者为贵人](https://github.com/Hongyu91/cecjy/issues/1090#issue-715428421) 
 
 ### 主页选文（点文字阅读）
 
