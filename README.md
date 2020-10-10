@@ -16,6 +16,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共自曝其丑　人权劣迹现形](https://github.com/Hongyu91/cecjy/issues/1103#issue-718555039)
+
+[医学科学皆证实　法轮功治病奇效](https://github.com/Hongyu91/cecjy/issues/1104#issue-718555565)
+
+[重庆退休教师雷正夏在西安遭绑架毒打经过](https://github.com/Hongyu91/cecjy/issues/1105#issue-718556276)
+
 [修炼大法甲状腺结节好了](https://github.com/Hongyu91/cecjy/issues/1099#issue-717952323)
 
 [退党：人心归正的起点　再造中国的希望](https://github.com/Hongyu91/cecjy/issues/1100#issue-717953940)
@@ -27,12 +33,6 @@
 [共产党倒台后的“公务员们”](https://github.com/Hongyu91/cecjy/issues/1096#issue-717087965)
 
 [我和身边人受益于法轮大法](https://github.com/Hongyu91/cecjy/issues/1097#issue-717089577)
-
-[美移民新政剑指中共　近两亿党团员受影响](https://github.com/Hongyu91/cecjy/issues/1092#issue-716286529)
-
-[青少年漠视生命 根源何在？](https://github.com/Hongyu91/cecjy/issues/1093#issue-716289114)
-
-[丈夫被迫害致死　青海女教师遭11年牢狱](https://github.com/Hongyu91/cecjy/issues/1094#issue-716293049)
 
 ### 主页选文（点文字阅读）
 
