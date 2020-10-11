@@ -17,6 +17,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[德国南北双城揭露中共迫害](https://github.com/Hongyu91/cecjy/issues/1106#issue-718775106) 
+
+[重庆荣昌县清廉副县长被迫害致死　父亲悲愤离世](https://github.com/Hongyu91/cecjy/issues/1107#issue-718776452)
+
+[师父救了八十三岁婆婆的命](https://github.com/Hongyu91/cecjy/issues/1108#issue-718776949)
+
 [中共自曝其丑　人权劣迹现形](https://github.com/Hongyu91/cecjy/issues/1103#issue-718555039)
 
 [医学科学皆证实　法轮功治病奇效](https://github.com/Hongyu91/cecjy/issues/1104#issue-718555565)
@@ -28,12 +34,6 @@
 [退党：人心归正的起点　再造中国的希望](https://github.com/Hongyu91/cecjy/issues/1100#issue-717953940)
 
 [世界精神卫生日的省思](https://github.com/Hongyu91/cecjy/issues/1101#issue-717955232) 
-
-[中共喉舌频造假　阴谋企图各不同 ](https://github.com/Hongyu91/cecjy/issues/1095#issue-717085794) 
-
-[共产党倒台后的“公务员们”](https://github.com/Hongyu91/cecjy/issues/1096#issue-717087965)
-
-[我和身边人受益于法轮大法](https://github.com/Hongyu91/cecjy/issues/1097#issue-717089577)
 
 ### 主页选文（点文字阅读）
 
