@@ -17,6 +17,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[大法的神奇无处不在](https://github.com/Hongyu91/cecjy/issues/1109#issue-719159080)
+
+[“大法的神奇力量使我身心获益”](https://github.com/Hongyu91/cecjy/issues/1110#issue-719161501)
+
+[党员被禁入美　恐波及团员、队员　“三退”有出路](https://github.com/Hongyu91/cecjy/issues/1111#issue-719163512) 
+
 [德国南北双城揭露中共迫害](https://github.com/Hongyu91/cecjy/issues/1106#issue-718775106) 
 
 [重庆荣昌县清廉副县长被迫害致死　父亲悲愤离世](https://github.com/Hongyu91/cecjy/issues/1107#issue-718776452)
@@ -28,12 +34,6 @@
 [医学科学皆证实　法轮功治病奇效](https://github.com/Hongyu91/cecjy/issues/1104#issue-718555565)
 
 [重庆退休教师雷正夏在西安遭绑架毒打经过](https://github.com/Hongyu91/cecjy/issues/1105#issue-718556276)
-
-[修炼大法甲状腺结节好了](https://github.com/Hongyu91/cecjy/issues/1099#issue-717952323)
-
-[退党：人心归正的起点　再造中国的希望](https://github.com/Hongyu91/cecjy/issues/1100#issue-717953940)
-
-[世界精神卫生日的省思](https://github.com/Hongyu91/cecjy/issues/1101#issue-717955232) 
 
 ### 主页选文（点文字阅读）
 
