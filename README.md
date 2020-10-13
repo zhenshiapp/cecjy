@@ -17,6 +17,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[公安头头说坚决不再参与迫害法轮功了](https://github.com/Hongyu91/cecjy/issues/1112#issue-719969492)
+
+[迫害输出海外　中共接连挫败](https://github.com/Hongyu91/cecjy/issues/1113#issue-719970809)
+
+[大兴安岭政法委骚扰　法轮功学员家属拒绝签字](https://github.com/Hongyu91/cecjy/issues/1114#issue-719972424)
+
 [大法的神奇无处不在](https://github.com/Hongyu91/cecjy/issues/1109#issue-719159080)
 
 [“大法的神奇力量使我身心获益”](https://github.com/Hongyu91/cecjy/issues/1110#issue-719161501)
@@ -28,12 +34,6 @@
 [重庆荣昌县清廉副县长被迫害致死　父亲悲愤离世](https://github.com/Hongyu91/cecjy/issues/1107#issue-718776452)
 
 [师父救了八十三岁婆婆的命](https://github.com/Hongyu91/cecjy/issues/1108#issue-718776949)
-
-[中共自曝其丑　人权劣迹现形](https://github.com/Hongyu91/cecjy/issues/1103#issue-718555039)
-
-[医学科学皆证实　法轮功治病奇效](https://github.com/Hongyu91/cecjy/issues/1104#issue-718555565)
-
-[重庆退休教师雷正夏在西安遭绑架毒打经过](https://github.com/Hongyu91/cecjy/issues/1105#issue-718556276)
 
 ### 主页选文（点文字阅读）
 
