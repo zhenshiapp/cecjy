@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共为何如此惧怕知识分子](https://github.com/Hongyu91/cecjy/issues/1117#issue-721260478)
+
+[退党是唯一出路　香港设退党热线电话](https://github.com/Hongyu91/cecjy/issues/1116#issue-721253998)
+
+[失去“诚信”就将失去一切](https://github.com/Hongyu91/cecjy/issues/1115#issue-721250354) 
+
 [公安头头说坚决不再参与迫害法轮功了](https://github.com/Hongyu91/cecjy/issues/1112#issue-719969492)
 
 [迫害输出海外　中共接连挫败](https://github.com/Hongyu91/cecjy/issues/1113#issue-719970809)
@@ -30,12 +36,6 @@
 [“大法的神奇力量使我身心获益”](https://github.com/Hongyu91/cecjy/issues/1110#issue-719161501)
 
 [党员被禁入美　恐波及团员、队员　“三退”有出路](https://github.com/Hongyu91/cecjy/issues/1111#issue-719163512) 
-
-[德国南北双城揭露中共迫害](https://github.com/Hongyu91/cecjy/issues/1106#issue-718775106) 
-
-[重庆荣昌县清廉副县长被迫害致死　父亲悲愤离世](https://github.com/Hongyu91/cecjy/issues/1107#issue-718776452)
-
-[师父救了八十三岁婆婆的命](https://github.com/Hongyu91/cecjy/issues/1108#issue-718776949)
 
 ### 主页选文（点文字阅读）
 
