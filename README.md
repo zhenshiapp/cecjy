@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共不抓坏人抓好人 背后暗藏祸心](https://github.com/Hongyu91/cecjy/issues/1119#issue-722083747)
+
+[聆听女童的悲歌与心愿](https://github.com/Hongyu91/cecjy/issues/1120#issue-722085871)
+
+[中共迫害信仰　颠倒黑白](https://github.com/Hongyu91/cecjy/issues/1121#issue-722087662) 
+
 [中共为何如此惧怕知识分子](https://github.com/Hongyu91/cecjy/issues/1117#issue-721260478)
 
 [退党是唯一出路　香港设退党热线电话](https://github.com/Hongyu91/cecjy/issues/1116#issue-721253998)
@@ -30,12 +36,6 @@
 [迫害输出海外　中共接连挫败](https://github.com/Hongyu91/cecjy/issues/1113#issue-719970809)
 
 [大兴安岭政法委骚扰　法轮功学员家属拒绝签字](https://github.com/Hongyu91/cecjy/issues/1114#issue-719972424)
-
-[大法的神奇无处不在](https://github.com/Hongyu91/cecjy/issues/1109#issue-719159080)
-
-[“大法的神奇力量使我身心获益”](https://github.com/Hongyu91/cecjy/issues/1110#issue-719161501)
-
-[党员被禁入美　恐波及团员、队员　“三退”有出路](https://github.com/Hongyu91/cecjy/issues/1111#issue-719163512) 
 
 ### 主页选文（点文字阅读）
 
