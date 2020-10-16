@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国支持法轮功 全世界都是后盾](https://github.com/Hongyu91/cecjy/issues/1122#issue-722974344)
+
+[哈尔滨七旬退休教师贾田珍被绑架](https://github.com/Hongyu91/cecjy/issues/1123#issue-722980712)
+
+[夫妻高喊大法好　福报连连困境消](https://github.com/Hongyu91/cecjy/issues/1124#issue-722982391)
+
 [中共不抓坏人抓好人 背后暗藏祸心](https://github.com/Hongyu91/cecjy/issues/1119#issue-722083747)
 
 [聆听女童的悲歌与心愿](https://github.com/Hongyu91/cecjy/issues/1120#issue-722085871)
@@ -30,12 +36,6 @@
 [退党是唯一出路　香港设退党热线电话](https://github.com/Hongyu91/cecjy/issues/1116#issue-721253998)
 
 [失去“诚信”就将失去一切](https://github.com/Hongyu91/cecjy/issues/1115#issue-721250354) 
-
-[公安头头说坚决不再参与迫害法轮功了](https://github.com/Hongyu91/cecjy/issues/1112#issue-719969492)
-
-[迫害输出海外　中共接连挫败](https://github.com/Hongyu91/cecjy/issues/1113#issue-719970809)
-
-[大兴安岭政法委骚扰　法轮功学员家属拒绝签字](https://github.com/Hongyu91/cecjy/issues/1114#issue-719972424)
 
 ### 主页选文（点文字阅读）
 
