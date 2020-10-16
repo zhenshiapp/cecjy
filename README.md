@@ -13,7 +13,7 @@
 
 #### 点击浏览：[劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
 
-#### 点击访问：[油管视频](https://www.youtube.com/channel/UCE46QeEzKA6GawOxMZ5rPEg)（国内翻墙访问）
+#### 点击访问：[精彩视频](https://www.youtube.com/channel/UCE46QeEzKA6GawOxMZ5rPEg)（国内翻墙）
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
