@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019)
+
+[幻日异象 预告中共末日](https://github.com/Hongyu91/cecjy/issues/1126#issue-723693250)
+
+[爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685)
+
 [美国支持法轮功 全世界都是后盾](https://github.com/Hongyu91/cecjy/issues/1122#issue-722974344)
 
 [哈尔滨七旬退休教师贾田珍被绑架](https://github.com/Hongyu91/cecjy/issues/1123#issue-722980712)
@@ -30,12 +36,6 @@
 [聆听女童的悲歌与心愿](https://github.com/Hongyu91/cecjy/issues/1120#issue-722085871)
 
 [中共迫害信仰　颠倒黑白](https://github.com/Hongyu91/cecjy/issues/1121#issue-722087662) 
-
-[中共为何如此惧怕知识分子](https://github.com/Hongyu91/cecjy/issues/1117#issue-721260478)
-
-[退党是唯一出路　香港设退党热线电话](https://github.com/Hongyu91/cecjy/issues/1116#issue-721253998)
-
-[失去“诚信”就将失去一切](https://github.com/Hongyu91/cecjy/issues/1115#issue-721250354) 
 
 ### 主页选文（点文字阅读）
 
