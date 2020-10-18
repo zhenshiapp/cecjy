@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[编造邪说 害人害己](https://github.com/Hongyu91/cecjy/issues/1129#issue-723944635)
+
+[世人：真心忏悔　奇迹现](https://github.com/Hongyu91/cecjy/issues/1130#issue-723944961)
+
+[警示世人：千万不要做对大法不好的事](https://github.com/Hongyu91/cecjy/issues/1131#issue-723945385) 
+
 [为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019)
 
 [幻日异象 预告中共末日](https://github.com/Hongyu91/cecjy/issues/1126#issue-723693250)
@@ -30,12 +36,6 @@
 [哈尔滨七旬退休教师贾田珍被绑架](https://github.com/Hongyu91/cecjy/issues/1123#issue-722980712)
 
 [夫妻高喊大法好　福报连连困境消](https://github.com/Hongyu91/cecjy/issues/1124#issue-722982391)
-
-[中共不抓坏人抓好人 背后暗藏祸心](https://github.com/Hongyu91/cecjy/issues/1119#issue-722083747)
-
-[聆听女童的悲歌与心愿](https://github.com/Hongyu91/cecjy/issues/1120#issue-722085871)
-
-[中共迫害信仰　颠倒黑白](https://github.com/Hongyu91/cecjy/issues/1121#issue-722087662) 
 
 ### 主页选文（点文字阅读）
 
