@@ -21,6 +21,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792)
+
+[外国的月亮比中共国的圆？](https://github.com/Hongyu91/cecjy/issues/1133#issue-724367770)
+
+[甘肃省庆阳市政法委副书记樊广森被举报](https://github.com/Hongyu91/cecjy/issues/1134#issue-724369278)
+
 [编造邪说 害人害己](https://github.com/Hongyu91/cecjy/issues/1129#issue-723944635)
 
 [世人：真心忏悔　奇迹现](https://github.com/Hongyu91/cecjy/issues/1130#issue-723944961)
@@ -33,13 +39,11 @@
 
 [爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685)
 
-[美国支持法轮功 全世界都是后盾](https://github.com/Hongyu91/cecjy/issues/1122#issue-722974344)
-
-[哈尔滨七旬退休教师贾田珍被绑架](https://github.com/Hongyu91/cecjy/issues/1123#issue-722980712)
-
-[夫妻高喊大法好　福报连连困境消](https://github.com/Hongyu91/cecjy/issues/1124#issue-722982391)
-
 ### 主页选文（点文字阅读）
+
+[中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
+[爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685) |
+[为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
