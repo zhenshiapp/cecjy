@@ -15,7 +15,7 @@
 
 #### 点击访问：[精彩视频](https://www.youtube.com/channel/UCE46QeEzKA6GawOxMZ5rPEg)（国内翻墙）
 
-#### 点击访问： [下载园地](https://github.com/Hongyu91/xzzy)
+#### 点击访问： [下载园地](https://github.com/Hongyu91/xzzy/issues)
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
