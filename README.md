@@ -19,6 +19,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[天灾源于人祸](https://github.com/Hongyu91/cecjy/issues/1135#issue-725277557)
+
+[四川攀枝花市67岁钟义芳被非法判刑四年半](https://github.com/Hongyu91/cecjy/issues/1136#issue-725279430)
+
+[侄子起死回生的奇迹](https://github.com/Hongyu91/cecjy/issues/1138#issue-725285481)
+
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792)
 
 [外国的月亮比中共国的圆？](https://github.com/Hongyu91/cecjy/issues/1133#issue-724367770)
@@ -30,12 +36,6 @@
 [世人：真心忏悔　奇迹现](https://github.com/Hongyu91/cecjy/issues/1130#issue-723944961)
 
 [警示世人：千万不要做对大法不好的事](https://github.com/Hongyu91/cecjy/issues/1131#issue-723945385) 
-
-[为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019)
-
-[幻日异象 预告中共末日](https://github.com/Hongyu91/cecjy/issues/1126#issue-723693250)
-
-[爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685)
 
 ### 主页选文（点文字阅读）
 
