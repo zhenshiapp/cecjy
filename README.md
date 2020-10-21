@@ -23,6 +23,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[若无悲悯人性　即无别于禽兽](https://github.com/Hongyu91/cecjy/issues/1140#issue-726245268)
+
+[辽宁省本溪市同一日多名法轮功学员被绑架](https://github.com/Hongyu91/cecjy/issues/1141#issue-726248351)
+
+[广东东莞市参与迫害法轮功的人员遭恶报案例](https://github.com/Hongyu91/cecjy/issues/1142#issue-726249534)
+
 [天灾源于人祸](https://github.com/Hongyu91/cecjy/issues/1135#issue-725277557)
 
 [四川攀枝花市67岁钟义芳被非法判刑四年半](https://github.com/Hongyu91/cecjy/issues/1136#issue-725279430)
@@ -34,12 +40,6 @@
 [外国的月亮比中共国的圆？](https://github.com/Hongyu91/cecjy/issues/1133#issue-724367770)
 
 [甘肃省庆阳市政法委副书记樊广森被举报](https://github.com/Hongyu91/cecjy/issues/1134#issue-724369278)
-
-[编造邪说 害人害己](https://github.com/Hongyu91/cecjy/issues/1129#issue-723944635)
-
-[世人：真心忏悔　奇迹现](https://github.com/Hongyu91/cecjy/issues/1130#issue-723944961)
-
-[警示世人：千万不要做对大法不好的事](https://github.com/Hongyu91/cecjy/issues/1131#issue-723945385) 
 
 ### 主页选文（点文字阅读）
 
