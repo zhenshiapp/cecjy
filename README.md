@@ -23,6 +23,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[在中国为什么做好人这样难？!](https://github.com/Hongyu91/cecjy/issues/1143#issue-727117826)
+
+[神的使者们正在讲真相](https://github.com/Hongyu91/cecjy/issues/1144#issue-727120431)
+
+[八十二岁老人：大法给了我一个健康身体](https://github.com/Hongyu91/cecjy/issues/1145#issue-727121495)
+
 [若无悲悯人性　即无别于禽兽](https://github.com/Hongyu91/cecjy/issues/1140#issue-726245268)
 
 [辽宁省本溪市同一日多名法轮功学员被绑架](https://github.com/Hongyu91/cecjy/issues/1141#issue-726248351)
@@ -34,12 +40,6 @@
 [四川攀枝花市67岁钟义芳被非法判刑四年半](https://github.com/Hongyu91/cecjy/issues/1136#issue-725279430)
 
 [侄子起死回生的奇迹](https://github.com/Hongyu91/cecjy/issues/1138#issue-725285481)
-
-[中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792)
-
-[外国的月亮比中共国的圆？](https://github.com/Hongyu91/cecjy/issues/1133#issue-724367770)
-
-[甘肃省庆阳市政法委副书记樊广森被举报](https://github.com/Hongyu91/cecjy/issues/1134#issue-724369278)
 
 ### 主页选文（点文字阅读）
 
