@@ -23,6 +23,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[知道秘密最多的人　才明白危险已近在眼前](https://github.com/Hongyu91/cecjy/issues/1146#issue-728062840)
+
+[从误解转为道歉　觉悟永远不嫌晚](https://github.com/Hongyu91/cecjy/issues/1147#issue-728064147)
+
+[重庆公检法捏造事实　非法庭审刘志民](https://github.com/Hongyu91/cecjy/issues/1148#issue-728065802)
+
 [在中国为什么做好人这样难？!](https://github.com/Hongyu91/cecjy/issues/1143#issue-727117826)
 
 [神的使者们正在讲真相](https://github.com/Hongyu91/cecjy/issues/1144#issue-727120431)
@@ -34,12 +40,6 @@
 [辽宁省本溪市同一日多名法轮功学员被绑架](https://github.com/Hongyu91/cecjy/issues/1141#issue-726248351)
 
 [广东东莞市参与迫害法轮功的人员遭恶报案例](https://github.com/Hongyu91/cecjy/issues/1142#issue-726249534)
-
-[天灾源于人祸](https://github.com/Hongyu91/cecjy/issues/1135#issue-725277557)
-
-[四川攀枝花市67岁钟义芳被非法判刑四年半](https://github.com/Hongyu91/cecjy/issues/1136#issue-725279430)
-
-[侄子起死回生的奇迹](https://github.com/Hongyu91/cecjy/issues/1138#issue-725285481)
 
 ### 主页选文（点文字阅读）
 
