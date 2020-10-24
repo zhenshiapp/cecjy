@@ -23,6 +23,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[不能容忍活摘器官的罪恶继续存在](https://github.com/Hongyu91/cecjy/issues/1150#issue-728725282)
+
+[重阳节话老人们的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/1151#issue-728726802)
+
+[诚念“法轮大法好”　福报随即应验](https://github.com/Hongyu91/cecjy/issues/1152#issue-728727061)
+
 [知道秘密最多的人　才明白危险已近在眼前](https://github.com/Hongyu91/cecjy/issues/1146#issue-728062840)
 
 [从误解转为道歉　觉悟永远不嫌晚](https://github.com/Hongyu91/cecjy/issues/1147#issue-728064147)
@@ -34,12 +40,6 @@
 [神的使者们正在讲真相](https://github.com/Hongyu91/cecjy/issues/1144#issue-727120431)
 
 [八十二岁老人：大法给了我一个健康身体](https://github.com/Hongyu91/cecjy/issues/1145#issue-727121495)
-
-[若无悲悯人性　即无别于禽兽](https://github.com/Hongyu91/cecjy/issues/1140#issue-726245268)
-
-[辽宁省本溪市同一日多名法轮功学员被绑架](https://github.com/Hongyu91/cecjy/issues/1141#issue-726248351)
-
-[广东东莞市参与迫害法轮功的人员遭恶报案例](https://github.com/Hongyu91/cecjy/issues/1142#issue-726249534)
 
 ### 主页选文（点文字阅读）
 
