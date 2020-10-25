@@ -23,6 +23,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[青年喜得法　人生大自在](https://github.com/Hongyu91/cecjy/issues/1153#issue-728999541)
+
+[同一村子里的故事　看善恶有报](https://github.com/Hongyu91/cecjy/issues/1154#issue-729000308)
+
+[“共产党要完蛋了”](https://github.com/Hongyu91/cecjy/issues/1155#issue-729000727)
+
 [不能容忍活摘器官的罪恶继续存在](https://github.com/Hongyu91/cecjy/issues/1150#issue-728725282)
 
 [重阳节话老人们的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/1151#issue-728726802)
@@ -34,12 +40,6 @@
 [从误解转为道歉　觉悟永远不嫌晚](https://github.com/Hongyu91/cecjy/issues/1147#issue-728064147)
 
 [重庆公检法捏造事实　非法庭审刘志民](https://github.com/Hongyu91/cecjy/issues/1148#issue-728065802)
-
-[在中国为什么做好人这样难？!](https://github.com/Hongyu91/cecjy/issues/1143#issue-727117826)
-
-[神的使者们正在讲真相](https://github.com/Hongyu91/cecjy/issues/1144#issue-727120431)
-
-[八十二岁老人：大法给了我一个健康身体](https://github.com/Hongyu91/cecjy/issues/1145#issue-727121495)
 
 ### 主页选文（点文字阅读）
 
