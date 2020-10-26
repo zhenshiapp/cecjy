@@ -23,6 +23,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共迫害法轮功21年 朱婉琪：泯灭人性和善性](https://github.com/Hongyu91/cecjy/issues/1156#issue-729337651)
+
+[二十年前绝密文件曝光](https://github.com/Hongyu91/cecjy/issues/1157#issue-729340121)
+
+[学生犯罪率最高的学府：中共党校](https://github.com/Hongyu91/cecjy/issues/1158#issue-729343180)
+
 [青年喜得法　人生大自在](https://github.com/Hongyu91/cecjy/issues/1153#issue-728999541)
 
 [同一村子里的故事　看善恶有报](https://github.com/Hongyu91/cecjy/issues/1154#issue-729000308)
@@ -34,12 +40,6 @@
 [重阳节话老人们的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/1151#issue-728726802)
 
 [诚念“法轮大法好”　福报随即应验](https://github.com/Hongyu91/cecjy/issues/1152#issue-728727061)
-
-[知道秘密最多的人　才明白危险已近在眼前](https://github.com/Hongyu91/cecjy/issues/1146#issue-728062840)
-
-[从误解转为道歉　觉悟永远不嫌晚](https://github.com/Hongyu91/cecjy/issues/1147#issue-728064147)
-
-[重庆公检法捏造事实　非法庭审刘志民](https://github.com/Hongyu91/cecjy/issues/1148#issue-728065802)
 
 ### 主页选文（点文字阅读）
 
