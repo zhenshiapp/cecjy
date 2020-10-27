@@ -19,9 +19,13 @@
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
-
-
 ### 动态真相文章（点文字阅读）
+
+[一个国保大队长的思想变化](https://github.com/Hongyu91/cecjy/issues/1159#issue-730185930)
+
+[屡遭迫害　甘肃强维秀又被劫入兰州监狱迫害](https://github.com/Hongyu91/cecjy/issues/1160#issue-730192722)
+
+[五名警察车祸身亡　内蒙古国保冀德峰面临巨额赔付](https://github.com/Hongyu91/cecjy/issues/1161#issue-730196727)
 
 [中共迫害法轮功21年 朱婉琪：泯灭人性和善性](https://github.com/Hongyu91/cecjy/issues/1156#issue-729337651)
 
@@ -34,12 +38,6 @@
 [同一村子里的故事　看善恶有报](https://github.com/Hongyu91/cecjy/issues/1154#issue-729000308)
 
 [“共产党要完蛋了”](https://github.com/Hongyu91/cecjy/issues/1155#issue-729000727)
-
-[不能容忍活摘器官的罪恶继续存在](https://github.com/Hongyu91/cecjy/issues/1150#issue-728725282)
-
-[重阳节话老人们的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/1151#issue-728726802)
-
-[诚念“法轮大法好”　福报随即应验](https://github.com/Hongyu91/cecjy/issues/1152#issue-728727061)
 
 ### 主页选文（点文字阅读）
 
