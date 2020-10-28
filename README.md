@@ -10,9 +10,9 @@
 
 #### 三退方法：国内用户自己下载翻墙软件到大纪元退党网站作三退
 
-#### 下载翻墙软件[手机版无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip)
+#### 下载翻墙软件  [手机版无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip)
 
-#### 下载翻墙软件 [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
+#### 下载翻墙软件  [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
 
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
 
