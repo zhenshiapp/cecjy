@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[明白真相的儿子拾金不昧得福报](https://github.com/Hongyu91/cecjy/issues/1162#issue-731189061)
+
+[护卫信仰自由　制止中共迫害](https://github.com/Hongyu91/cecjy/issues/1163#issue-731191718)
+
+[宁夏灵武市多名法轮功学员遭绑架抄家、骚扰](https://github.com/Hongyu91/cecjy/issues/1164#issue-731194510)
+
 [一个国保大队长的思想变化](https://github.com/Hongyu91/cecjy/issues/1159#issue-730185930)
 
 [屡遭迫害　甘肃强维秀又被劫入兰州监狱迫害](https://github.com/Hongyu91/cecjy/issues/1160#issue-730192722)
@@ -37,12 +43,6 @@
 [二十年前绝密文件曝光](https://github.com/Hongyu91/cecjy/issues/1157#issue-729340121)
 
 [学生犯罪率最高的学府：中共党校](https://github.com/Hongyu91/cecjy/issues/1158#issue-729343180)
-
-[青年喜得法　人生大自在](https://github.com/Hongyu91/cecjy/issues/1153#issue-728999541)
-
-[同一村子里的故事　看善恶有报](https://github.com/Hongyu91/cecjy/issues/1154#issue-729000308)
-
-[“共产党要完蛋了”](https://github.com/Hongyu91/cecjy/issues/1155#issue-729000727)
 
 ### 主页选文（点文字阅读）
 
