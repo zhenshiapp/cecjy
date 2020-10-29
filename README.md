@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[新疆法轮功学员们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/1165#issue-732092838)
+
+[巴林左旗监察委员会践踏法律　非法取消郭文退休金](https://github.com/Hongyu91/cecjy/issues/1166#issue-732096061)
+
+[亲人们的选择](https://github.com/Hongyu91/cecjy/issues/1167#issue-732097178)
+
 [明白真相的儿子拾金不昧得福报](https://github.com/Hongyu91/cecjy/issues/1162#issue-731189061)
 
 [护卫信仰自由　制止中共迫害](https://github.com/Hongyu91/cecjy/issues/1163#issue-731191718)
@@ -37,12 +43,6 @@
 [屡遭迫害　甘肃强维秀又被劫入兰州监狱迫害](https://github.com/Hongyu91/cecjy/issues/1160#issue-730192722)
 
 [五名警察车祸身亡　内蒙古国保冀德峰面临巨额赔付](https://github.com/Hongyu91/cecjy/issues/1161#issue-730196727)
-
-[中共迫害法轮功21年 朱婉琪：泯灭人性和善性](https://github.com/Hongyu91/cecjy/issues/1156#issue-729337651)
-
-[二十年前绝密文件曝光](https://github.com/Hongyu91/cecjy/issues/1157#issue-729340121)
-
-[学生犯罪率最高的学府：中共党校](https://github.com/Hongyu91/cecjy/issues/1158#issue-729343180)
 
 ### 主页选文（点文字阅读）
 
