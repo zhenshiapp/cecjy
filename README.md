@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[2020年被中共迫害致生命垂危的 部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)
+
+[湖南长沙市十多名法轮功学员遭绑架](https://github.com/Hongyu91/cecjy/issues/1169#issue-732954083)
+
+[不要与神赌　谤佛是天罪](https://github.com/Hongyu91/cecjy/issues/1170#issue-732955519)
+
 [新疆法轮功学员们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/1165#issue-732092838)
 
 [巴林左旗监察委员会践踏法律　非法取消郭文退休金](https://github.com/Hongyu91/cecjy/issues/1166#issue-732096061)
@@ -37,12 +43,6 @@
 [护卫信仰自由　制止中共迫害](https://github.com/Hongyu91/cecjy/issues/1163#issue-731191718)
 
 [宁夏灵武市多名法轮功学员遭绑架抄家、骚扰](https://github.com/Hongyu91/cecjy/issues/1164#issue-731194510)
-
-[一个国保大队长的思想变化](https://github.com/Hongyu91/cecjy/issues/1159#issue-730185930)
-
-[屡遭迫害　甘肃强维秀又被劫入兰州监狱迫害](https://github.com/Hongyu91/cecjy/issues/1160#issue-730192722)
-
-[五名警察车祸身亡　内蒙古国保冀德峰面临巨额赔付](https://github.com/Hongyu91/cecjy/issues/1161#issue-730196727)
 
 ### 主页选文（点文字阅读）
 
@@ -58,7 +58,7 @@
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
-[浅谈中国与中共的区别](https://github.com/Hongyu91/cecjy/issues/500#issue-614591098) |
+[2020年被中共迫害致生命垂危的 部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391) |
  [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
 [长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
