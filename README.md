@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[蓬佩奥：中共是宗教自由的最大威胁](https://github.com/Hongyu91/cecjy/issues/1172#issue-733659478)
+
+[76岁王雪祯被广州市第一看守所迫害　无法行走](https://github.com/Hongyu91/cecjy/issues/1173#issue-733659900)
+
+[八十年之后的觉醒　全球“反共”这一次停不下来了](https://github.com/Hongyu91/cecjy/issues/1174#issue-733660364)
+
 [2020年被中共迫害致生命垂危的 部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)
 
 [湖南长沙市十多名法轮功学员遭绑架](https://github.com/Hongyu91/cecjy/issues/1169#issue-732954083)
@@ -37,12 +43,6 @@
 [巴林左旗监察委员会践踏法律　非法取消郭文退休金](https://github.com/Hongyu91/cecjy/issues/1166#issue-732096061)
 
 [亲人们的选择](https://github.com/Hongyu91/cecjy/issues/1167#issue-732097178)
-
-[明白真相的儿子拾金不昧得福报](https://github.com/Hongyu91/cecjy/issues/1162#issue-731189061)
-
-[护卫信仰自由　制止中共迫害](https://github.com/Hongyu91/cecjy/issues/1163#issue-731191718)
-
-[宁夏灵武市多名法轮功学员遭绑架抄家、骚扰](https://github.com/Hongyu91/cecjy/issues/1164#issue-731194510)
 
 ### 主页选文（点文字阅读）
 
