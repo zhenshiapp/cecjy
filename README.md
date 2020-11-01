@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[疫情下的温馨 红尘中的清流](https://github.com/Hongyu91/cecjy/issues/1175#issue-733902383)
+
+[什邡多名老年法轮功学员遭绑架骚扰](https://github.com/Hongyu91/cecjy/issues/1176#issue-733903005)
+
+[信仰自由与解体中共](https://github.com/Hongyu91/cecjy/issues/1177#issue-733903529)
+
 [蓬佩奥：中共是宗教自由的最大威胁](https://github.com/Hongyu91/cecjy/issues/1172#issue-733659478)
 
 [76岁王雪祯被广州市第一看守所迫害　无法行走](https://github.com/Hongyu91/cecjy/issues/1173#issue-733659900)
@@ -36,13 +42,7 @@
 
 [湖南长沙市十多名法轮功学员遭绑架](https://github.com/Hongyu91/cecjy/issues/1169#issue-732954083)
 
-[不要与神赌　谤佛是天罪](https://github.com/Hongyu91/cecjy/issues/1170#issue-732955519)
-
 [新疆法轮功学员们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/1165#issue-732092838)
-
-[巴林左旗监察委员会践踏法律　非法取消郭文退休金](https://github.com/Hongyu91/cecjy/issues/1166#issue-732096061)
-
-[亲人们的选择](https://github.com/Hongyu91/cecjy/issues/1167#issue-732097178)
 
 ### 主页选文（点文字阅读）
 
