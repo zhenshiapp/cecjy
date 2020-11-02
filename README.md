@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[坚持正义　无惧恫吓](https://github.com/Hongyu91/cecjy/issues/1178#issue-734268212)
+
+[全家齐念大法好　血栓症状消失](https://github.com/Hongyu91/cecjy/issues/1179#issue-734269511)
+
+[公检法司人员的选择机会](https://github.com/Hongyu91/cecjy/issues/1180#issue-734271095)
+
 [疫情下的温馨 红尘中的清流](https://github.com/Hongyu91/cecjy/issues/1175#issue-733902383)
 
 [什邡多名老年法轮功学员遭绑架骚扰](https://github.com/Hongyu91/cecjy/issues/1176#issue-733903005)
@@ -37,12 +43,6 @@
 [76岁王雪祯被广州市第一看守所迫害　无法行走](https://github.com/Hongyu91/cecjy/issues/1173#issue-733659900)
 
 [八十年之后的觉醒　全球“反共”这一次停不下来了](https://github.com/Hongyu91/cecjy/issues/1174#issue-733660364)
-
-[2020年被中共迫害致生命垂危的 部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)
-
-[湖南长沙市十多名法轮功学员遭绑架](https://github.com/Hongyu91/cecjy/issues/1169#issue-732954083)
-
-[新疆法轮功学员们的血泪控诉](https://github.com/Hongyu91/cecjy/issues/1165#issue-732092838)
 
 ### 主页选文（点文字阅读）
 
