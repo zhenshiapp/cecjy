@@ -1,5 +1,9 @@
 # 浊世清莲
 
+## 漫漫长夜灯将明，谁播真相唤人心。
+
+## 三退保命弃中共，善待大法迎光明。
+
 #### 手机用户请扫描《浊世清莲》二维码保存本站
 ![浊世清莲](https://user-images.githubusercontent.com/61768866/97973159-a0b54680-1e00-11eb-9e6e-9b15dc1b1623.png)
 ![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
