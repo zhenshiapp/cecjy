@@ -27,6 +27,10 @@
 
 #### 点击阅读：[解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)
 
+#### 点击阅读：[善恶的决战　使命的兑现（上）](https://github.com/Hongyu91/cecjy/issues/1186#issue-735258179)
+
+#### 点击阅读：[善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
+
 #### 点击访问：[精彩视频](https://www.youtube.com/channel/UCE46QeEzKA6GawOxMZ5rPEg)（国内翻墙访问）
 
 ### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
