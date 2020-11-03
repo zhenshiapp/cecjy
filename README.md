@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[2020年全面脱贫秘诀：党不批准你穷](https://github.com/Hongyu91/cecjy/issues/1181#issue-735085290)
+
+[中共克扣养老金　经济迫害善良人](https://github.com/Hongyu91/cecjy/issues/1182#issue-735086173)
+
+[哈尔滨市双城区委书记李洪铭遭报被查](https://github.com/Hongyu91/cecjy/issues/1183#issue-735087755)
+
 [坚持正义　无惧恫吓](https://github.com/Hongyu91/cecjy/issues/1178#issue-734268212)
 
 [全家齐念大法好　血栓症状消失](https://github.com/Hongyu91/cecjy/issues/1179#issue-734269511)
@@ -37,12 +43,6 @@
 [什邡多名老年法轮功学员遭绑架骚扰](https://github.com/Hongyu91/cecjy/issues/1176#issue-733903005)
 
 [信仰自由与解体中共](https://github.com/Hongyu91/cecjy/issues/1177#issue-733903529)
-
-[蓬佩奥：中共是宗教自由的最大威胁](https://github.com/Hongyu91/cecjy/issues/1172#issue-733659478)
-
-[76岁王雪祯被广州市第一看守所迫害　无法行走](https://github.com/Hongyu91/cecjy/issues/1173#issue-733659900)
-
-[八十年之后的觉醒　全球“反共”这一次停不下来了](https://github.com/Hongyu91/cecjy/issues/1174#issue-733660364)
 
 ### 主页选文（点文字阅读）
 
