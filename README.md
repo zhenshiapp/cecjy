@@ -1,10 +1,8 @@
-## 浊世清莲
-
-![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
+# 浊世清莲
 
 #### 手机用户请扫描《浊世清莲》二维码保存本站
 ![浊世清莲](https://user-images.githubusercontent.com/61768866/97973159-a0b54680-1e00-11eb-9e6e-9b15dc1b1623.png)
-
+![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
 ### 三退保平安
 
   各位同胞好。法轮功是以真善忍为原则的佛家上乘修炼大法。天安门自焚是嫁祸法轮功的骗局，意在煽动仇恨。在公安部公布的14种邪教中，没有法轮功。揭露暴行、制止迫害是维护公民信仰自由的权利。中共不等于中国、爱国也不等于爱党。中华儿女不是马列子孙。
