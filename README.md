@@ -31,8 +31,6 @@
 
 #### 点击阅读：[善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
 
-#### 观看视频：[花間夢](https://qinlian52987050.wordpress.com/)
-
 #### 点击访问：[精彩视频](https://www.youtube.com/channel/UCE46QeEzKA6GawOxMZ5rPEg)（国内翻墙访问）
 
 ### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
