@@ -37,6 +37,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[悔过自新才是人间正道](https://github.com/Hongyu91/cecjy/issues/1188#issue-735904917)
+
+[中共不光彩的“第一”](https://github.com/Hongyu91/cecjy/issues/1189#issue-735906537)
+
+[明白法轮大法真相得福报](https://github.com/Hongyu91/cecjy/issues/1190#issue-735907673)
+
 [2020年全面脱贫秘诀：党不批准你穷](https://github.com/Hongyu91/cecjy/issues/1181#issue-735085290)
 
 [中共克扣养老金　经济迫害善良人](https://github.com/Hongyu91/cecjy/issues/1182#issue-735086173)
@@ -48,12 +54,6 @@
 [全家齐念大法好　血栓症状消失](https://github.com/Hongyu91/cecjy/issues/1179#issue-734269511)
 
 [公检法司人员的选择机会](https://github.com/Hongyu91/cecjy/issues/1180#issue-734271095)
-
-[疫情下的温馨 红尘中的清流](https://github.com/Hongyu91/cecjy/issues/1175#issue-733902383)
-
-[什邡多名老年法轮功学员遭绑架骚扰](https://github.com/Hongyu91/cecjy/issues/1176#issue-733903005)
-
-[信仰自由与解体中共](https://github.com/Hongyu91/cecjy/issues/1177#issue-733903529)
 
 ### 主页选文（点文字阅读）
 
