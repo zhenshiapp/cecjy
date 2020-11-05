@@ -35,6 +35,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[看似黑夜漫漫 黎明已在眼前](https://github.com/Hongyu91/cecjy/issues/1191#issue-736703614)
+
+[善心感动行恶者](https://github.com/Hongyu91/cecjy/issues/1192#issue-736705255)
+
+[四川郭秀英在拘留所连续三天遭电击等折磨](https://github.com/Hongyu91/cecjy/issues/1193#issue-736706687)
+
 [悔过自新才是人间正道](https://github.com/Hongyu91/cecjy/issues/1188#issue-735904917)
 
 [中共不光彩的“第一”](https://github.com/Hongyu91/cecjy/issues/1189#issue-735906537)
@@ -46,12 +52,6 @@
 [中共克扣养老金　经济迫害善良人](https://github.com/Hongyu91/cecjy/issues/1182#issue-735086173)
 
 [哈尔滨市双城区委书记李洪铭遭报被查](https://github.com/Hongyu91/cecjy/issues/1183#issue-735087755)
-
-[坚持正义　无惧恫吓](https://github.com/Hongyu91/cecjy/issues/1178#issue-734268212)
-
-[全家齐念大法好　血栓症状消失](https://github.com/Hongyu91/cecjy/issues/1179#issue-734269511)
-
-[公检法司人员的选择机会](https://github.com/Hongyu91/cecjy/issues/1180#issue-734271095)
 
 ### 主页选文（点文字阅读）
 
