@@ -93,7 +93,7 @@
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
-# 明慧周报：中国版（第八二一期）
+# 明慧周报：中国版（第八二二期）
 
 ![image](https://user-images.githubusercontent.com/61768866/98342631-a81c6000-204b-11eb-8681-fb67d2f732c5.png)
 ![image](https://user-images.githubusercontent.com/61768866/98342677-b9656c80-204b-11eb-82df-a415d64e4700.png)
