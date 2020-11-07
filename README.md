@@ -35,6 +35,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[五年绝食抗议 上海交大毕业生一秒一秒的坚持](https://github.com/Hongyu91/cecjy/issues/1198#issue-738197360)
+
+[十一月疫情以来 这些“巧合”在告诉人们什么？](https://github.com/Hongyu91/cecjy/issues/1199#issue-738198302)
+
+[天津市宝坻区公安分局副局长李思义暴毙](https://github.com/Hongyu91/cecjy/issues/1200#issue-738198592)
+
 [辽宁凤城市法轮功学员和家属正气拒绝社区人员骚扰](https://github.com/Hongyu91/cecjy/issues/1194#issue-737561276)
 
 [法光照我家](https://github.com/Hongyu91/cecjy/issues/1195#issue-737562659)
@@ -46,12 +52,6 @@
 [善心感动行恶者](https://github.com/Hongyu91/cecjy/issues/1192#issue-736705255)
 
 [四川郭秀英在拘留所连续三天遭电击等折磨](https://github.com/Hongyu91/cecjy/issues/1193#issue-736706687)
-
-[悔过自新才是人间正道](https://github.com/Hongyu91/cecjy/issues/1188#issue-735904917)
-
-[中共不光彩的“第一”](https://github.com/Hongyu91/cecjy/issues/1189#issue-735906537)
-
-[明白法轮大法真相得福报](https://github.com/Hongyu91/cecjy/issues/1190#issue-735907673)
 
 ### 主页选文（点文字阅读）
 
