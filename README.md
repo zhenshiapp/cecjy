@@ -35,6 +35,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[美国大选　正邪大战](https://github.com/Hongyu91/cecjy/issues/1201#issue-738410443)
+
+[山东省新泰市国保警察翻墙偷盗时梯子被搬走](https://github.com/Hongyu91/cecjy/issues/1202#issue-738410794)
+
+[茂名袂花镇610持续骚扰法轮功学员　俩人含冤离世](https://github.com/Hongyu91/cecjy/issues/1203#issue-738411215)
+
 [五年绝食抗议 上海交大毕业生一秒一秒的坚持](https://github.com/Hongyu91/cecjy/issues/1198#issue-738197360)
 
 [十一月疫情以来 这些“巧合”在告诉人们什么？](https://github.com/Hongyu91/cecjy/issues/1199#issue-738198302)
@@ -46,12 +52,6 @@
 [法光照我家](https://github.com/Hongyu91/cecjy/issues/1195#issue-737562659)
 
 [困惑](https://github.com/Hongyu91/cecjy/issues/1196#issue-737563835)
-
-[看似黑夜漫漫 黎明已在眼前](https://github.com/Hongyu91/cecjy/issues/1191#issue-736703614)
-
-[善心感动行恶者](https://github.com/Hongyu91/cecjy/issues/1192#issue-736705255)
-
-[四川郭秀英在拘留所连续三天遭电击等折磨](https://github.com/Hongyu91/cecjy/issues/1193#issue-736706687)
 
 ### 主页选文（点文字阅读）
 
