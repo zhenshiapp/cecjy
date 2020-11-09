@@ -35,6 +35,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[面对人间大戏，几人清醒几人迷？](https://github.com/Hongyu91/cecjy/issues/1204#issue-738773687)
+
+[中共的十大罪状](https://github.com/Hongyu91/cecjy/issues/1205#issue-738784050)
+
+[吉林伊通残疾妇女赵淑芹被非法判刑](https://github.com/Hongyu91/cecjy/issues/1206#issue-738786314)
+
 [美国大选　正邪大战](https://github.com/Hongyu91/cecjy/issues/1201#issue-738410443)
 
 [山东省新泰市国保警察翻墙偷盗时梯子被搬走](https://github.com/Hongyu91/cecjy/issues/1202#issue-738410794)
@@ -46,12 +52,6 @@
 [十一月疫情以来 这些“巧合”在告诉人们什么？](https://github.com/Hongyu91/cecjy/issues/1199#issue-738198302)
 
 [天津市宝坻区公安分局副局长李思义暴毙](https://github.com/Hongyu91/cecjy/issues/1200#issue-738198592)
-
-[辽宁凤城市法轮功学员和家属正气拒绝社区人员骚扰](https://github.com/Hongyu91/cecjy/issues/1194#issue-737561276)
-
-[法光照我家](https://github.com/Hongyu91/cecjy/issues/1195#issue-737562659)
-
-[困惑](https://github.com/Hongyu91/cecjy/issues/1196#issue-737563835)
 
 ### 主页选文（点文字阅读）
 
