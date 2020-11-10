@@ -31,9 +31,17 @@
 
 #### 点击阅读：[善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
 
+#### 点击阅读：[中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
+
 ### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 ### 动态真相文章（点文字阅读）
+
+[中共是破坏宗教自由的罪魁祸首](https://github.com/Hongyu91/cecjy/issues/1208#issue-739674606)
+
+[律师守护正义　无惧中共迫害](https://github.com/Hongyu91/cecjy/issues/1209#issue-739675813)
+
+[新疆石河子市原政法委书记程克强遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/1210#issue-739678299)
 
 [面对人间大戏，几人清醒几人迷？](https://github.com/Hongyu91/cecjy/issues/1204#issue-738773687)
 
@@ -46,12 +54,6 @@
 [山东省新泰市国保警察翻墙偷盗时梯子被搬走](https://github.com/Hongyu91/cecjy/issues/1202#issue-738410794)
 
 [茂名袂花镇610持续骚扰法轮功学员　俩人含冤离世](https://github.com/Hongyu91/cecjy/issues/1203#issue-738411215)
-
-[五年绝食抗议 上海交大毕业生一秒一秒的坚持](https://github.com/Hongyu91/cecjy/issues/1198#issue-738197360)
-
-[十一月疫情以来 这些“巧合”在告诉人们什么？](https://github.com/Hongyu91/cecjy/issues/1199#issue-738198302)
-
-[天津市宝坻区公安分局副局长李思义暴毙](https://github.com/Hongyu91/cecjy/issues/1200#issue-738198592)
 
 ### 主页选文（点文字阅读）
 
