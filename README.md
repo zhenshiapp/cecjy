@@ -6,7 +6,7 @@
 
 ### 三退保命弃中共，善待大法迎光明。
 
-#### 手机用户请扫描《浊世清莲》二维码保存本站
+ 手机用户请扫描《浊世清莲》二维码保存本站
 ![浊世清莲](https://user-images.githubusercontent.com/61768866/97973159-a0b54680-1e00-11eb-9e6e-9b15dc1b1623.png)
 ![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
 ### 三退保平安
@@ -23,7 +23,7 @@
 
  点击浏览：[劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
 
-#### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
+ 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
 
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
