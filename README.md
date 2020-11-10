@@ -25,6 +25,8 @@
 
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
 
+### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
+
 ### 特选真相文章（点文字阅读）
 
 #### [解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)
@@ -34,8 +36,6 @@
 #### [善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
 
 #### [中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
-
-### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 ### 动态真相文章（点文字阅读）
 
