@@ -38,6 +38,8 @@
  [善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
 
  [中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
+ 
+ [中共不能代表中国人民的N个理由（之二）](https://github.com/Hongyu91/cecjy/issues/1211#issue-739902163)
 
 ### 动态真相文章（点文字阅读）
 
