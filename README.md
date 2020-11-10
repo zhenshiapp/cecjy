@@ -15,13 +15,13 @@
 
 共产党的历史是用鲜血和谎言写就的，其连番不断的政治运动，导致了八千万同胞和平时期的非正常死亡，超过两次世界大战死亡人数的总和。九九年以来对千千万万法轮功学员灭绝性的酷刑迫害、虐杀更是令人发指。善恶到头终有报，共产党的罪恶天理难容，即将面临上天的清算。是它的成员就得承担它的罪业。退出它，就不受其牵连、免做其替罪羊。希望您也三退得神佑，平安长相伴。
 
-#### 三退方法：国内用户下载翻墙软件到大纪元退党网站作三退
+ 三退方法：国内用户下载翻墙软件到大纪元退党网站作三退
 
-#### 下载翻墙软件  [手机版无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip)
+ 下载翻墙软件  [手机版无界一点通](https://github.com/Hongyu91/cecjy/files/4367851/um.zip)
 
-#### 下载翻墙软件  [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
+ 下载翻墙软件  [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
 
-#### 点击浏览：[劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
+ 点击浏览：[劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
 
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
 
@@ -29,13 +29,13 @@
 
 ### 特选真相文章（点文字阅读）
 
-#### [解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)
+ [解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)
 
-#### [善恶的决战　使命的兑现（上）](https://github.com/Hongyu91/cecjy/issues/1186#issue-735258179)
+ [善恶的决战　使命的兑现（上）](https://github.com/Hongyu91/cecjy/issues/1186#issue-735258179)
 
-#### [善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
+ [善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
 
-#### [中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
+ [中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
 
 ### 动态真相文章（点文字阅读）
 
