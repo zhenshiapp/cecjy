@@ -25,7 +25,7 @@
 
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
 
-### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
+#### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 ### 特选真相文章（点文字阅读）
 
