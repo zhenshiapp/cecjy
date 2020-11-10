@@ -21,11 +21,11 @@
 
 #### 下载翻墙软件  [无界 浏览 电脑版](https://github.com/Hongyu91/cecjy/files/4312303/u1902.zip)
 
+#### 点击浏览：[劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
+
 #### 大纪元退党网站地址：https://tuidang.epochtimes.com/ （国内翻墙访问）
 
 ### 特选真相文章（点文字阅读）
-
-#### [劝三退插图](https://github.com/Hongyu91/cecjy/issues/897#issue-688487175)
 
 #### [解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)
 
