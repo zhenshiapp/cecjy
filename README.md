@@ -43,6 +43,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[一位农村大法弟子救人的故事](https://github.com/Hongyu91/cecjy/issues/1212#issue-740544420)
+
+[四川广汉市78岁杨云清被非法扣发养老金](https://github.com/Hongyu91/cecjy/issues/1213#issue-740545895)
+
+[听大法师父讲法录音　脑瘤消失](https://github.com/Hongyu91/cecjy/issues/1214#issue-740546995)
+
 [中共是破坏宗教自由的罪魁祸首](https://github.com/Hongyu91/cecjy/issues/1208#issue-739674606)
 
 [律师守护正义　无惧中共迫害](https://github.com/Hongyu91/cecjy/issues/1209#issue-739675813)
@@ -54,12 +60,6 @@
 [中共的十大罪状](https://github.com/Hongyu91/cecjy/issues/1205#issue-738784050)
 
 [吉林伊通残疾妇女赵淑芹被非法判刑](https://github.com/Hongyu91/cecjy/issues/1206#issue-738786314)
-
-[美国大选　正邪大战](https://github.com/Hongyu91/cecjy/issues/1201#issue-738410443)
-
-[山东省新泰市国保警察翻墙偷盗时梯子被搬走](https://github.com/Hongyu91/cecjy/issues/1202#issue-738410794)
-
-[茂名袂花镇610持续骚扰法轮功学员　俩人含冤离世](https://github.com/Hongyu91/cecjy/issues/1203#issue-738411215)
 
 ### 主页选文（点文字阅读）
 
