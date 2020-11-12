@@ -43,6 +43,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[天无绝人之路](https://github.com/Hongyu91/cecjy/issues/1215#issue-741365417)
+
+[瑞典林雪平市民众谴责中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1216#issue-741367921)
+
+[从我儿子身体的变化看大法的超常](https://github.com/Hongyu91/cecjy/issues/1217#issue-741369599)
+
 [一位农村大法弟子救人的故事](https://github.com/Hongyu91/cecjy/issues/1212#issue-740544420)
 
 [四川广汉市78岁杨云清被非法扣发养老金](https://github.com/Hongyu91/cecjy/issues/1213#issue-740545895)
@@ -54,12 +60,6 @@
 [律师守护正义　无惧中共迫害](https://github.com/Hongyu91/cecjy/issues/1209#issue-739675813)
 
 [新疆石河子市原政法委书记程克强遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/1210#issue-739678299)
-
-[面对人间大戏，几人清醒几人迷？](https://github.com/Hongyu91/cecjy/issues/1204#issue-738773687)
-
-[中共的十大罪状](https://github.com/Hongyu91/cecjy/issues/1205#issue-738784050)
-
-[吉林伊通残疾妇女赵淑芹被非法判刑](https://github.com/Hongyu91/cecjy/issues/1206#issue-738786314)
 
 ### 主页选文（点文字阅读）
 
