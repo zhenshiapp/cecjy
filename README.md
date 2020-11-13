@@ -43,6 +43,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[警察和世人抢着要真相台历](https://github.com/Hongyu91/cecjy/issues/1218#issue-742230137)
+
+[满眼望去皆是敌人　越抓越多](https://github.com/Hongyu91/cecjy/issues/1219#issue-742233482)
+
+[重庆潼南区艺术家张志强被秘密追踪、骚扰](https://github.com/Hongyu91/cecjy/issues/1220#issue-742234922)
+
 [天无绝人之路](https://github.com/Hongyu91/cecjy/issues/1215#issue-741365417)
 
 [瑞典林雪平市民众谴责中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1216#issue-741367921)
@@ -54,12 +60,6 @@
 [四川广汉市78岁杨云清被非法扣发养老金](https://github.com/Hongyu91/cecjy/issues/1213#issue-740545895)
 
 [听大法师父讲法录音　脑瘤消失](https://github.com/Hongyu91/cecjy/issues/1214#issue-740546995)
-
-[中共是破坏宗教自由的罪魁祸首](https://github.com/Hongyu91/cecjy/issues/1208#issue-739674606)
-
-[律师守护正义　无惧中共迫害](https://github.com/Hongyu91/cecjy/issues/1209#issue-739675813)
-
-[新疆石河子市原政法委书记程克强遭恶报死亡](https://github.com/Hongyu91/cecjy/issues/1210#issue-739678299)
 
 ### 主页选文（点文字阅读）
 
