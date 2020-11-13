@@ -40,6 +40,8 @@
  [中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
  
  [中共不能代表中国人民的N个理由(之二)](https://github.com/Hongyu91/cecjy/issues/1211#issue-739902163)
+ 
+ [中共不能代表中国人民的N个理由(之三)](https://github.com/Hongyu91/cecjy/issues/1224#issue-742312703)
 
 ### 动态真相文章（点文字阅读）
 
