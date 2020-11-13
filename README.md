@@ -101,6 +101,10 @@
 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
+### 每日图片
+
+![image](https://user-images.githubusercontent.com/61768866/99043995-060bf300-25ca-11eb-9d1a-ef5e27dc8d43.png)
+
 # 明慧周报：中国版（第八二三期）
 
 ![image](https://user-images.githubusercontent.com/61768866/99042599-f9869b00-25c7-11eb-80c5-e6033420d747.png)
