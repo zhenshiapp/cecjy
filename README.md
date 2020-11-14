@@ -62,7 +62,7 @@
 
 [2020年被中共迫害致生命垂危的 部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391) |
 [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
-[长春王守慧、刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
+[长春王守慧刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
 [河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392) |
 [海南孤儿寡母的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489) |
