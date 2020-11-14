@@ -49,6 +49,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[得遇万古圣缘](https://github.com/Hongyu91/cecjy/issues/1227#issue-742954514)
+
+[川普带领美国正在与共产主义决战](https://github.com/Hongyu91/cecjy/issues/1228#issue-742955262)
+
+[善恶有报　不差分毫](https://github.com/Hongyu91/cecjy/issues/1229#issue-742955549)
+
 [警察和世人抢着要真相台历](https://github.com/Hongyu91/cecjy/issues/1218#issue-742230137)
 
 [满眼望去皆是敌人　越抓越多](https://github.com/Hongyu91/cecjy/issues/1219#issue-742233482)
@@ -60,12 +66,6 @@
 [瑞典林雪平市民众谴责中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1216#issue-741367921)
 
 [从我儿子身体的变化看大法的超常](https://github.com/Hongyu91/cecjy/issues/1217#issue-741369599)
-
-[一位农村大法弟子救人的故事](https://github.com/Hongyu91/cecjy/issues/1212#issue-740544420)
-
-[四川广汉市78岁杨云清被非法扣发养老金](https://github.com/Hongyu91/cecjy/issues/1213#issue-740545895)
-
-[听大法师父讲法录音　脑瘤消失](https://github.com/Hongyu91/cecjy/issues/1214#issue-740546995)
 
 ### 主页选文（点文字阅读）
 
