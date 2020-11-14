@@ -44,7 +44,7 @@
 
 [从我儿子身体的变化看大法的超常](https://github.com/Hongyu91/cecjy/issues/1217#issue-741369599)
 
-### 主页选文一（点文字阅读）
+### 主页选文（点文字阅读）
 
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
 [爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685) |
@@ -82,24 +82,6 @@
 [法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
-### 主页选文二（点文字阅读）
-
-[解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)
-
-[善恶的决战　使命的兑现（上）](https://github.com/Hongyu91/cecjy/issues/1186#issue-735258179)
-
-[善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
- 
-[中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)
-
-[中共不能代表中国人民的N个理由(之二)](https://github.com/Hongyu91/cecjy/issues/1211#issue-739902163)
-
-[中共不能代表中国人民的N个理由(之三)](https://github.com/Hongyu91/cecjy/issues/1224#issue-742312703)
- 
-[中共不能代表中国人民的N个理由(之四)](https://github.com/Hongyu91/cecjy/issues/1226#issue-742953256)
-
-[中共恶党是中国人一切灾难的总根源](https://github.com/Hongyu91/cecjy/issues/1225#issue-742317541)
- 
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
 
 ### 每日图片
