@@ -104,7 +104,7 @@
 
 ### 每日图片
 
-![image](https://user-images.githubusercontent.com/61768866/99043995-060bf300-25ca-11eb-9d1a-ef5e27dc8d43.png)
+![image](https://user-images.githubusercontent.com/61768866/99142783-4daa8180-2693-11eb-97aa-06badd08b3d4.png)
 
 # 明慧周报：中国版（第八二三期）
 
