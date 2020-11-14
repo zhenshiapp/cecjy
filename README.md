@@ -46,53 +46,53 @@
 
 ### 主页选文一（点文字阅读）
 
-[中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
-[爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685) |
+[中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792)|
+[爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685)|
 [为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019)
 
-[台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
-[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
+[台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584)|
+[中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586)|
 [天灭中共大潮猛　早办“三退”早平安](https://github.com/Hongyu91/cecjy/issues/1037#issue-705061724)
 
-[给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061) |
-[十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
+[给中国年轻公检法和610人员的公开信](https://github.com/Hongyu91/cecjy/issues/814#issue-673315061)|
+[十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952)|
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
-[2020年被中共迫害致生命垂危的 部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391) |
-[瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
+[2020年被中共迫害致生命垂危的部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)|
+[瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174)|
 [长春王守慧刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
-[河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392) |
-[海南孤儿寡母的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489) |
+[河北邯郸被中共迫害致死、致精神失常的法轮功学员](https://github.com/Hongyu91/cecjy/issues/601#issue-628231392)|
+[海南孤儿寡母的悲惨遭遇](https://github.com/Hongyu91/cecjy/issues/602#issue-628235489)|
 [慕尼黑法轮功学员揭露中共迫害](https://github.com/Hongyu91/cecjy/issues/600#issue-628224607)
 
-[广西电脑教师被害死 家人伸冤遭死亡威胁](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921) |
-[太原季家五子女蒙难 母亲遭恐吓离世](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545) |
+[广西电脑教师被害死 家人伸冤遭死亡威胁](https://github.com/Hongyu91/cecjy/issues/592#issue-627116921)|
+[太原季家五子女蒙难 母亲遭恐吓离世](https://github.com/Hongyu91/cecjy/issues/580#issue-624660545)|
 [“法轮功好，从上面到下面谁都知道”](https://github.com/Hongyu91/cecjy/issues/584#issue-625481014)
 
-[不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574) |
-[从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215) |
+[不要在绝望中才开始面对自己](https://github.com/Hongyu91/cecjy/issues/566#issue-623048574)|
+[从影视圈走入修炼 开启新人生](https://github.com/Hongyu91/cecjy/issues/562#issue-623010215)|
 [纽约珠宝商染肺炎　念九字真言痊愈](https://github.com/Hongyu91/cecjy/issues/570#issue-623810595)
 
-[法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721) |
-[大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625) |
+[法国大法弟子谢师恩 遥祝师尊生日快乐](https://github.com/Hongyu91/cecjy/issues/543#issue-619640721)|
+[大疫下　听真相为何应成为生活的第一选择？](https://github.com/Hongyu91/cecjy/issues/544#issue-619641625)|
 [“强国”缘何冤狱一位弱女子？](https://github.com/Hongyu91/cecjy/issues/572#issue-623811224)
 
-[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417) |
-[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733) |
+[“出埃及记”的启示 ](https://github.com/Hongyu91/cecjy/issues/631#issue-635175417)|
+[法轮大法是拯救人类的高德大法 ](https://github.com/Hongyu91/cecjy/issues/523#issue-617201733)|
 [大疫中话“誓言” 从历史看今天](https://github.com/Hongyu91/cecjy/issues/295#issue-598725802)
 
 ### 主页选文二（点文字阅读）
 
-[解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046) |
-[善恶的决战　使命的兑现（上）](https://github.com/Hongyu91/cecjy/issues/1186#issue-735258179) |
+[解密庞贝：人性沦落魔性强，天神布灾庞贝亡](https://github.com/Hongyu91/cecjy/issues/1139#issue-725573046)|
+[善恶的决战　使命的兑现（上）](https://github.com/Hongyu91/cecjy/issues/1186#issue-735258179)|
 [善恶的决战　使命的兑现（下）](https://github.com/Hongyu91/cecjy/issues/1187#issue-735260189)
  
-[中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842) |
-[中共不能代表中国人民的N个理由(之二)](https://github.com/Hongyu91/cecjy/issues/1211#issue-739902163) |
+[中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842)|
+[中共不能代表中国人民的N个理由(之二)](https://github.com/Hongyu91/cecjy/issues/1211#issue-739902163)|
 [中共不能代表中国人民的N个理由(之三)](https://github.com/Hongyu91/cecjy/issues/1224#issue-742312703)
  
-[中共不能代表中国人民的N个理由(之四)](https://github.com/Hongyu91/cecjy/issues/1226#issue-742953256) |
+[中共不能代表中国人民的N个理由(之四)](https://github.com/Hongyu91/cecjy/issues/1226#issue-742953256)|
 [中共恶党是中国人一切灾难的总根源](https://github.com/Hongyu91/cecjy/issues/1225#issue-742317541)
  
 ### 点击：[阅读所有文章](https://github.com/Hongyu91/cecjy/issues)
