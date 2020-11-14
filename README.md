@@ -99,8 +99,6 @@
 
 ### 每日图片
 
-![image](https://user-images.githubusercontent.com/61768866/99142783-4daa8180-2693-11eb-97aa-06badd08b3d4.png)
-
 # 明慧周报：中国版（第八二三期）
 
 ![image](https://user-images.githubusercontent.com/61768866/99042599-f9869b00-25c7-11eb-80c5-e6033420d747.png)
