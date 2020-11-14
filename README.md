@@ -48,7 +48,7 @@
 
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
 [爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685) |
-[为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019)
+[2020年被中共迫害致生命垂危的部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
@@ -58,7 +58,7 @@
 [十九前的“伪火”：不攻自破的“世纪谎言”](https://github.com/Hongyu91/cecjy/issues/8#issue-575166952) |
 [中共火化活人的罪恶事例](https://github.com/Hongyu91/cecjy/issues/7#issue-575164500)
 
-[2020年被中共迫害致生命垂危的部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391) |
+[为什么不能随便发毒誓?](https://github.com/Hongyu91/cecjy/issues/1128#issue-723695019) |
 [瘟疫灭中共 去留一念间](https://github.com/Hongyu91/cecjy/issues/509#issue-615332174) |
 [长春王守慧刘博扬母子二周内先后被迫害致死](https://github.com/Hongyu91/cecjy/issues/628#issue-634294675)
 
@@ -90,7 +90,7 @@
  
 [中共不能代表中国人民的N个理由(之一)](https://github.com/Hongyu91/cecjy/issues/1207#issue-739671842) |
 [中共不能代表中国人民的N个理由(之二)](https://github.com/Hongyu91/cecjy/issues/1211#issue-739902163) |
-[中共不能代表中国人民的N个理由(之三)](https://github.com/Hongyu91/cecjy/issues/1224#issue-742312703)
+[中共不能代表中国人民N个理由(之三)](https://github.com/Hongyu91/cecjy/issues/1224#issue-742312703)
  
 [中共不能代表中国人民的N个理由(之四)](https://github.com/Hongyu91/cecjy/issues/1226#issue-742953256) |
 [中共恶党是中国人一切灾难的总根源](https://github.com/Hongyu91/cecjy/issues/1225#issue-742317541)
