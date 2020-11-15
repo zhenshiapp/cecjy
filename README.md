@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[你如同一股清泉，又像是一座灯塔](https://github.com/Hongyu91/cecjy/issues/1233#issue-743205703)
+
+[人民的选择　美50州民众上街支持川普连任](https://github.com/Hongyu91/cecjy/issues/1234#issue-743206531)
+
+[看中共官员是如何对法轮功修炼者“清零”的](https://github.com/Hongyu91/cecjy/issues/1235#issue-743207395)
+
 [得遇万古圣缘](https://github.com/Hongyu91/cecjy/issues/1227#issue-742954514)
 
 [川普带领美国正在与共产主义决战](https://github.com/Hongyu91/cecjy/issues/1228#issue-742955262)
@@ -37,12 +43,6 @@
 [满眼望去皆是敌人　越抓越多](https://github.com/Hongyu91/cecjy/issues/1219#issue-742233482)
 
 [重庆潼南区艺术家张志强被秘密追踪、骚扰](https://github.com/Hongyu91/cecjy/issues/1220#issue-742234922)
-
-[天无绝人之路](https://github.com/Hongyu91/cecjy/issues/1215#issue-741365417)
-
-[瑞典林雪平市民众谴责中共迫害法轮功](https://github.com/Hongyu91/cecjy/issues/1216#issue-741367921)
-
-[从我儿子身体的变化看大法的超常](https://github.com/Hongyu91/cecjy/issues/1217#issue-741369599)
 
 ### 主页选文（点文字阅读）
 
