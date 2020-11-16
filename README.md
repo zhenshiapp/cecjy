@@ -6,8 +6,8 @@
 
 ### 三退保命弃中共，善待大法迎光明。
 
+![浊世清莲](https://user-images.githubusercontent.com/61768866/99250865-5774e600-2847-11eb-8f26-9fab8ed0a494.jpg)
 ![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
-![浊世清莲](https://user-images.githubusercontent.com/61768866/97973159-a0b54680-1e00-11eb-9e6e-9b15dc1b1623.png)
 
 ### 三退保平安
 
