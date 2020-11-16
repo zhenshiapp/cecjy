@@ -26,6 +26,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[他说：“我明白了，我们原来是这个缘分！”](https://github.com/Hongyu91/cecjy/issues/1236#issue-743607600)
+
+[川普总统：这是美国历史上最大的窃选](https://github.com/Hongyu91/cecjy/issues/1237#issue-743609846)
+
+[迫害中，她失去了八位亲人](https://github.com/Hongyu91/cecjy/issues/1238#issue-743611947)
+
 [你如同一股清泉，又像是一座灯塔](https://github.com/Hongyu91/cecjy/issues/1233#issue-743205703)
 
 [人民的选择　美50州民众上街支持川普连任](https://github.com/Hongyu91/cecjy/issues/1234#issue-743206531)
@@ -37,12 +43,6 @@
 [川普带领美国正在与共产主义决战](https://github.com/Hongyu91/cecjy/issues/1228#issue-742955262)
 
 [善恶有报　不差分毫](https://github.com/Hongyu91/cecjy/issues/1229#issue-742955549)
-
-[警察和世人抢着要真相台历](https://github.com/Hongyu91/cecjy/issues/1218#issue-742230137)
-
-[满眼望去皆是敌人　越抓越多](https://github.com/Hongyu91/cecjy/issues/1219#issue-742233482)
-
-[重庆潼南区艺术家张志强被秘密追踪、骚扰](https://github.com/Hongyu91/cecjy/issues/1220#issue-742234922)
 
 ### 主页选文（点文字阅读）
 
