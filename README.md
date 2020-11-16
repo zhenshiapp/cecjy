@@ -8,7 +8,8 @@
 
 ![浊世清莲](https://user-images.githubusercontent.com/61768866/99250865-5774e600-2847-11eb-8f26-9fab8ed0a494.jpg)
 ![zxtu1](https://user-images.githubusercontent.com/61768866/97973942-d4dd3700-1e01-11eb-8ba4-2c24bf95e5e5.jpg)
- 本站网址二维码图片手机可下载，电脑可另存文件夹保存。
+
+ 本站网址二维码图片手机可下载，电脑可图片另存文件夹保存。
  
 ### 三退保平安
 
