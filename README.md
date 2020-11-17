@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[我就信“法轮大法好，真善忍好”](https://github.com/Hongyu91/cecjy/issues/1242#issue-744487305)
+
+[大法的超常在我身上的体现](https://github.com/Hongyu91/cecjy/issues/1243#issue-744488447)
+
+[湖北省高级法院副院长张忠波遭恶报自杀死亡](https://github.com/Hongyu91/cecjy/issues/1244#issue-744489163)
+
 [他说：“我明白了，我们原来是这个缘分！”](https://github.com/Hongyu91/cecjy/issues/1236#issue-743607600)
 
 [川普总统：这是美国历史上最大的窃选](https://github.com/Hongyu91/cecjy/issues/1237#issue-743609846)
@@ -40,12 +46,6 @@
 [人民的选择　美50州民众上街支持川普连任](https://github.com/Hongyu91/cecjy/issues/1234#issue-743206531)
 
 [看中共官员是如何对法轮功修炼者“清零”的](https://github.com/Hongyu91/cecjy/issues/1235#issue-743207395)
-
-[得遇万古圣缘](https://github.com/Hongyu91/cecjy/issues/1227#issue-742954514)
-
-[川普带领美国正在与共产主义决战](https://github.com/Hongyu91/cecjy/issues/1228#issue-742955262)
-
-[善恶有报　不差分毫](https://github.com/Hongyu91/cecjy/issues/1229#issue-742955549)
 
 ### 主页选文（点文字阅读）
 
