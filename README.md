@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[现世报应昭然 智者慎思明辨](https://github.com/Hongyu91/cecjy/issues/1246#issue-745414360)
+
+[派出所所长公开说“我退党啦！”](https://github.com/Hongyu91/cecjy/issues/1247#issue-745417270)
+
+[“九字真言”护身符　危难时刻把命保](https://github.com/Hongyu91/cecjy/issues/1248#issue-745419442)
+
 [我就信“法轮大法好，真善忍好”](https://github.com/Hongyu91/cecjy/issues/1242#issue-744487305)
 
 [大法的超常在我身上的体现](https://github.com/Hongyu91/cecjy/issues/1243#issue-744488447)
@@ -40,12 +46,6 @@
 [川普总统：这是美国历史上最大的窃选](https://github.com/Hongyu91/cecjy/issues/1237#issue-743609846)
 
 [迫害中，她失去了八位亲人](https://github.com/Hongyu91/cecjy/issues/1238#issue-743611947)
-
-[你如同一股清泉，又像是一座灯塔](https://github.com/Hongyu91/cecjy/issues/1233#issue-743205703)
-
-[人民的选择　美50州民众上街支持川普连任](https://github.com/Hongyu91/cecjy/issues/1234#issue-743206531)
-
-[看中共官员是如何对法轮功修炼者“清零”的](https://github.com/Hongyu91/cecjy/issues/1235#issue-743207395)
 
 ### 主页选文（点文字阅读）
 
