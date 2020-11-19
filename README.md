@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[大选真相浮现　藏镜人是中共](https://github.com/Hongyu91/cecjy/issues/1250#issue-746312690)
+
+[面对中共挑战　美国务院发报告公布应对措施](https://github.com/Hongyu91/cecjy/issues/1251#issue-746315480)
+
+[女儿为父做无罪辩护　北京平谷区法庭全场静听](https://github.com/Hongyu91/cecjy/issues/1252#issue-746317051)
+
 [现世报应昭然 智者慎思明辨](https://github.com/Hongyu91/cecjy/issues/1246#issue-745414360)
 
 [派出所所长公开说“我退党啦！”](https://github.com/Hongyu91/cecjy/issues/1247#issue-745417270)
@@ -40,12 +46,6 @@
 [大法的超常在我身上的体现](https://github.com/Hongyu91/cecjy/issues/1243#issue-744488447)
 
 [湖北省高级法院副院长张忠波遭恶报自杀死亡](https://github.com/Hongyu91/cecjy/issues/1244#issue-744489163)
-
-[他说：“我明白了，我们原来是这个缘分！”](https://github.com/Hongyu91/cecjy/issues/1236#issue-743607600)
-
-[川普总统：这是美国历史上最大的窃选](https://github.com/Hongyu91/cecjy/issues/1237#issue-743609846)
-
-[迫害中，她失去了八位亲人](https://github.com/Hongyu91/cecjy/issues/1238#issue-743611947)
 
 ### 主页选文（点文字阅读）
 
