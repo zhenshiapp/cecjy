@@ -91,12 +91,12 @@
 
 ![2020-5-11-2005060343243_01--ss](https://user-images.githubusercontent.com/61768866/99752733-d99f2c00-2b1f-11eb-9191-8830d4fd083f.jpg)
 
-# 明慧周报：中国版（第八二三期）
+# 明慧周报：中国版（第八二四期）
 
-![image](https://user-images.githubusercontent.com/61768866/99042599-f9869b00-25c7-11eb-80c5-e6033420d747.png)
-![image](https://user-images.githubusercontent.com/61768866/99042628-06a38a00-25c8-11eb-918d-884cfd67e8d9.png)
-![image](https://user-images.githubusercontent.com/61768866/99042657-158a3c80-25c8-11eb-91d1-991250ee2230.png)
-![image](https://user-images.githubusercontent.com/61768866/99042687-23d85880-25c8-11eb-9466-54af19296452.png)
+![image](https://user-images.githubusercontent.com/61768866/99773998-357dab00-2b48-11eb-872e-02a821745a34.png)
+![image](https://user-images.githubusercontent.com/61768866/99774044-44fcf400-2b48-11eb-8ba8-6343579f0fb1.png)
+![image](https://user-images.githubusercontent.com/61768866/99774083-50e8b600-2b48-11eb-8aa6-7c7212f69474.png)
+![image](https://user-images.githubusercontent.com/61768866/99774120-5cd47800-2b48-11eb-9cdd-693c8cfffcd0.png)
 
 #### 法轮功基本真相贴图 
 
