@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[大选中的“十月革命”阴影：利用媒体　制造仇恨](https://github.com/Hongyu91/cecjy/issues/1257#issue-747253221)
+
+[修真善忍做好人　吉林朱兆水被枉判三年半](https://github.com/Hongyu91/cecjy/issues/1258#issue-747255409)
+
+[吉林市警察半夜砸开防盗门、绑架民妇孙亚珍](https://github.com/Hongyu91/cecjy/issues/1259#issue-747259254)
+
 [大选真相浮现　藏镜人是中共](https://github.com/Hongyu91/cecjy/issues/1250#issue-746312690)
 
 [面对中共挑战　美国务院发报告公布应对措施](https://github.com/Hongyu91/cecjy/issues/1251#issue-746315480)
@@ -40,12 +46,6 @@
 [派出所所长公开说“我退党啦！”](https://github.com/Hongyu91/cecjy/issues/1247#issue-745417270)
 
 [“九字真言”护身符　危难时刻把命保](https://github.com/Hongyu91/cecjy/issues/1248#issue-745419442)
-
-[我就信“法轮大法好，真善忍好”](https://github.com/Hongyu91/cecjy/issues/1242#issue-744487305)
-
-[大法的超常在我身上的体现](https://github.com/Hongyu91/cecjy/issues/1243#issue-744488447)
-
-[湖北省高级法院副院长张忠波遭恶报自杀死亡](https://github.com/Hongyu91/cecjy/issues/1244#issue-744489163)
 
 ### 主页选文（点文字阅读）
 
