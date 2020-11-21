@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[因果报应漫谈](https://github.com/Hongyu91/cecjy/issues/1263#issue-747971124)
+
+[德国国会人权听证会　揭露中共扼杀信仰](https://github.com/Hongyu91/cecjy/issues/1264#issue-747971767)
+
+[四年冤狱　湛江余梅被迫害体重降至七十斤](https://github.com/Hongyu91/cecjy/issues/1265#issue-747972032)
+
 [大选中的“十月革命”阴影：利用媒体　制造仇恨](https://github.com/Hongyu91/cecjy/issues/1257#issue-747253221)
 
 [修真善忍做好人　吉林朱兆水被枉判三年半](https://github.com/Hongyu91/cecjy/issues/1258#issue-747255409)
@@ -40,12 +46,6 @@
 [面对中共挑战　美国务院发报告公布应对措施](https://github.com/Hongyu91/cecjy/issues/1251#issue-746315480)
 
 [女儿为父做无罪辩护　北京平谷区法庭全场静听](https://github.com/Hongyu91/cecjy/issues/1252#issue-746317051)
-
-[现世报应昭然 智者慎思明辨](https://github.com/Hongyu91/cecjy/issues/1246#issue-745414360)
-
-[派出所所长公开说“我退党啦！”](https://github.com/Hongyu91/cecjy/issues/1247#issue-745417270)
-
-[“九字真言”护身符　危难时刻把命保](https://github.com/Hongyu91/cecjy/issues/1248#issue-745419442)
 
 ### 主页选文（点文字阅读）
 
