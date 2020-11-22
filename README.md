@@ -89,7 +89,8 @@
 
 ### 每日图片
 
-![2020-5-12-2005110535418_01--ss](https://user-images.githubusercontent.com/61768866/99870928-9d4bf880-2c11-11eb-9d78-c13ec8c2c000.jpg)
+![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/99892505-77296580-2cb0-11eb-8fb8-f1410abefc84.jpg)
+![sptu5](https://user-images.githubusercontent.com/61768866/99892509-814b6400-2cb0-11eb-8187-e2dc763b35a0.png)
 
 # 明慧周报：中国版（第八二四期）
 
