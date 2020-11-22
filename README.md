@@ -89,7 +89,7 @@
 
 ### 每日图片
 
-![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/99892505-77296580-2cb0-11eb-8fb8-f1410abefc84.jpg)### 每日視頻
+![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/99892505-77296580-2cb0-11eb-8fb8-f1410abefc84.jpg)
 
 ### 每日视频
 
