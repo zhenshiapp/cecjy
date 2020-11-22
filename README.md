@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[鲍威尔律师：川普获压倒性胜利　我们将证明这一点](https://github.com/Hongyu91/cecjy/issues/1267#issue-748190609)
+
+[被枉判七年入狱　浙江八旬老人病危](https://github.com/Hongyu91/cecjy/issues/1268#issue-748190862)
+
+[聪明的警察越来越多](https://github.com/Hongyu91/cecjy/issues/1269#issue-748191126)
+
 [因果报应漫谈](https://github.com/Hongyu91/cecjy/issues/1263#issue-747971124)
 
 [德国国会人权听证会　揭露中共扼杀信仰](https://github.com/Hongyu91/cecjy/issues/1264#issue-747971767)
@@ -40,12 +46,6 @@
 [修真善忍做好人　吉林朱兆水被枉判三年半](https://github.com/Hongyu91/cecjy/issues/1258#issue-747255409)
 
 [吉林市警察半夜砸开防盗门、绑架民妇孙亚珍](https://github.com/Hongyu91/cecjy/issues/1259#issue-747259254)
-
-[大选真相浮现　藏镜人是中共](https://github.com/Hongyu91/cecjy/issues/1250#issue-746312690)
-
-[面对中共挑战　美国务院发报告公布应对措施](https://github.com/Hongyu91/cecjy/issues/1251#issue-746315480)
-
-[女儿为父做无罪辩护　北京平谷区法庭全场静听](https://github.com/Hongyu91/cecjy/issues/1252#issue-746317051)
 
 ### 主页选文（点文字阅读）
 
