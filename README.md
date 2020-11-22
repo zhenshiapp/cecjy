@@ -89,7 +89,11 @@
 
 ### 每日图片
 
-![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/99892505-77296580-2cb0-11eb-8fb8-f1410abefc84.jpg)
+![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/99892505-77296580-2cb0-11eb-8fb8-f1410abefc84.jpg)### 每日視頻
+
+### 每日视频
+
+### 点击观看：[舞蹈《秋月遊》](https://www.zhenshi.cf/#/video/Clcc7qLzYRU)
 
 # 明慧周报：中国版（第八二四期）
 
