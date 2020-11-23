@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[远离邪党免受邪党之害](https://github.com/Hongyu91/cecjy/issues/1271#issue-748534244)
+
+[美众院少数党领袖：选民拒绝社会主义](https://github.com/Hongyu91/cecjy/issues/1272#issue-748536045)
+
+[武汉法轮功学员危有秀被武汉二支沟看守所迫害离世](https://github.com/Hongyu91/cecjy/issues/1273#issue-748537368)
+
 [鲍威尔律师：川普获压倒性胜利　我们将证明这一点](https://github.com/Hongyu91/cecjy/issues/1267#issue-748190609)
 
 [被枉判七年入狱　浙江八旬老人病危](https://github.com/Hongyu91/cecjy/issues/1268#issue-748190862)
@@ -40,12 +46,6 @@
 [德国国会人权听证会　揭露中共扼杀信仰](https://github.com/Hongyu91/cecjy/issues/1264#issue-747971767)
 
 [四年冤狱　湛江余梅被迫害体重降至七十斤](https://github.com/Hongyu91/cecjy/issues/1265#issue-747972032)
-
-[大选中的“十月革命”阴影：利用媒体　制造仇恨](https://github.com/Hongyu91/cecjy/issues/1257#issue-747253221)
-
-[修真善忍做好人　吉林朱兆水被枉判三年半](https://github.com/Hongyu91/cecjy/issues/1258#issue-747255409)
-
-[吉林市警察半夜砸开防盗门、绑架民妇孙亚珍](https://github.com/Hongyu91/cecjy/issues/1259#issue-747259254)
 
 ### 主页选文（点文字阅读）
 
