@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[河南巩义市白春花不到六天被迫害致死](https://github.com/Hongyu91/cecjy/issues/1277#issue-749443170)
+
+[日内瓦论坛　曝光中共活摘法轮功学员器官罪行](https://github.com/Hongyu91/cecjy/issues/1278#issue-749447856)
+
+[为何说美国大选是正邪大战？](https://github.com/Hongyu91/cecjy/issues/1279#issue-749453077)
+
 [远离邪党免受邪党之害](https://github.com/Hongyu91/cecjy/issues/1271#issue-748534244)
 
 [美众院少数党领袖：选民拒绝社会主义](https://github.com/Hongyu91/cecjy/issues/1272#issue-748536045)
@@ -40,12 +46,6 @@
 [被枉判七年入狱　浙江八旬老人病危](https://github.com/Hongyu91/cecjy/issues/1268#issue-748190862)
 
 [聪明的警察越来越多](https://github.com/Hongyu91/cecjy/issues/1269#issue-748191126)
-
-[因果报应漫谈](https://github.com/Hongyu91/cecjy/issues/1263#issue-747971124)
-
-[德国国会人权听证会　揭露中共扼杀信仰](https://github.com/Hongyu91/cecjy/issues/1264#issue-747971767)
-
-[四年冤狱　湛江余梅被迫害体重降至七十斤](https://github.com/Hongyu91/cecjy/issues/1265#issue-747972032)
 
 ### 主页选文（点文字阅读）
 
