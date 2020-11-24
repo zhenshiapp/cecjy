@@ -89,11 +89,11 @@
 
 ### 每日图片
 
-![sptu0](https://user-images.githubusercontent.com/61768866/99926016-23378300-2d7b-11eb-97f6-c49e40b2fd05.png)
+![2020-5-10-taiwan-jiayi-513_01--ss](https://user-images.githubusercontent.com/61768866/100044429-a378e980-2e4a-11eb-975b-d42cfa07fa75.jpg)
 
 ### 每日视频
 
-### 点击观看：[短片《路遇》 ](https://www.zhenshi.cf/#/video/5oHScSedNo0)
+### 点击观看：[劇情片《難忘的歲月》](https://www.zhenshi.cf/#/video/Zj9okw4YlpA)
 
 # 明慧周报：中国版（第八二四期）
 
