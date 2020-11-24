@@ -93,7 +93,7 @@
 
 ### 每日视频
 
-### 点击观看：[劇情片《難忘的歲月》](https://www.zhenshi.cf/#/video/Zj9okw4YlpA)
+### 点击观看：[劇情片《難忘的歲月》](https://www.zhenshi.cf/#/video/Zj9okw4YlpA) （打开视频页面后点三角形箭头可播放）
 
 # 明慧周报：中国版（第八二四期）
 
