@@ -93,7 +93,7 @@
 
 ### 每日视频
 
-### 点击观看：[243年前華盛頓預見了今天的川普！](https://www.zhenshi.cf/#/video/IsfcUEeqAO4) （打开视频页面后点三角形箭头可播放）
+### 点击观看：[243年前華盛頓預見了今天的川普！](https://www.zhenshi.cf/#/video/IsfcUEeqAO4) （点三角形箭头播放）
 
 # 明慧周报：中国版（第八二四期）
 
