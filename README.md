@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[正确的价值观是教育孩子的关键](https://github.com/Hongyu91/cecjy/issues/1282#issue-750569096)
+
+[“闺门事，离不开一个礼”](https://github.com/Hongyu91/cecjy/issues/1283#issue-750573495)
+
+[中共不能代表中国人民的N个理由之（十一）](https://github.com/Hongyu91/cecjy/issues/1281#issue-750568115)
+
 [河南巩义市白春花不到六天被迫害致死](https://github.com/Hongyu91/cecjy/issues/1277#issue-749443170)
 
 [日内瓦论坛　曝光中共活摘法轮功学员器官罪行](https://github.com/Hongyu91/cecjy/issues/1278#issue-749447856)
@@ -40,12 +46,6 @@
 [美众院少数党领袖：选民拒绝社会主义](https://github.com/Hongyu91/cecjy/issues/1272#issue-748536045)
 
 [武汉法轮功学员危有秀被武汉二支沟看守所迫害离世](https://github.com/Hongyu91/cecjy/issues/1273#issue-748537368)
-
-[鲍威尔律师：川普获压倒性胜利　我们将证明这一点](https://github.com/Hongyu91/cecjy/issues/1267#issue-748190609)
-
-[被枉判七年入狱　浙江八旬老人病危](https://github.com/Hongyu91/cecjy/issues/1268#issue-748190862)
-
-[聪明的警察越来越多](https://github.com/Hongyu91/cecjy/issues/1269#issue-748191126)
 
 ### 主页选文（点文字阅读）
 
