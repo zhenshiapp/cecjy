@@ -163,8 +163,6 @@
 
 #### 你退了吗？请点击： [我要三退](https://github.com/Hongyu91/cecjy/issues/484#issue-611715749)
 
-#### 点击访问：[油管视频](https://www.youtube.com/channel/UCE46QeEzKA6GawOxMZ5rPEg?view_as=subscriber)（国内翻墙访问）
-
 #### 收藏本站 https://git.io/JvaVR  本站所有资源属于转载。
 
 #### [返回顶部](https://github.com/Hongyu91/cecjy)
