@@ -95,6 +95,12 @@
 
 ### 点击观看：[【电影】密码](https://www.zhenshi.cf/#/video/NhhG1WvR9v0) （点三角形箭头播放）
 
+### 主页視频（点文字观看）
+
+[電影：《為你而來》](https://www.zhenshi.cf/#/video/aoRIdbCkBUc) |
+[【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E) |
+[短片《路遇》](https://www.zhenshi.cf/#/video/5oHScSedNo0)
+
 # 明慧周报：中国版（第八二四期）
 
 ![image](https://user-images.githubusercontent.com/61768866/99773998-357dab00-2b48-11eb-872e-02a821745a34.png)
