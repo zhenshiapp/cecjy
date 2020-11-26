@@ -89,11 +89,11 @@
 
 ### 每日图片
 
-![2014-8-19-guangchuanzhenxiang-2](https://user-images.githubusercontent.com/61768866/100194836-5cb1ef00-2f31-11eb-97b1-5d4b5169d258.jpg)
+![2020-5-10-taiwan-jiayi-513_01--ss](https://user-images.githubusercontent.com/61768866/100300913-fc26be80-2fd1-11eb-89a7-c1eac2e95df8.jpg)
 
 ### 每日视频
 
-### 点击观看：[243年前華盛頓預見了今天的川普！](https://www.zhenshi.cf/#/video/IsfcUEeqAO4) （点三角形箭头播放）
+### 点击观看：[【电影】密码](https://www.zhenshi.cf/#/video/NhhG1WvR9v0) （点三角形箭头播放）
 
 # 明慧周报：中国版（第八二四期）
 
