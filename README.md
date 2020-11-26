@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[中共颠倒黑白 构陷无辜孝子](https://github.com/Hongyu91/cecjy/issues/1285#issue-751357710)
+
+[美国休士顿法轮功学员感恩节谢师恩](https://github.com/Hongyu91/cecjy/issues/1286#issue-751359416)
+
+[美国大选中的共产幽灵](https://github.com/Hongyu91/cecjy/issues/1287#issue-751361174)
+
 [正确的价值观是教育孩子的关键](https://github.com/Hongyu91/cecjy/issues/1282#issue-750569096)
 
 [“闺门事，离不开一个礼”](https://github.com/Hongyu91/cecjy/issues/1283#issue-750573495)
@@ -40,12 +46,6 @@
 [日内瓦论坛　曝光中共活摘法轮功学员器官罪行](https://github.com/Hongyu91/cecjy/issues/1278#issue-749447856)
 
 [为何说美国大选是正邪大战？](https://github.com/Hongyu91/cecjy/issues/1279#issue-749453077)
-
-[远离邪党免受邪党之害](https://github.com/Hongyu91/cecjy/issues/1271#issue-748534244)
-
-[美众院少数党领袖：选民拒绝社会主义](https://github.com/Hongyu91/cecjy/issues/1272#issue-748536045)
-
-[武汉法轮功学员危有秀被武汉二支沟看守所迫害离世](https://github.com/Hongyu91/cecjy/issues/1273#issue-748537368)
 
 ### 主页选文（点文字阅读）
 
