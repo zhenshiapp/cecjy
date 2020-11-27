@@ -101,12 +101,12 @@
 [【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E) |
 [短片《路遇》](https://www.zhenshi.cf/#/video/5oHScSedNo0)
 
-# 明慧周报：中国版（第八二四期）
+# 明慧周报：中国版（第八二五期）
 
-![image](https://user-images.githubusercontent.com/61768866/99773998-357dab00-2b48-11eb-872e-02a821745a34.png)
-![image](https://user-images.githubusercontent.com/61768866/99774044-44fcf400-2b48-11eb-8ba8-6343579f0fb1.png)
-![image](https://user-images.githubusercontent.com/61768866/99774083-50e8b600-2b48-11eb-8aa6-7c7212f69474.png)
-![image](https://user-images.githubusercontent.com/61768866/99774120-5cd47800-2b48-11eb-9cdd-693c8cfffcd0.png)
+![image](https://user-images.githubusercontent.com/61768866/100428445-eea32e80-30ce-11eb-8601-437db29de9f4.png)
+![image](https://user-images.githubusercontent.com/61768866/100428490-fd89e100-30ce-11eb-9f55-e83ef58bdd91.png)
+![image](https://user-images.githubusercontent.com/61768866/100428537-0bd7fd00-30cf-11eb-849c-fd65a83c154f.png)
+![image](https://user-images.githubusercontent.com/61768866/100428574-18f4ec00-30cf-11eb-8fd6-38627c68c1bc.png)
 
 #### 法轮功基本真相贴图 
 
