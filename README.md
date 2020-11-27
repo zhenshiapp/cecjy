@@ -89,11 +89,11 @@
 
 ### 每日图片
 
-![2020-5-10-taiwan-jiayi-513_01--ss](https://user-images.githubusercontent.com/61768866/100300913-fc26be80-2fd1-11eb-89a7-c1eac2e95df8.jpg)
+![fsf1](https://user-images.githubusercontent.com/61768866/100411325-60b64c00-30ac-11eb-98f0-355e37c38bba.jpg)
 
 ### 每日视频
 
-### 点击观看：[【电影】密码](https://www.zhenshi.cf/#/video/NhhG1WvR9v0) （点三角形箭头播放）
+### 点击观看：[跨国犯罪！偷票机黑盒子在哪里？](https://www.zhenshi.cf/#/video/mZP1Mh56TdM) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
