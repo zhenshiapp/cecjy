@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[信仰永存 暴政必败](https://github.com/Hongyu91/cecjy/issues/1327#issue-752073603)
+
+[从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
+
+[致中共公检法：守住仅存良知　避免走入绝境](https://github.com/Hongyu91/cecjy/issues/1329#issue-752076819)
+
 [中共颠倒黑白 构陷无辜孝子](https://github.com/Hongyu91/cecjy/issues/1285#issue-751357710)
 
 [美国休士顿法轮功学员感恩节谢师恩](https://github.com/Hongyu91/cecjy/issues/1286#issue-751359416)
@@ -40,12 +46,6 @@
 [“闺门事，离不开一个礼”](https://github.com/Hongyu91/cecjy/issues/1283#issue-750573495)
 
 [中共不能代表中国人民的N个理由之（十一）](https://github.com/Hongyu91/cecjy/issues/1281#issue-750568115)
-
-[河南巩义市白春花不到六天被迫害致死](https://github.com/Hongyu91/cecjy/issues/1277#issue-749443170)
-
-[日内瓦论坛　曝光中共活摘法轮功学员器官罪行](https://github.com/Hongyu91/cecjy/issues/1278#issue-749447856)
-
-[为何说美国大选是正邪大战？](https://github.com/Hongyu91/cecjy/issues/1279#issue-749453077)
 
 ### 主页选文（点文字阅读）
 
