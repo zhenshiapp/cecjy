@@ -97,7 +97,7 @@
 
 ### 主页視频（点文字观看）
 
-[337期（051420）：国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) |
+[国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) |
 [電影：《為你而來》](https://www.zhenshi.cf/#/video/aoRIdbCkBUc) |
 [【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E) |
 [短片《路遇》](https://www.zhenshi.cf/#/video/5oHScSedNo0)
