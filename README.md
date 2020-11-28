@@ -51,7 +51,7 @@
 
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
 [大学俄语系主任与雷达设计师遭受的种种迫害](https://github.com/Hongyu91/cecjy/issues/1334#issue-752624178) |
-[2020年被中共迫害致生命垂危的部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)
+[从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
 [中共代表不了中国人民的十大理由](https://github.com/Hongyu91/cecjy/issues/955#issue-692826586) |
