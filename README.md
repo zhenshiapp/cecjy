@@ -93,7 +93,7 @@
 
 ### 每日视频
 
-### 点击观看：[337期（051420）：国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) （点三角形箭头播放）
+### 点击观看：[国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
