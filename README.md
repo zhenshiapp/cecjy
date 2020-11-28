@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[朱利安尼在宾州听证会上的发言](https://github.com/Hongyu91/cecjy/issues/1332#issue-752621807)
+
+[澳洲布里斯班市民众支持法轮功](https://github.com/Hongyu91/cecjy/issues/1333#issue-752622640)
+
+[大学俄语系主任与雷达设计师遭受的种种迫害](https://github.com/Hongyu91/cecjy/issues/1334#issue-752624178)
+
 [信仰永存 暴政必败](https://github.com/Hongyu91/cecjy/issues/1327#issue-752073603)
 
 [从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
@@ -41,16 +47,10 @@
 
 [美国大选中的共产幽灵](https://github.com/Hongyu91/cecjy/issues/1287#issue-751361174)
 
-[正确的价值观是教育孩子的关键](https://github.com/Hongyu91/cecjy/issues/1282#issue-750569096)
-
-[“闺门事，离不开一个礼”](https://github.com/Hongyu91/cecjy/issues/1283#issue-750573495)
-
-[中共不能代表中国人民的N个理由之（十一）](https://github.com/Hongyu91/cecjy/issues/1281#issue-750568115)
-
 ### 主页选文（点文字阅读）
 
 [中共官员庇护黑社会　迫害良善](https://github.com/Hongyu91/cecjy/issues/1132#issue-724363792) |
-[爱国主义不是教育出来的](https://github.com/Hongyu91/cecjy/issues/1127#issue-723693685) |
+[大学俄语系主任与雷达设计师遭受的种种迫害](https://github.com/Hongyu91/cecjy/issues/1334#issue-752624178) |
 [2020年被中共迫害致生命垂危的部份法轮功学员案例](https://github.com/Hongyu91/cecjy/issues/1168#issue-732952391)
 
 [台北千名法轮功学员反迫害大游行](https://github.com/Hongyu91/cecjy/issues/758#issue-660665584) |
