@@ -89,11 +89,11 @@
 
 ### 每日图片
 
-![fsf1](https://user-images.githubusercontent.com/61768866/100411325-60b64c00-30ac-11eb-98f0-355e37c38bba.jpg)
+![2020-5-11-2005060343243_01--ss](https://user-images.githubusercontent.com/61768866/100492539-1d211800-3168-11eb-9aef-dc7341e0283b.jpg)
 
 ### 每日视频
 
-### 点击观看：[跨国犯罪！偷票机黑盒子在哪里？](https://www.zhenshi.cf/#/video/mZP1Mh56TdM) （点三角形箭头播放）
+### 点击观看：[337期（051420）：国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
