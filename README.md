@@ -89,15 +89,14 @@
 
 ### 每日图片
 
-![2020-5-11-2005060343243_01--ss](https://user-images.githubusercontent.com/61768866/100492539-1d211800-3168-11eb-9aef-dc7341e0283b.jpg)
+![2020-5-9-taipei-513_03](https://user-images.githubusercontent.com/61768866/100536815-0fe65500-325e-11eb-82ac-009584fe4d26.jpg)
 
 ### 每日视频
 
-### 点击观看：[国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) （点三角形箭头播放）
+### 点击观看：[ 薇羽看世間 20201128](https://www.zhenshi.cf/#/video/OGK9aIKD9XE) （点三角形箭头播放）
 
 ### 主页視频（点文字观看）
 
-[国人有望，反击后浪，选择退共，纯正信仰 ](https://www.zhenshi.cf/#/video/hXLncWYIaGo) |
 [電影：《為你而來》](https://www.zhenshi.cf/#/video/aoRIdbCkBUc) |
 [【永恒的五十分钟】](https://www.zhenshi.cf/#/video/ebKBaGf836E) |
 [短片《路遇》](https://www.zhenshi.cf/#/video/5oHScSedNo0)
