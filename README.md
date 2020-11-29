@@ -29,6 +29,12 @@
 
 ### 动态真相文章（点文字阅读）
 
+[《指环王》演绎了什么？](https://github.com/Hongyu91/cecjy/issues/1336#issue-752865817)
+
+[皮尤研究中心：中国宗教信仰限制全球最严重](https://github.com/Hongyu91/cecjy/issues/1337#issue-752866165)
+
+[世人明真相得福报小故事](https://github.com/Hongyu91/cecjy/issues/1338#issue-752866446)
+
 [朱利安尼在宾州听证会上的发言](https://github.com/Hongyu91/cecjy/issues/1332#issue-752621807)
 
 [澳洲布里斯班市民众支持法轮功](https://github.com/Hongyu91/cecjy/issues/1333#issue-752622640)
@@ -40,12 +46,6 @@
 [从美国大选看共产主义炒作的“平等”](https://github.com/Hongyu91/cecjy/issues/1328#issue-752075713)
 
 [致中共公检法：守住仅存良知　避免走入绝境](https://github.com/Hongyu91/cecjy/issues/1329#issue-752076819)
-
-[中共颠倒黑白 构陷无辜孝子](https://github.com/Hongyu91/cecjy/issues/1285#issue-751357710)
-
-[美国休士顿法轮功学员感恩节谢师恩](https://github.com/Hongyu91/cecjy/issues/1286#issue-751359416)
-
-[美国大选中的共产幽灵](https://github.com/Hongyu91/cecjy/issues/1287#issue-751361174)
 
 ### 主页选文（点文字阅读）
 
